@@ -1,0 +1,22 @@
+[CRI] Starting segmented collection with 16 workers
+[CRI] Legacy range 2010-01-01 -> 2010-12-31
+  - Updated 2010.jsonl (2010-01-01〜2010-12-31)
+[CRI] Legacy range 2011-01-01 -> 2011-12-31
+  - Updated 2011.jsonl (2011-01-01〜2011-12-31)
+[CRI] Legacy range 2012-01-01 -> 2012-12-31
+  - Updated 2012.jsonl (2012-01-01〜2012-12-31)
+[CRI] Legacy range 2013-01-01 -> 2013-12-31
+  - Updated 2013.jsonl (2013-01-01〜2013-12-31)
+[CRI] Legacy range 2014-01-01 -> 2014-12-31
+  - Updated 2014.jsonl (2014-01-01〜2014-12-31)
+[CRI] Legacy range 2015-01-01 -> 2015-12-31
+  - Updated 2015.jsonl (2015-01-01〜2015-12-31)
+[CRI] Modern range 2021-01-01 -> 2021-12-31
+  - Merged 2021.jsonl (2021-01-01〜2021-12-31)
+[CRI] Modern range 2023-01-01 -> 2023-12-31
+  - Merged 2023.jsonl (2023-01-01〜2023-12-31)
+[CRI] Modern range 2024-01-01 -> 2024-12-31
+  - Merged 2024.jsonl (2024-01-01〜2024-12-31)
+[CRI] Modern range 2025-01-01 -> 2025-11-08
+  - Merged 2025.jsonl (2025-01-01〜2025-11-08)
+[CRI] Completed segmented collection

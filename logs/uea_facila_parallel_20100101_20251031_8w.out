@@ -1,0 +1,45 @@
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2010-01-01 ～ 2025-10-31 (workers=8)
+[INFO] ワーカー #1: URL 16 件 | 本文 16 本 | 本文取得 24.5s
+[INFO] ワーカー #2: URL 16 件 | 本文 16 本 | 本文取得 24.0s
+[INFO] ワーカー #3: URL 16 件 | 本文 16 本 | 本文取得 22.4s
+[INFO] ワーカー #4: URL 16 件 | 本文 16 本 | 本文取得 22.9s
+[INFO] ワーカー #5: URL 16 件 | 本文 16 本 | 本文取得 23.0s
+[INFO] ワーカー #6: URL 16 件 | 本文 16 本 | 本文取得 23.3s
+[INFO] ワーカー #7: URL 15 件 | 本文 15 本 | 本文取得 21.9s
+[INFO] ワーカー #8: URL 15 件 | 本文 15 本 | 本文取得 22.1s
+[INFO] 抽出完了: 126 本
+[INFO] URL 範囲（推定公開日）: 2024-11-01 ～ 2025-10-31
+[INFO] 累計時間: URL収集 10.5s / 本文取得 184.2s
+[DONE] 2018 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2018.md
+[DONE] 2018 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2018.txt
+[DONE] 2018 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2018.csv
+[DONE] 2018 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2018.jsonl
+[DONE] 2019 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2019.md
+[DONE] 2019 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2019.txt
+[DONE] 2019 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2019.csv
+[DONE] 2019 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2019.jsonl
+[DONE] 2020 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2020.md
+[DONE] 2020 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2020.txt
+[DONE] 2020 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2020.csv
+[DONE] 2020 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2020.jsonl
+[DONE] 2021 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2021.md
+[DONE] 2021 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2021.txt
+[DONE] 2021 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2021.csv
+[DONE] 2021 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2021.jsonl
+[DONE] 2022 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2022.md
+[DONE] 2022 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2022.txt
+[DONE] 2022 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2022.csv
+[DONE] 2022 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2022.jsonl
+[DONE] 2023 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2023.md
+[DONE] 2023 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2023.txt
+[DONE] 2023 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2023.csv
+[DONE] 2023 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2023.jsonl
+[DONE] 2024 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2024.md
+[DONE] 2024 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2024.txt
+[DONE] 2024 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2024.csv
+[DONE] 2024 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2024.jsonl
+[DONE] 2025 MD: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2025.md
+[DONE] 2025 TXT: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2025.txt
+[DONE] 2025 CSV: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2025.csv
+[DONE] 2025 JSONL: output/uea_facila_20100101_20251031_parallel_8w/uea_facila_2025.jsonl

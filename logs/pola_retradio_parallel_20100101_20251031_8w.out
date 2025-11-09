@@ -1,0 +1,75 @@
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2010-01-01 ～ 2025-10-31 (workers=8, method=auto)
+[INFO] ワーカー #1: 2010-01-01 ～ 2011-12-24 | URL 85 件 | 本文 85 本 | URL収集 6.5s / 本文取得 85.3s
+[INFO] ワーカー #2: 2011-12-25 ～ 2013-12-16 | URL 381 件 | 本文 381 本 | URL収集 37.7s / 本文取得 382.3s
+[INFO] ワーカー #3: 2013-12-17 ～ 2015-12-09 | URL 812 件 | 本文 812 本 | URL収集 72.6s / 本文取得 814.7s
+[INFO] ワーカー #4: 2015-12-10 ～ 2017-12-01 | URL 897 件 | 本文 897 本 | URL収集 74.9s / 本文取得 899.8s
+[INFO] ワーカー #5: 2017-12-02 ～ 2019-11-24 | URL 831 件 | 本文 831 本 | URL収集 76.7s / 本文取得 833.8s
+[INFO] ワーカー #6: 2019-11-25 ～ 2021-11-16 | URL 858 件 | 本文 858 本 | URL収集 73.0s / 本文取得 860.9s
+[INFO] ワーカー #7: 2021-11-17 ～ 2023-11-09 | URL 775 件 | 本文 775 本 | URL収集 73.7s / 本文取得 777.5s
+[INFO] ワーカー #8: 2023-11-10 ～ 2025-10-31 | URL 700 件 | 本文 700 本 | URL収集 64.8s / 本文取得 702.4s
+[INFO] 抽出完了: 5339 本
+[INFO] URL 範囲（推定公開日）: 2011-02-15 ～ 2025-10-30
+[INFO] 集計: feed 0/0 | archive 0/0 | rest 5339/5339 | duplicates removed 0 | out-of-range skipped 0
+[INFO] 累計時間: URL収集 479.9s / 本文取得 5356.7s
+[DONE] 2011 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2011.md
+[DONE] 2011 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2011.txt
+[DONE] 2011 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2011.csv
+[DONE] 2011 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2011.jsonl
+[DONE] 2012 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2012.md
+[DONE] 2012 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2012.txt
+[DONE] 2012 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2012.csv
+[DONE] 2012 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2012.jsonl
+[DONE] 2013 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2013.md
+[DONE] 2013 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2013.txt
+[DONE] 2013 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2013.csv
+[DONE] 2013 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2013.jsonl
+[DONE] 2014 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2014.md
+[DONE] 2014 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2014.txt
+[DONE] 2014 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2014.csv
+[DONE] 2014 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2014.jsonl
+[DONE] 2015 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2015.md
+[DONE] 2015 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2015.txt
+[DONE] 2015 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2015.csv
+[DONE] 2015 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2015.jsonl
+[DONE] 2016 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2016.md
+[DONE] 2016 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2016.txt
+[DONE] 2016 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2016.csv
+[DONE] 2016 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2016.jsonl
+[DONE] 2017 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2017.md
+[DONE] 2017 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2017.txt
+[DONE] 2017 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2017.csv
+[DONE] 2017 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2017.jsonl
+[DONE] 2018 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2018.md
+[DONE] 2018 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2018.txt
+[DONE] 2018 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2018.csv
+[DONE] 2018 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2018.jsonl
+[DONE] 2019 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2019.md
+[DONE] 2019 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2019.txt
+[DONE] 2019 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2019.csv
+[DONE] 2019 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2019.jsonl
+[DONE] 2020 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2020.md
+[DONE] 2020 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2020.txt
+[DONE] 2020 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2020.csv
+[DONE] 2020 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2020.jsonl
+[DONE] 2021 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2021.md
+[DONE] 2021 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2021.txt
+[DONE] 2021 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2021.csv
+[DONE] 2021 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2021.jsonl
+[DONE] 2022 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2022.md
+[DONE] 2022 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2022.txt
+[DONE] 2022 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2022.csv
+[DONE] 2022 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2022.jsonl
+[DONE] 2023 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2023.md
+[DONE] 2023 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2023.txt
+[DONE] 2023 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2023.csv
+[DONE] 2023 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2023.jsonl
+[DONE] 2024 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2024.md
+[DONE] 2024 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2024.txt
+[DONE] 2024 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2024.csv
+[DONE] 2024 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2024.jsonl
+[DONE] 2025 MD: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2025.md
+[DONE] 2025 TXT: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2025.txt
+[DONE] 2025 CSV: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2025.csv
+[DONE] 2025 JSONL: output/pola_retradio_20100101_20251031_parallel_8w/pola_retradio_2025.jsonl
+

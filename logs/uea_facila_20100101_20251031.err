@@ -1,0 +1,5 @@
+usage: scraper.py [-h] [--start START] [--end END] [--days DAYS] [--out OUT]
+                  [--base-url BASE_URL] [--throttle THROTTLE]
+                  [--max-pages MAX_PAGES] [--no-cache]
+                  [--split-by {none,year,month}]
+scraper.py: error: unrecognized arguments: --include-audio

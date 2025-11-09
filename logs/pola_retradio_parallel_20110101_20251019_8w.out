@@ -1,0 +1,18 @@
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2011-01-01 ～ 2025-10-19 (workers=8, method=auto)
+[INFO] ワーカー #1: 2011-01-01 ～ 2012-11-06 | URL 179 件 | 本文 179 本 | URL収集 24.2s / 本文取得 179.4s
+[INFO] ワーカー #2: 2012-11-07 ～ 2014-09-13 | URL 583 件 | 本文 583 本 | URL収集 78.9s / 本文取得 584.2s
+[INFO] ワーカー #3: 2014-09-14 ～ 2016-07-20 | URL 789 件 | 本文 789 本 | URL収集 101.0s / 本文取得 790.8s
+[INFO] ワーカー #4: 2016-07-21 ～ 2018-05-27 | URL 875 件 | 本文 875 本 | URL収集 112.0s / 本文取得 877.3s
+[INFO] ワーカー #5: 2018-05-28 ～ 2020-04-02 | URL 718 件 | 本文 718 本 | URL収集 105.0s / 本文取得 719.9s
+[INFO] ワーカー #6: 2020-04-03 ～ 2022-02-07 | URL 831 件 | 本文 831 本 | URL収集 110.8s / 本文取得 833.4s
+[INFO] ワーカー #7: 2022-02-08 ～ 2023-12-14 | URL 697 件 | 本文 697 本 | URL収集 100.4s / 本文取得 699.1s
+[INFO] ワーカー #8: 2023-12-15 ～ 2025-10-19 | URL 650 件 | 本文 650 本 | URL収集 91.7s / 本文取得 652.1s
+[INFO] 抽出完了: 5322 本
+[INFO] URL 範囲（推定公開日）: 2011-02-15 ～ 2025-10-15
+[INFO] 集計: feed 0/0 | archive 0/0 | rest 5322/5322 | duplicates removed 0 | out-of-range skipped 0
+[INFO] 累計時間: URL収集 724.0s / 本文取得 5336.2s
+[DONE] MD: output/pola_retradio_20110101_20251019_parallel_8w/pola_retradio_2011-02-15_2025-10-15.md
+[DONE] TXT: output/pola_retradio_20110101_20251019_parallel_8w/pola_retradio_2011-02-15_2025-10-15.txt
+[DONE] CSV: output/pola_retradio_20110101_20251019_parallel_8w/pola_retradio_2011-02-15_2025-10-15.csv
+[DONE] JSONL: output/pola_retradio_20110101_20251019_parallel_8w/pola_retradio_2011-02-15_2025-10-15.jsonl

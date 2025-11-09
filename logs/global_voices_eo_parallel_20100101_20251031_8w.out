@@ -1,0 +1,66 @@
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2010-01-01 ～ 2025-10-31 (workers=8, method=rest)
+[INFO] ワーカー #1: 2010-01-01 ～ 2011-12-24 | URL 0 件 | 本文 0 本 | URL収集 1.5s / 本文取得 0.0s
+[INFO] ワーカー #2: 2011-12-25 ～ 2013-12-16 | URL 95 件 | 本文 95 本 | URL収集 4.0s / 本文取得 47.9s
+[INFO] ワーカー #3: 2013-12-17 ～ 2015-12-09 | URL 82 件 | 本文 82 本 | URL収集 4.1s / 本文取得 41.6s
+[INFO] ワーカー #4: 2015-12-10 ～ 2017-12-01 | URL 36 件 | 本文 36 本 | URL収集 3.1s / 本文取得 18.3s
+[INFO] ワーカー #5: 2017-12-02 ～ 2019-11-24 | URL 155 件 | 本文 155 本 | URL収集 6.4s / 本文取得 79.4s
+[INFO] ワーカー #6: 2019-11-25 ～ 2021-11-16 | URL 291 件 | 本文 291 本 | URL収集 11.4s / 本文取得 151.1s
+[INFO] ワーカー #7: 2021-11-17 ～ 2023-11-09 | URL 108 件 | 本文 108 本 | URL収集 6.0s / 本文取得 55.4s
+[INFO] ワーカー #8: 2023-11-10 ～ 2025-10-31 | URL 82 件 | 本文 82 本 | URL収集 4.2s / 本文取得 42.0s
+[INFO] 抽出完了: 849 本
+[INFO] URL 範囲（推定公開日）: 2013-10-21 ～ 2025-10-07
+[INFO] 集計: feed 0/0 | archive 0/0 | rest 849/849 | duplicates removed 0 | out-of-range skipped 0
+[INFO] 累計時間: URL収集 40.8s / 本文取得 435.6s
+[DONE] 2013 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2013.md
+[DONE] 2013 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2013.txt
+[DONE] 2013 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2013.csv
+[DONE] 2013 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2013.jsonl
+[DONE] 2014 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2014.md
+[DONE] 2014 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2014.txt
+[DONE] 2014 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2014.csv
+[DONE] 2014 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2014.jsonl
+[DONE] 2015 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2015.md
+[DONE] 2015 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2015.txt
+[DONE] 2015 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2015.csv
+[DONE] 2015 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2015.jsonl
+[DONE] 2016 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2016.md
+[DONE] 2016 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2016.txt
+[DONE] 2016 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2016.csv
+[DONE] 2016 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2016.jsonl
+[DONE] 2017 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2017.md
+[DONE] 2017 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2017.txt
+[DONE] 2017 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2017.csv
+[DONE] 2017 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2017.jsonl
+[DONE] 2018 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2018.md
+[DONE] 2018 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2018.txt
+[DONE] 2018 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2018.csv
+[DONE] 2018 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2018.jsonl
+[DONE] 2019 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2019.md
+[DONE] 2019 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2019.txt
+[DONE] 2019 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2019.csv
+[DONE] 2019 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2019.jsonl
+[DONE] 2020 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2020.md
+[DONE] 2020 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2020.txt
+[DONE] 2020 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2020.csv
+[DONE] 2020 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2020.jsonl
+[DONE] 2021 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2021.md
+[DONE] 2021 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2021.txt
+[DONE] 2021 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2021.csv
+[DONE] 2021 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2021.jsonl
+[DONE] 2022 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2022.md
+[DONE] 2022 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2022.txt
+[DONE] 2022 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2022.csv
+[DONE] 2022 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2022.jsonl
+[DONE] 2023 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2023.md
+[DONE] 2023 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2023.txt
+[DONE] 2023 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2023.csv
+[DONE] 2023 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2023.jsonl
+[DONE] 2024 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2024.md
+[DONE] 2024 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2024.txt
+[DONE] 2024 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2024.csv
+[DONE] 2024 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2024.jsonl
+[DONE] 2025 MD: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2025.md
+[DONE] 2025 TXT: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2025.txt
+[DONE] 2025 CSV: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2025.csv
+[DONE] 2025 JSONL: output/global_voices_eo_20100101_20251031_parallel_8w/global_voices_eo_2025.jsonl

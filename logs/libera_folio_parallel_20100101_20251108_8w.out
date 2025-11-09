@@ -1,0 +1,3 @@
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2010-01-01 ～ 2025-11-08 (workers=8, method=both)
+[ERROR] ワーカー #7 (2021-11-23～2023-11-16) が失敗: Could not find a suitable TLS CA certificate bundle, invalid path: /home/yamauch_t/Monato_GlobalVoices_ElPopolaCxinio_Scivolemo_UeaFacila_完成_20251109/.venv/lib/python3.9/site-packages/certifi/cacert.pem

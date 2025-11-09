@@ -1,0 +1,14 @@
+requests>=2.31.0
+beautifulsoup4>=4.12.3
+lxml>=5.2.2
+feedparser>=6.0.11
+dateparser>=1.2.0
+python-dateutil>=2.9.0
+tqdm>=4.66.4
+# Streamlit UI 用（CLIのみなら不要）
+streamlit>=1.37.0
+# pandas 2.2+ requires Python >= 3.9, so provide a fallback for older runtimes
+pandas>=2.2.2; python_version >= "3.9"
+pandas>=2.0.3,<2.1; python_version < "3.9"
+# キャッシュは任意
+requests-cache>=1.2.0

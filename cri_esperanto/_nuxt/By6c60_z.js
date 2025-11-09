@@ -1,0 +1,1 @@
+const t="data:image/svg+xml,%3csvg%20xmlns='http://www.w3.org/2000/svg'%20xmlns:xlink='http://www.w3.org/1999/xlink'%20fill='none'%20version='1.1'%20width='12'%20height='14'%20viewBox='0%200%2012%2014'%3e%3cg%20transform='matrix(0,1,-1,0,12,-12)'%3e%3cpath%20d='M19,0L26,12L12,12L19,0Z'%20fill='%23FFFFFF'%20fill-opacity='1'/%3e%3c/g%3e%3c/svg%3e";export{t as _};

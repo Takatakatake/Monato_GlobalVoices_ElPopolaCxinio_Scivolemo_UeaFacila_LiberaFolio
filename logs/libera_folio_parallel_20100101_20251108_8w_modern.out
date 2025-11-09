@@ -1,0 +1,2 @@
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2010-01-01 ～ 2025-11-08 (workers=8, method=both)

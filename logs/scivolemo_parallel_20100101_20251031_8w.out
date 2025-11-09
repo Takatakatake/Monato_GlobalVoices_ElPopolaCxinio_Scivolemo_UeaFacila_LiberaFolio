@@ -1,0 +1,46 @@
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2010-01-01 ～ 2025-10-31 (workers=8, method=feed)
+[INFO] ワーカー #1: 2010-01-01 ～ 2011-12-24 | URL 0 件 | 本文 0 本 | URL収集 9.3s / 本文取得 0.0s
+[INFO] ワーカー #2: 2011-12-25 ～ 2013-12-16 | URL 0 件 | 本文 0 本 | URL収集 9.9s / 本文取得 0.0s
+[INFO] ワーカー #3: 2013-12-17 ～ 2015-12-09 | URL 0 件 | 本文 0 本 | URL収集 8.7s / 本文取得 0.0s
+[INFO] ワーカー #4: 2015-12-10 ～ 2017-12-01 | URL 22 件 | 本文 22 本 | URL収集 8.2s / 本文取得 11.1s
+[INFO] ワーカー #5: 2017-12-02 ～ 2019-11-24 | URL 56 件 | 本文 56 本 | URL収集 6.8s / 本文取得 28.2s
+[INFO] ワーカー #6: 2019-11-25 ～ 2021-11-16 | URL 14 件 | 本文 14 本 | URL収集 2.1s / 本文取得 7.1s
+[INFO] ワーカー #7: 2021-11-17 ～ 2023-11-09 | URL 3 件 | 本文 3 本 | URL収集 1.7s / 本文取得 1.5s
+[INFO] ワーカー #8: 2023-11-10 ～ 2025-10-31 | URL 2 件 | 本文 2 本 | URL収集 1.5s / 本文取得 1.0s
+[INFO] 抽出完了: 97 本
+[INFO] URL 範囲（推定公開日）: 2017-07-05 ～ 2024-04-01
+[INFO] 集計: feed 97/156 | archive 0/0 | rest 0/0 | duplicates removed 0 | out-of-range skipped 59
+[INFO] 累計時間: URL収集 48.1s / 本文取得 48.9s
+[DONE] 2017 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2017.md
+[DONE] 2017 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2017.txt
+[DONE] 2017 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2017.csv
+[DONE] 2017 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2017.jsonl
+[DONE] 2018 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2018.md
+[DONE] 2018 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2018.txt
+[DONE] 2018 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2018.csv
+[DONE] 2018 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2018.jsonl
+[DONE] 2019 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2019.md
+[DONE] 2019 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2019.txt
+[DONE] 2019 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2019.csv
+[DONE] 2019 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2019.jsonl
+[DONE] 2020 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2020.md
+[DONE] 2020 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2020.txt
+[DONE] 2020 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2020.csv
+[DONE] 2020 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2020.jsonl
+[DONE] 2021 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2021.md
+[DONE] 2021 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2021.txt
+[DONE] 2021 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2021.csv
+[DONE] 2021 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2021.jsonl
+[DONE] 2022 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2022.md
+[DONE] 2022 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2022.txt
+[DONE] 2022 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2022.csv
+[DONE] 2022 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2022.jsonl
+[DONE] 2023 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2023.md
+[DONE] 2023 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2023.txt
+[DONE] 2023 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2023.csv
+[DONE] 2023 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2023.jsonl
+[DONE] 2024 MD: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2024.md
+[DONE] 2024 TXT: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2024.txt
+[DONE] 2024 CSV: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2024.csv
+[DONE] 2024 JSONL: output/scivolemo_20100101_20251031_parallel_8w/scivolemo_2024.jsonl

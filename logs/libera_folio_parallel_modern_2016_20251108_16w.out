@@ -1,0 +1,3 @@
+[LiberaFolio-modern] Collecting 2016-01-01 -> 2025-11-08 (both modes, 16 cores)
+[INFO] 並列実行では requests-cache を無効化しました（SQLite のロック競合回避）。
+[INFO] 並列スクレイプ開始: 2016-01-01 ～ 2025-11-08 (workers=16, method=both)

@@ -1,0 +1,77 @@
+---
+source: "MONATO (monato.be)"
+generated_at: "2025-11-09T12:38:27.762618+00:00"
+generator: "retradio_lib.py"
+time_range: "2022-01-01 – 2022-12-31"
+---
+
+
+# Diskutoj pri la estonteco de Ukrainio
+
+**URL:** https://www.monato.be/2022/013158.php?p
+
+**Author:** Evgeni GEORGIEV
+
+**Categories:** Aktuale, INTERNACIA KONFERENCO, Politiko
+
+En Vieno okazis internacia konferenco „Time to Decide” (Tempo por decidi). Partoprenis fakuloj, kiuj provis trovi solvojn por Ukrainio post la milito. La organizantoj de la aranĝo estis la aŭstraj Institut für die Wissenschaften vom Menschen (IWM) (Instituto por la homaj sciencoj) kaj bankfondaĵo Erste .
+
+Ekde la 24a de februaro la eŭropa ordo ne plu estas tia, kia ĝi estis en la antaŭaj jardekoj. La rusia invado al Ukrainio neeviteble ŝanĝis ne nur la landon, sed ankaŭ Eŭropan Union kaj la sintenon de la EU-ŝtatoj. La salutparoloj en la konferenco montris kiel grave la konflikto influas la interrilatojn en Eŭropo. En unu el ili Kaja Kallas, estona ĉefministrino, per videomesaĝo deklaris: „Paco devas esti pli bone armita kontraŭ la leĝoj de tiraneco”. Kaj ŝi atentigis, ke „malbona paco estus ŝarĝo por ni estontece”.
+
+Serhij Ploĥij, ukraina fakulo kaj profesoro ĉe la universitato Harvard (Usono), atentigis, ke Ukrainio de pli ol cent jaroj estas orientita al Okcidento kaj volis apartiĝi de la rusia imperio. „Ukrainio ĉiam havis kulturon, kiu grave diferencis de tiu en Sovet-Unio. Estis ĉiam granda diferenco de identecoj sur la teritorio de Ukrainio”, argumentis Ploĥij. „Neniam nur unu partio povis sola domini la tutan landon. Oni ĉiam devis proksimiĝi unu al la alia por formi registaron.” Eŭromajdano 1 estas laŭ Ploĥij la decida kaŭzo por la agoj de la rusia prezidento Vladimir Putin. „Ĉio komenciĝis en 2014, kun la anekso de Krimeo. La kaŭzo por la milito estis Eŭromajdano. Ĉi tie ekis la konflikto. Temis pri la eŭropa orientiĝo de Ukrainio.”
+
+La moderna ukraina modelo el la 19a jarcento markas orientiĝon al Eŭropo. „Kaj tio signifis ĉiam emancipiĝon disde la Rusia Imperio. Komunismo fakte malmulton ŝanĝis en tiu orientiĝo. Komence de la 90aj jaroj Ukrainio transdonis la nukleajn armilojn al Rusio, sed ne ricevis perspektivojn por la estonteco.” Nun oni devas solvi bazajn problemojn, ĉar baldaŭ minacas ankoraŭ pli granda milito, deklaris Ploĥij. Li atentigis, ke Ukrainio kun sia porokcidenta orientiĝo en sia politiko devas liberiĝi de la oligarkoj.
+
+Por la rekonstruo de Ukrainio Ploĥij konsideras historian modelon, laŭ kiu oni devas orientiĝi: „La Marshall-plano estas modelo, por kiu Eŭropo devas disponigi monon.”
+
+Itala politologino, Nathalie Tocci, de la sendependa Istituto Affari Internazionali (Instituto por internaciaj aferoj) opinias, ke la radikoj de la konflikto estas obstaklo por la solvo: „Tiu milito estis kaŭzita de ideologioj, kaj tio malfaciligas la solvon”. Nura malintensigo ne kondukus al daŭripova pactraktato. Pro tio Ukrainio kaj Okcidento devas prepari sin por longa milito kaj samtempe tre baldaŭ proponi konkretajn perspektivojn. Tio inkluzivas ankaŭ eblan kandidat-statuson por Ukrainio en Eŭropa Unio. Ukrainio bezonas nun klarajn perspektivojn, kiuj povus realiĝi en periodo de unu ĝis kvar jaroj.
+
+Florence Gaub, fondintino de la instituto Futurate en Parizo, diris, ke militoj estas rezulto de konfliktoj kaj ke „malbona paco” implicas la sekvan konflikton. „Ukrainio kaj la aliancanoj devas adaptiĝi al longa konflikto.”
+
+Ĥristo Grozev, ĉefdirektoro de la ĵurnalisma reto Bellingcat , kiu okupiĝas pri esplora malkovro de la rusiaj militoperacoj, argumentis por baldaŭa NATO-membreco de Ukrainio. Nur se la investantoj havus certecon, ke la lando akiris militan stabilecon, ili povus fari daŭripovajn investojn. Grozev memorigis, ke ankaŭ pli novaj EU-membroj antaŭ sia EU-membreco jam estis NATO-membroj kaj tio estis sukcesmodelo – starpunkto, kiu nun ne estas unuanime kunhavata.
+
+La ukraina konflikto – pri tio samopiniis multaj partoprenantoj en la konferenco – jam tute ŝanĝis Eŭropan Union. Oni asertis, ke la milito estas „vek-voko”. „EU estis ĉiam kutimiĝinta ŝanĝi aliajn, sed nun spertas, ke aliaj ŝanĝas ĝin”, diris Ivan Krastev, kunlaboranto de IWM. Li atentigis, ke Ukrainio bezonas perspektivojn ankaŭ pro tio ĉi, ĉar alie ĝi havus truon ĉe la pli juna loĝantaro. „Nun estas multaj ukrainaj infanoj en Okcidento. Se ili pasigos sian junaĝon tie, ili mankos al la lando estontece,” diris la bulgara politologo.
+
+Gerald Knaus, aŭstra fakulo pri migrado, ne samopiniis. Li atentigis, ke pli ol 3,5 milionoj da ukrainoj elmigris al Pollando, sed samtempe 1,3 milionoj revenis. „Tio rilatis al la perspektivo. La defendo de Kievo estis perspektivo je reveno kaj multaj reagis al ĝi.” Li argumentis, ke Eŭropo nun devas certigi moviĝadon por ukrainoj kaj konservi ĝin por pli longa tempo.
+
+Por la ukraina ĵurnalistino Olga Tokarjuk, esplorantino de la Centro pri Eŭropa Politika Analizo (CEPA), ŝia lando entute ŝanĝiĝis. En la ombro de la konflikto en la ukraina socio, kie ĉiam estis forta malfido kontraŭ la ŝtato, formiĝis novaj interrilatoj: „Estas nova fido al la forto de la socio. Antaŭe tio estis problemo. Kaj tio realiĝos en nova fido al la institucioj.”
+
+Laŭ ŝi, prezidento Volodimir Zelenskij gvidas sian landon ne kiel forta reganto, sed kiel „membro de la socio”. „Ni volas esperi, ke tio firmigas la fidon al la ukrainaj institucioj.” La ŝanco de la nuna situacio laŭ Tokarjuk estas, ke en Ukrainio oni unuafoje havas la senton, ke „la registaro staras firme por la komuna afero”.
+
+
+---
+
+# Kien nun, Kanado?
+
+**URL:** https://www.monato.be/2022/013225.php?p
+
+**Author:** Nicolas VIAU
+
+**Categories:** Aktuale, KOMUNUMO DE NACIOJ, Kiel funkcias la monarĥio en Kanado?
+
+Elizabeto la 2a, kiu dum pli ol 70 jaroj regis ne nur super Unuiĝinta Reĝlando, sed ankaŭ super Kanado kaj pluraj aliaj landoj, forpasis en septembro. Ŝi forte interesiĝis pri Kanado, kiun ŝi vizitis 22 fojojn dum sia regado – pli ol ajnan alian landon de la Komunumo de Nacioj ( Commonwealth of Nations ).
+
+Hodiaŭ la ŝtatestro de Kanado estas ŝia filo: la reĝo Karlo la 3a. Li estas ŝtatestro ankaŭ, krom de Unuiĝinta Reĝlando, de 13 aliaj landoj kaj la simbola estro de la Komunumo de Nacioj. En la praktiko, tamen, la politikan povon plenumas la parlamento kaj la registaro, ne de la reĝo mem.
+
+Ne de ĉiuj membroj de la Komunumo de Nacioj (kiuj ĉefe fontas el 56 sendependaj landoj, kiuj antaŭe estis parto de la brita imperio, krom kelkaj esceptoj) la reĝo estas ŝtatestro, sed de nur 15 landoj (16 ĝis Barbado fariĝis respubliko fine de 2021). Tiujn oni povas nomi „Komunumaj Reĝlandoj” ( Commonwealth Realms ). La plimulto de la membraro de la Komunumo de Nacioj do tamen estas respublikoj, en kiu la ŝtatestro ne estas Karlo la 3a, sed estas ankaŭ kelkaj naciaj monarĥioj. Tra la historio, pluraj landoj, kiuj sendependiĝis, elektis fariĝi respublikoj, interalie Barato, Srilanko kaj Maŭricio.
+
+Kanado estas federacio de dek provincoj (al kiu oni aldonu tri nordajn teritoriojn), kiuj ĉiuj havas propran parlamenton kaj registaron. La reĝo estas (kiel en la aliaj landoj, en kiuj li estas ŝtatestro, krom Unuiĝinta Reĝlando) reprezentata surloke de Guberniestro Ĝenerala, persono nomumita de la monarĥo laŭ propono de la ĉefministro de la lando. La nuna Guberniestro Ĝenerala estas Mary Simon, la unua persono de indiĝena – inuka – deveno en tiu posteno. La krono estas ankaŭ reprezentata en ĉiu provinco de Leŭtenant-Guberniestro, kiu esence agas same kiel la Guberniestro Ĝenerala rilate la provincan registaron.
+
+Kial Kanado konservis la monarĥion ĝis nun? Male al multaj aliaj landoj (inkluzive de la najbara Usono), antaŭe partoj de eŭropaj koloniaj imperioj (sed simile al pluraj eksaj britimperiaj landoj), sendependiĝo estis ne evento, sed procezo en Kanado. La nuna federacia politika strukturo ekzistas de 1867, la lando akiris la rajton libere sin reprezenti en eksteraj rilatoj danke al la Statuto de Vestminstro de 1931, kaj Kanado akiris la juran kapablon modifi sian konstitucion sen aprobo de la brita parlamento en 1982. Neniam do estis unuopa, klara apartigo.
+
+Kvankam la akiro de suvereneco okazis iom post iom kaj en maniero akceptita kaj eĉ akompanata de la imperia metropolo, la historio de Kanado ekde la 18a jarcento tamen estas historio de konkeroj nome de la brita krono, forpuŝantaj la tieajn indiĝenajn popolojn aŭ la posteulojn de francaj koloniistoj (aŭ kelkfoje ambaŭ samtempe, ekzemple en la okcidento de Kanado).
+
+La historio de Kanado rilate britajn simbolojn kaj instituciojn estas kontrasta: ĝi enhavas epizodojn kaj de perforto kaj de koncedoj. Britio akiris gravajn partojn de la nunaj atlantikaj provincoj de Kanado el la franca kolonio Akadio en 1713. Iom da jaroj poste, ekde 1755, la tieaj francaj loĝantoj estis perforte elpelitaj de la brita potenco. En 1763 Britio formale akiris la kanadajn teritoriojn de Francio per la Traktato de Parizo. Poste alvenis en Kanadon el la sudo multaj tiel nomataj „lojalistoj”, kiuj celis forlasi la nun sendependan Usonon por plu setli en teritorio de la Brita Imperio, ekde la fino de la 18a jarcento. De la komenco do tiu parto de la britdevena loĝantaro de Kanado forte subtenis la britan kronon. En la eksa Nov-Francio (el kiu estiĝis interalie la nuna provinco Kebekio) rilatoj estas miksitaj: post unuaj provoj altrudi britajn leĝojn kaj regon super la franca loĝantaro, por provi pacigi la franc-kanadajn loĝantojn, kaj por kontraŭi usonajn revoluciulojn, la brita krono devis en 1774 koncedi iujn rajtojn al ili, komenco de malfacila, sed finfine neniam tute rompita rilato kun britaj institucioj. La brita monarĥio estas do forte enplektita en ĉiuj evoluoj de la kanada politiko ekde antaŭ pli ol du jarcentoj kaj duono.
+
+Pluraj aldonaj teritorioj, kiuj poste fariĝis britaj (kaj poste kanadaj) estas la tradiciaj teritorioj de la tieaj indiĝenaj popoloj, kun kiuj la brita krono subskribis la tiel nomatajn „traktatojn”, per kiuj la krono akiris rajtojn en tiuj landoj. Kvankam tiuj traktatoj estas kompreneble kritikataj kiel malegalaj, ili tamen estas taksataj de pluraj simbole gravaj kaj kreis rilaton kun la krono antaŭ eĉ la fondiĝo de la nunaj kanadaj politikaj institucioj. Por pluraj indiĝenaj nacioj ili formas bazon de rajtoj kaj agnosko ĝis la nuna tempo. Pro tiu situacio, iom paradokse, ne ĉiuj indiĝenoj estas favoraj al ĉesigo de rilatoj kun la krono.
+
+Sensurprize la brita monarĥio ne estas tre alte taksata en Kebekio, kies loĝantaro estas ĉefe franclingva. Ekzemple dum periodo, en kiu kreskis la nacia sento en Kebekio (1960aj kaj 1970aj jaroj), okazis vizito en 1964 de Elizabeto la 2a. Dum tiu vizito estis gravaj manifestacioj kontraŭ ĝi. Tamen multe pli gravis dum la pasinta duonjarcento la debato pri sendependiĝo ol tiu pri la monarĥio mem. En la ĉiutagaj politikaj diskutoj la temo estas malofte priparolata – sed la forpaso de Elizabeto la 2a vekis novan intereson pri ĝi. Kvankam la temo ade revenas en la amaskomunikiloj, praktike malmultaj antaŭvidas baldaŭajn unuajn paŝojn laŭ la malfacila politika kaj jura vojo, kiu ebligus transiron al respubliko.
+
+Sentoj pri la monarĥio do estas en Kanado diversaj, tamen ja sufiĉe multaj kanadanoj pensas, ke la monarĥio ne plu taŭgas al moderna Kanado. Enketo farita printempe de 2022 sugestas, ke iom pli ol duono de la loĝantaro tra la tuta Kanado tion pensas, proporcio, kiu eĉ atingas klaran plimulton en Kebekio (71 % laŭ la sama enketo).
+
+Mallonge post la forpaso de la reĝino la ĉefministro de Kanado Justin Trudeau deklaris, ke la nunaj konstituciaj aranĝoj de Kanado estas tre stabilaj, kaj ke li havas neniun planon malfermi la temon.
+
+Kvankam aliaj landoj de la Komunumo de Nacioj fariĝis respublikoj, la historio tamen montras, ke konstituciaj evoluoj estas ĝenerale malrapidaj, aparte en Kanado, kie la konstitucio estas ja malfacile reformebla. Grave, por ŝanĝi la rolon de la monarĥio, la interkonsento kaj de la federacia parlamento, kaj de ĉiu el la dek provincoj bezonatas. Ne ekzistas forta emo malfermi tiajn kompleksajn intertraktadojn. Jam fine de la 1980aj kaj komence de 1990aj jaroj konstituciaj reformoj fiaskis, kio malfermis gravan politikan krizon. Ne estus surprizo do, se Kanado plu troviĝos inter monarĥioj almenaŭ dum la venontaj jaroj.
+
+
+---

@@ -1,0 +1,9208 @@
+---
+source: "El Popola Ĉinio (esperanto.china.org.cn)"
+generated_at: "2025-11-09T06:31:09.085635+00:00"
+generator: "retradio_lib.py"
+time_range: "2023-01-01 – 2023-12-29"
+---
+
+
+# Jilin: Pli ol 30 mil hektaroj da alkala tero fariĝis fekundaj kampoj
+
+**Published:** 2023-01-01
+
+**URL:** http://esperanto.china.org.cn/2023-01/01/content_85035983.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Estas pli ol 600 mil hektaroj da alkala tero en la okcidenta parto de Jilin, nordorienta Ĉinio. La dezerta alkala tero iam kaŭzis kapdolorojn al lokaj kamparanoj pro malalta gren-produktokvanto, kaj iam eĉ ĝenis la disvolviĝon de la lokaj agrikulturo, ekologio kaj popola vivo.
+
+En la lastaj 10 jaroj, Jilin koncentriĝis pri revigligo de la ŝlosila elemento -- akvoresursoj. Oni esploris verdajn rimedojn kiel kunligadon de riveroj kaj lagoj, plibonigon de grundo per akvoresursoj, uzadon de scienc-tekniko, altiron de investoj kaj subvencioj por mediprotekto ktp. Ja reaperis abundo da akvo, herbejoj kaj migrantaj birdoj. Pli ol 30 mil hektaroj da novkultivata tero estis plibonigitaj el iama alkala tero, kaj la grena produktkapablo plialtiĝis je 50 mil tunoj.
+
+"Post plibonigo, la alkala tero vere fariĝis fekunda kampo!" Lokaj kamparanoj ĝojegas. Sub la gvido de fakuloj, estis realigitaj plibonigoj, inkluzive de tersolidigo, irigacio kaj sallavado, fekundigo kaj elekto de semoj, kaj sekve la rendimento kaj rizkvalito de kamparanaj rizkampoj pliboniĝas jaron post jaro. "La enspezo el tia rizkampo pli altas ol tiu de ordinara rizo."
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Kiel ili transformis alkalan teron en rizkampojn?
+
+**Published:** 2023-01-01
+
+**URL:** http://esperanto.china.org.cn/2023-01/01/content_85035985.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La pokapa kultivebla tero, herbejo kaj akvoareo en okcidenta parto de Jilin-provinco, nordorienta Ĉinio, estis en la antaŭaj vicoj de la provinco, sed ekde la 1970-aj jaroj, pro la malekvilibro de ekspluatado de terresursoj, manko de protekto al arbaroj kaj herbejoj, kaj la kreskanta rapideco de tera dezertiĝo kaj sabliĝo, okcidenta Jilin fariĝis evitata areo por migrantaj birdoj.
+
+La ŝlosilo de solvo al alkala tero kuŝas en la plibonigo de akvokonservaj instalaĵoj. En la lastaj jaroj, okcidenta Jilin lanĉis grandajn projektojn pri akvokonservado, utiligante riverojn kaj lagojn, konstruis interhelpan sistemon de naturaj akvejoj por malsekejoj, herbejoj, arbaroj ktp. Tio samtempe donis bazan garantion por la rimedo "per rizkultivo regi alkalecon".
+
+Jilin daŭre realigas koncernajn projektojn, oni dividis alkalan teron en terpecojn, kiuj povas esti evoluigitaj. Multaj sciencaj institutoj kaj entreprenoj tra la lando enradikiĝis tie, prenante teknikajn rimedojn inĝenieriajn, fizikajn, agronomiajn kaj biologiajn por plibonigi la grundon. Fizikaj kaj kemiaj ecoj estis plibonigitaj kaj establiĝis grundaj plugtavoloj.
+
+Dank' al la verda rimedo, hodiaŭ la okcidenta Jilin fariĝis la areo kun plej alta lagodenseco en la lando, kaj la akvosurfaco uzebla por fiŝbredado superis 200 mil hektarojn.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Homoj festis novjaron en la parko Shougang de Pekino!
+
+**Published:** 2023-01-04
+
+**URL:** http://esperanto.china.org.cn/2023-01/04/content_85038886.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 31-an de decembro 2022, la parko Shougang en Pekino gastigis novjaran retrokalkulon kun lumspektaklo kaj artaj prezentoj. Dek minutoj antaŭ la alveno de 2023, ekranego ekmontris festajn bildojn kun bondeziroj pri la novjaro kaj homoj akompanis la retrokalkulon por bonvenigi 2023.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: Global Times
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Kiel oni celebris la novjaron 2023 en Ĉinio?
+
+**Published:** 2023-01-05
+
+**URL:** http://esperanto.china.org.cn/2023-01/05/content_85041295.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Art-fajraĵoj en parko de la urbo Huai'an de Jiangsu-provinco, orienta Ĉinio, fotita la 31-an de decembro 2022
+
+Homoj spektantaj prezenton de flugrobotoj en la urbo Huai'an de Jiangsu-provinco, orienta Ĉinio, fotita la 31-an de decembro 2022
+
+Homoj skiis ĉe skiejo en Zunhua-urbo, Hebei-provinco, norda Ĉinio, la 31-an de decembro 2022.
+
+Turistoj pozis por foto antaŭ glaciaj akvofaloj en Yanqing, Pekino, la 1-an de januaro 2023.
+
+Homoj spektis leondancon en Huai'an, Jiangsu-provinco, orienta Ĉinio, la 31-an de decembro 2022.
+
+Redaktoro: Gao Shuyuan
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Funkcias 9 000-kilometra rapid-aŭtovojo en Sichuan
+
+**Published:** 2023-01-05
+
+**URL:** http://esperanto.china.org.cn/2023-01/05/content_85041714.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 30-an de decembro2022, ses rapid-aŭtovojoj en Dechang, Huili, Guangyuan, Emei, Jiuzhaigou kaj Yibin en Sichuan-provinco, Ĉinio, ekfunkciis. Multaj proksimaj gubernioj (distriktoj, urboj) tie finis la historion sen rapid-aŭtovojo, kaj la longeco de la rapid-aŭtovojoj en la provinco superas 9 000 kilometrojn.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# La 40a Komuna Seminario okazis virtuale
+
+**Published:** 2023-01-05
+
+**URL:** http://esperanto.china.org.cn/2023-01/05/content_85042101.htm
+
+**Categories:** E
+
+La 28an kaj la 29an de decembro 2022 okazis la 40a Komuna Seminario (KS) inter Ĉina, Japana, Korea kaj Vjetnama Junularoj. KS 2022 estis gastigita de la Ĉina Junulara Esperanto-Asocio kaj Zaozhuang-a Universitato. La Ĉina Esperanto-Ligo (ĈEL) kaj la Azi-Pacifika Centro de la Ĉina Internacia Komunika Grupo (ĈIKG) funkciis kiel sponsoroj, kaj kunlaboris la Fremdlingva Eldonejo de Ĉinio. La temo de KS 2022 estas "Azia Komunumo en Junula Vidpunkto". Aliĝis al KS 120 homoj el 18 landoj.
+
+KS 2022 okazis virtuale per la kunvenejo Zoom. En la inaŭguro ĉeestis ĉirkaŭ 90 homoj. Yu Tao, vicprezidanto de ĈIKG kaj vicprezidanto de ĈEL, profesoro Cao Shengqiang, prezidanto de Zaozhuang-a Universitato, So Jinsu, estrarano de UEA, kaj Nisinaga Atusi, prezidanto de KAOEM, donis salutmesaĝojn al la aktivado.
+
+Yu Tao diris, ke kvankam la epidemio malhelpas la vivon, tamen esperantistoj ĉiam povas venki malfacilojn kun solidareco. La Komuna Seminario estas unu el la plej konataj junularaj Esperanto-aranĝoj en la azi-pacifika regiono. Per ĉi tiu KS, oni esperas kaj kredas, ke ili povos vidi la vidpunktojn, sintenojn kaj entreprenemon de aziaj junuloj. Por la estonteco kaj disvolviĝo de Azio, oni devas konstrui komunumon kun komunaj celoj kaj aspiroj por kunlaboro.
+
+Cao Shengqiang diris, ke Zaozhuang-a Universitato estas la nura universitato en Ĉinio, kiu havas Esperanto-fakon, kaj en ĝi ankaŭ troviĝas la plej granda Esperanto-muzeo en Azio. Li esperis, ke la partoprenantoj plene uzu la platformon de KS por antaŭenigi la interŝanĝojn de ideoj kaj scioj, kaj enmeti novajn ideojn en la evoluo de Esperanto.
+
+En la dutaga KS, okazis junulara forumo, prezentado pri junulara movado, prezentado de foto-konkurso "Mia rakonto pri Ĉinio", paroliga kurseto por komencantoj, filmetoprezentado kaj mallongaj prelegoj.
+
+En la 29a de decembro okazis ferma ceremonio de la 40a KS. Ĉeestis kaj faris paroladojn Wang Hanping, vicdirektoro de la Azi-Pacifika Centro de ĈIKG, profesoro Li Wenxi, rektoro de Zaozhuang-a Universitato, kaj Nisinaga Atusi, prezidanto de KAOEM.
+
+En sia konkluda parolado por KS, Wang Hanping diris, ke ĉiuj konservu la amikecon alportitan de Esperanto, oni povas profunde esplori la kernan valoron de Esperanto kaj vere fariĝi la disvastiganto, heredanto kaj pioniro de Esperanto-kulturo.
+
+Nisinaga Atusi esprimis sian dankon al la organizantoj pro la aktiva organizado de ĉi tiu evento. Dum KS li vidis multajn junajn esperantistojn, kiuj uzis Esperanton por kunhavigi siajn ideojn, kio montris la aktivecon de la azia junulara Esperanto-movado. Li esperas, ke asocioj kaj gejunuloj el diversaj landoj daŭre klopodu por antaŭenigi la pluan disvolviĝon de Esperanto en Azio.
+
+Redaktoro: Zhao Wenqi
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Harbino: ridetanta neĝulo reaperis por novjaro
+
+**Published:** 2023-01-06
+
+**URL:** http://esperanto.china.org.cn/2023-01/06/content_85044239.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 4-an de januaro la grandega neĝulo, konata pro ĝia konsoleca rideto, reaperis en Harbino, nordorienta Ĉinio, por la novjaro post dekkelktaga laborado de skulptistoj. Ĉi-jare oni uzis neĝon de 2 000 kubmetroj por fari la neĝulon 18-metro-altan.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Finiĝis foto-konkurso de KS 2022
+
+**Published:** 2023-01-06
+
+**URL:** http://esperanto.china.org.cn/2023-01/06/content_85044470.htm
+
+**Categories:** Esperantujo
+
+La 29-an de decembro 2022 okazis interrete la premidon-ceremonio por la fotokonkurso "Mia Rakonto pri Ĉinio", grava programero de la 40-a Komuna Seminario (KS). La konkurso estas organizita de la Ĉina Esperanto-Ligo kaj Fremdlingva Eldonejo.
+
+La konkurso celas antaŭenigi interŝanĝojn kaj kunlaborojn inter fotemuloj de Ĉinio, Japanio, la Korea Respubliko, Vjetnamio kaj aliaj landoj kaj regionoj en azi-pacifika regiono, profundigi la komprenon de la partoprenantoj pri Ĉinio kaj plifortigi la amikecon inter Esperanto-junularoj en diversaj aziaj landoj. La konkurso ricevis 192 verkojn de 76 partoprenantoj el 12 landoj.
+
+Wang Hanping (dekstre), vicdirektoro de la Azi-pacifika Komunika Centro, prezentas la premion al la gajninto Rafael Henrique Zerbetto.
+
+Huang Xiaolong prezentas kaj diskonigas pri siaj verkoj.
+
+Ahmed Maduhi, el Irano, prezentas sian rakonton montrante la Esperantan revuon "El Popola Ĉinio".
+
+Alessandra Madella rakontas pri sia kompreno pri la ĉina kulturo kaj ĉina socio danke al ĉinaj kolegoj ĉirkaŭ ŝi.
+
+Ilia Sumilfia Dewi prezentas sian rakonton pri ĉeesto al la Azia Kongreso de Esperanto en Quanzhou kaj ŝiajn vojaĝojn en Ĉinio post la kongreso.
+
+La ceremonion ĉeestis Ahmad Mamduhi, prezidanto de la Internacia Ligo de Esperantistaj Instruistoj (ILEI), Alessandra Madella, vicprezidanto de ILEI, Huang Xiaolong, prezidanto de IKEF-Nordameriko (IKEF, Internacia Komerca kaj Ekonomia Forumo en Esperanto), Ilia Sumilfia Dewi, sekretario de Azi-Oceania Komisiono de UEA (KAOEM), kaj Rafael Henrique Zerbetto, lingva konsultisto de Esperanta fako de la Ĉina Internacia Komunika Grupo. Pli ol 50 ĉinaj kaj eksterlandaj junuloj el 17 landoj, inkluzive de Ĉinio, Japanio, la Korea Respubliko, Vjetnamio, Nov-Zelando, Barato, Brazilo, Filipinoj, Francio, Indonezio, Irano, Kanado, Kroatio, Malajzio, Serbio, Singapuro kaj Tajlando, partoprenis en la aktivado. Reprezentantoj de premiitoj diskonigis siajn proprajn rakontojn pri Ĉinio.
+
+Multaj eksterlandaj partoprenantoj diris, ke ili ekhavis pli profundan komprenon pri Ĉinio per ĉi tiu konkurso, kaj pli amas fotadon kaj la vivon. Ankaŭ multaj retumantoj esprimis sian subtenon kaj laŭdon al la konkurso en eksterlandaj sociaj retejoj.
+
+Redaktoroj: Sheng Min kaj Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Metasekvojoj allogas turistojn al Yunnan
+
+**Published:** 2023-01-09
+
+**URL:** http://esperanto.china.org.cn/2023-01/09/content_85047377.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Haihong-a Malsekej-parko en la urbo Kunming, Yunnan-provinco, sudokcidenta Ĉinio, situas ĉe la norda bordo de la lago Dianchi kaj la okcidenta flanko de la enirejo de la rivero Panlong. Ĝi funkcias kiel ekologia barilo por la lago Dianchi. Lastatempe, komenciĝis turisma sezono por vidi la metasekvojojn. Tio altiras multajn turistojn, kiuj alportas ondon da turisma enspezo al la loko.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# "Brilantaj leporoj" sur Okcidenta Lago de Hangzhou
+
+**Published:** 2023-01-13
+
+**URL:** http://esperanto.china.org.cn/2023-01/13/content_85055920.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Por festi la ĉinan novjaron (Printempa Festo) oni ornamis 30 turismajn boatojn sur la Okcidenta Lago de Hangzhou-urbo, sudorienta Ĉinio, per lanternoj kun lepora formo, por distro, spektado kaj amuzigo de la turistoj ĝuantaj la festan etoson.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Heilongjiang: Fuxing-trajno ekfunkciis en plej malvarma medio
+
+**Published:** 2023-01-17
+
+**URL:** http://esperanto.china.org.cn/2023-01/17/content_85064153.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 16-an de januaro ekfunkciis Fuxing-trajno de la tipo CR400BF-GZ en la plej malvarma medio de Heilongjiang-provinco, nordorienta Ĉinio. CR400BF-GZ estas la tipo kun plej alta inteligenteco kaj kontraŭfrosta povo. La loko estas la plej malvarma kaj altlatituda atingebla regiono por Fuxing-trajno kun la rapido de350 kilometroj.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Kiaj leportemaj trezoroj estas troveblaj en la Imperiestra Palaco de Pekino?
+
+**Published:** 2023-01-24
+
+**URL:** http://esperanto.china.org.cn/2023-01/24/content_85064244.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Verda vesto kun brodita osmanto kaj blanka leporo
+
+Parto de la pentraĵo Spektabilo, Birdo kaj Kuniklo (en la ĉina lingvo kuniklo kaj leporo estas sama vorto), farita de Hua Yan (1682-1756)
+
+Leporo el jado kun gemoj
+
+Kotona Lepordio, konservata de la kortego
+
+Jada leporo
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Belega malsekej-parko en Yunnan
+
+**Published:** 2023-01-25
+
+**URL:** http://esperanto.china.org.cn/2023-01/25/content_85064296.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Vintre, Baofeng-a Duoninsula Malsekej-parko en Kunming-urbo, Yunnan-provinco, havas abundajn pejzaĝojn.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Dekmiloj da migrantaj birdoj sur Hunhe-rivero de Liaoning
+
+**Published:** 2023-01-26
+
+**URL:** http://esperanto.china.org.cn/2023-01/26/content_85064220.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Januare, Hunhe-rivero de Shenyang-urbo, Liaoning-provinco, ricevas pli ol dek mil anseroj, ruĝaj anseroj, mandarenanasoj kaj aliaj migrantaj birdoj, kiuj tie ripozas. Ili pasigas la vintron grupe ĉe la rivero, iĝante pejzaĝoj.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Henan: Ruĝaj montrokoj kun neĝo
+
+**Published:** 2023-01-27
+
+**URL:** http://esperanto.china.org.cn/2023-01/27/content_85064199.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Vintre, post neĝado, en la turismejo de Lushi-gubernio, Sanmenxia-urbo de Henan-provinco, Ĉinio, videblas belegaj pejzaĝoj. Ruĝaj montrokoj troviĝas en blanka neĝo kaj formas nepentreblan belecon.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Shandong: Cignoj en neĝo
+
+**Published:** 2023-01-28
+
+**URL:** http://esperanto.china.org.cn/2023-01/28/content_85076797.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Lastatempe forta neĝo atingis Rongcheng-urbon de Shandong-provinco, orienta Ĉinio, kie cignoj pasigas la vintron. La blankaj birdoj aspektas pli belaj en la blanka neĝo.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Pasigi Printempan Feston sub la Granda Muro
+
+**Published:** 2023-01-30
+
+**URL:** http://esperanto.china.org.cn/2023-01/30/content_85078589.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Dum la feriado de ĉi-jara Printempa Festo, je la 16-a horo ĉiutage, ekestis sono de gongoj kaj tamburoj kaj prezentadoj de leondanco kaj folkloraj dancoj ĉe la piedo de Mutianyu-sekcio de la Granda Muro.
+
+Por ĉi-jara Printempa Festo, la buroo pri kulturo kaj turismo de Pekino okazigis la programon "pasigi la Printempan Feston sub la Granda Muro". En la distriktoj Huairou, Yanqing kaj aliaj, kiuj situas ĉe la Granda Muro, la lokaj registaroj, kompanioj kaj hoteloj okazigis riĉajn aktivadojn pri la Printempa Festo, kiuj ne nur allogis multajn turistojn, sed ankaŭ riĉigis la vivon de lokanoj.
+
+Ĉe la Granda Muro Badaling, reaperis la entuziasmo pri glaciaj kaj neĝaj sportoj alportita de la Vintraj Olimpikoj kaj Paralimpikoj. En Yanqing-distrikto, la Longqingxia-a Glacilanterna Karnavalo allogis turistojn el la tuta lando. Multaj skiejoj malfermis siajn servojn dumnokte. Tio aperigis ardan etoson eĥante la programon.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Xi'an: Lanterna spektaklo por Lanterna Festo
+
+**Published:** 2023-01-30
+
+**URL:** http://esperanto.china.org.cn/2023-01/30/content_85080209.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Finiĝis la feriado de la Printempa Festo, kaj baldaŭ venos la Lanterna Festo. La urbo Xi'an en Shaanxi-provinco de Ĉinio lumigas turismejojn per diversaj lampoj kaj lanternoj.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Kiel Pekino venkis la batalon kontraŭ aerpoluado
+
+**Published:** 2023-01-31
+
+**URL:** http://esperanto.china.org.cn/2023-01/31/content_85081880.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Naturo kaj Mediprotekto
+
+Kiam mi unuafoje alvenis al Pekino, fine de oktobro 2015, estis belega blua ĉielo, sen ajna signo de tiu fumnebulo de tempo al tempo montrata en alilandaj televidĵurnaloj. En la sekvaj tagoj ankaŭ estis relative pura aero kaj blua ĉielo, sed mi baldaŭ estis avertita, ke tio ne daŭrus longe.
+
+Fotoj faritaj de Zou Yi en februaro 2013 kaj 2022 klare montras la plibonigon de aerkvalito en Pekino.
+
+Kaj tiu bela vetero ja ne daŭris: en la sekvaj monatoj, dum vintro, estis tagoj kun severa poluado, kaj eĉ dum la aliaj sezonoj de la jaro estis malfacile vidi bluan ĉielon. Dum mia unua semajno en Pekino, miaj kolegoj en la laborejo aĉetis en interreto maskojn N95 por uzi surstrate dum la vintro kaj proponis al mi aĉeti kelkajn.
+
+Tiutempe estis populara -- ĉefe ekster Ĉinio -- la mito, ke spiri pekinan aeron en unu tago estas kiel fumitutan pakaĵon da cigaredoj. Mi priesploris tion kaj malkovris, ke tuttaga spirado surstrate dum la plej poluitajtagoj fakte"ekvivalentis" maksimume du cigaredojn, sed tiu komparo estas tre malpreciza, ĉar la malpuraĵojtroveblaj en la aero diferencas de tiuj troveblaj en cigareda fumo.
+
+Ĉiuokaze, iu ajn pekina loĝanto en tiuj jaroj fariĝis fakulo pri aerpoluado, ĉar la temo estis inter la plej grandaj zorgoj de la loĝantoj: ĉiumatene, post vekiĝo, aŭ antaŭ eliri el mia hejmo, mia ĉefa zorgo estis kontroli la PM2.5 (averaĝa kvanto de partikloj kun diametro malpli granda ol 2.5 mikronoj en unu kubmetro da aero). La unuan fojon kiam mi aŭdis pri ĉi tiu indico, mi faris rapidan esploron en interreto kaj trovis la jenan informon: la aero estus "spirebla" ĝis 200 unuoj da partikloj po kubmetro, PM2.5 pli alta ol tiu estus danĝera por homa sano. Sed ne malofte mi pasigis semajnojn kun PM2.5-indico super 300.
+
+Servocentro en Daxing-distrikto de Pekino, konstruita en loko antaŭe uzita kiel karbostokejo
+
+Kaj PM2.5 estis temo de ĉiutagaj babiladoj en laborejo, parkoj kaj renkontiĝoj kun amikoj. Samtempe, mi sentis min malĝoja pro la granda nombro de brazilanoj defendantaj senarbarigon kaj mildigon de mediprotektaj reguloj kiel maniero allogi investojn kaj akceli ekonomian kreskon. Tiuj homoj neniam spertis ekstreman poluon, pro tio ili ne kapablas aprezi la puran aeron, kiun ili havas. Ili ankaŭ ne scias pri la grandegaj monsumoj kiujn Ĉinio bezonis elspezi dum la lastaj jardekoj por rebonigi la medion, preventi kaj kuraci malsanojn kaŭzitajn de aerpoluo kaj ŝanĝi siajn energifontojn el karbo al aliaj malpli poluaj.
+
+En tiu sama epoko, Pekino estis elektita por gastigi la Vintrajn Olimpikojn kaj Paralimpikojn 2022 kaj promesis puran aeron kaj bluan ĉielon dum la ludoj. En 2016 estis aprobita la 13-a Kvinjara Plano de la ĉina registaro, kiu havis ambiciajn mediprotektajn celojn, emfazante la aerkvaliton. Sed solvi la problemon de aerpoluado en Pekino, laŭ mi, postulus almenaŭ du jardekojn, eĉ kun alpreno de drastaj rimedoj.
+
+Mia malpravo estis rapide pruvita: jam en 2017 mi rimarkis sufiĉe grandan plibonigon de la aerkvalito en Pekino. Tiujare mi vizitis en la pekina distrikto Daxing kulturdomon sur la loko de malnova karbbruligejo konstruita por hejtado dum la vintro.
+
+Superbazaro anstataŭas karbostokejon.
+
+La sekvan jaron, mi unuafoje uzis la metrolinion S1 -- tiam ĵus inaŭgurita, estante la unua de Pekino kiu uzas maglevojn anstataŭ ordinarajn trajnojn -- kaj mi vidis tra la fenestro la konstrulaboron de la parko Shougang, konstruita sur la loko de malnova ŝtalejo. Tie troviĝas la stadiono pri skisaltado
+
+Big Air Shougang
+
+, unu el la allogaĵoj de la Vintraj Olimpikoj kaj Paralimpikoj 2022.
+
+Samtempe karbocentraloj estis fermitaj aŭ konvertitaj al gascentraloj, dum en pluraj lokoj de la provinco Hebei kaj la Interna Mongolio estis inaŭguritaj sun- kaj ventocentraloj -- mi vizitis kelkajn el ili kaj malkovris, ke ili estas konstruitaj ne nur por kontentigi la nacian postulon pri verda energio, sed ankaŭ kiel parto de pli ampleksa projekto por krei laborpostenojn kaj enspezojn por la loĝantoj de la kamparo, kontribuante por la malaperigo de malriĉeco. La lasta karbominejo en Pekino estis fermita en 2019.
+
+Alia grava rimedo alprenita estis la translokigo de industrioj al aliaj partoj de Ĉinio, iniciato ligita ne nur al la mediprotektaj bezonoj, sed ankaŭ al disvolviĝo de malpli disvolviĝintaj regionoj de la lando kaj limigo de urbokresko per transdono de ekonomiaj aktivaĵoj neesencaj por la ĉefurbo al aliaj urboj, por tiel plibonigi la uzon de urba areo kaj la vivokvaliton de la loĝantaro.
+
+De karbostokejo al servocentro: pli pura energifonto oportunas la lokan komunumon.
+
+Lastatempe mi konis la ekologiiston Zou Yi, kiu ekde 2013 ĉiutage fotas la ĉielon de la ĉefurbo de Ĉinio. Liaj fotoj, samkiel la historia serio de datumoj pri aerkvalito en Pekino, pruvas, ke estis reduktita je 66% la averaĝa denseco de PM2.5 dum ĉi tiuj dek jaroj. Zou komencis ĉi tiun laboron kun la celo dokumenti la evoluon de aerkvalito tra la jaroj, kaj nun li fieras vidi la progreson atingitan dum jardeko.
+
+Ni kune iris al la distrikto Daxing por viziti unu el la multaj centraloj, kiuj vintre provizas la hejtad-sistemon de la urbo. La vaporkaldrono, antaŭe hejtita per bruligo de karbo, nun funkcias per tergaso. Kiel rezulto, 70% de la areo de la centralo, antaŭe bezonata por karbostokado por tuta vintro, estis disponigita por alispecaj uzoj kaj transformita en servocentron por la loka komunumo, kun restoracio, butikoj, superbazaro, kulturdomo kaj sportejo, alportante pliajn avantaĝojn al la loĝantoj de tiu areo.
+
+Pekino plenumis sian promeson kaj okazigis la Vintrajn Olimpikojn kaj Paralimpikojn sub blua ĉielo. La ludoj finiĝis, sed la blua ĉielo daŭras.
+
+Verkis: Rafael Henrique Zerbetto
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Glaciigitaj branĉoj formis pejzaĝojn ĉe Songhua-rivero
+
+**Published:** 2023-01-31
+
+**URL:** http://esperanto.china.org.cn/2023-01/31/content_85081915.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 30-an de januaro multaj homoj estis allogitaj al Songhua-rivero, Jilin-provinco de nordorienta Ĉinio, por spekti la pejzaĝojn formitajn de glaciigitaj branĉoj.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Virina drakdanco en Zhejiang de Ĉinio
+
+**Published:** 2023-02-03
+
+**URL:** http://esperanto.china.org.cn/2023-02/03/content_85086743.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Por bonvenigi la Lanternan Feston en la dekunua tago de la unua monato laŭ la ĉina tradicia lunkalendaro, komenciĝis la drakdanco farita de virinoj akompanata de sonoj el gongoj kaj tamburoj en Yaokou-vilaĝo, Hangzhou-urbo, Zhejiang-provinco, sudorienta Ĉinio. La drako de la drakdanco estas formita de kunligitaj pli ol 50 benkoj, kiuj estas tenitaj kaj levitaj de vilaĝaninoj.
+
+Tia drakdanco, kun historio de pli ol 200 jaroj, estas nemateria kultura heredaĵo de la urbo. Ĝi esprimas bondezirojn de la popolo por bona rikolto.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Glacia kaj neĝa turismo en Harbino
+
+**Published:** 2023-02-03
+
+**URL:** http://esperanto.china.org.cn/2023-02/03/content_85087264.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Lastatempe, Songhua-rivero en Harbino de Heilongjiang-provinco altiris grandan nombron da turistoj. La glaciiĝinta areo de la rivero formis kristalajn blokojn kaj estas kromnomita de turistoj kiel "diamanta maro". Ĝi fariĝis nova turismejo, alportanta bonan efikon sur ekonomio.
+
+Redaktoro: Sheng Min
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Luno kaj lanternoj: mirinda duopo!
+
+**Published:** 2023-02-09
+
+**URL:** http://esperanto.china.org.cn/2023-02/09/content_85097133.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La Lanterna Festo, kiun ĉinoj celebris la 5-an de februaro ĉi-jare, estas la 15-a tago post la novjaro, laŭ la tradicia ĉina lunkalendaro. Ĝi ankaŭ markas la unuan plenlunon de la jaro, kiam lanternoj brilas surtere kaj luno brilas sur la ĉielo. Kune ili kreas belajn kaj romantikajn scenojn.
+
+Plena luno sur la ĉielo miksiĝas kun rondaj ĉinaj lanternoj dum la Lanterna Festo.
+
+Lumo de plenluno miksiĝas kun tiu de ĉinaj lanternoj dum la Lanterna Festo.
+
+Luno brilas super lanterno en formo de lotuso dum la Lanterna Festo.
+
+Plenluno inter tradiciaj bambuaj lanternoj dum la Lanterna Festo
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Belega malsekejo en Fujian, Ĉinio
+
+**Published:** 2023-02-15
+
+**URL:** http://esperanto.china.org.cn/2023-02/15/content_85107534.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+En lastaj jaroj, la provinco Fujian de suda Ĉinio plie investis en protektado de malsekejoj. La investa monsumo inkludas kompenson al loĝantoj de malsekeja regiono, monpagon al rebonigo de malsekeja medio kaj tiel plu. Lokaj malsekejoj revenis en bona stato kaj ilia ekologia efiko reaperis.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Neĝo sur la Granda Muro
+
+**Published:** 2023-02-15
+
+**URL:** http://esperanto.china.org.cn/2023-02/15/content_85107981.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 12-an de februaro neĝis en Pekino. En la montaro norde de la urbo, kie troviĝas la Granda Muro, neĝo estis pli intensa kaj kovris la Grandan Muron, kreante belajn pejzaĝojn, kiuj miris la vizitantojn.
+
+Neĝo falas sur turistoj vizitantaj la Grandan Muron en Pekino.
+
+Viro sur ŝoseo transiras la Grandan Muron en Pekino.
+
+La Granda Muro kovrita de neĝo
+
+Neĝulo farita de turistoj sur la Granda Muro
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Realeco: debuta albumo de Mikel Klav'
+
+**Published:** 2023-02-20
+
+**URL:** http://esperanto.china.org.cn/2023-02/20/content_85116748.htm
+
+**Categories:** E
+
+Kvankam lanĉita ĉijare, tamen la albumo
+
+Realeco
+
+de Mikel Klav' vekis en mi nostalgion pri la jaro 2015. Tiam okazis la Brazila Kongreso de Esperanto en la urbo Rio-de-Ĵanejro, kaj dum arta vespero loka junulo kun sia klavaro supreniris la podion por prezenti al ni sian muzikon. Tiam mi ekkkonis Mikel Klav', kiu kaŭzis tre bonan impreson en la publiko.
+
+La voĉo de Mikel milde sonas, kvazaŭ flustro, kaŭzante senton de trankvileco al la aŭskultanto, dum lia melodio, kvankam foje ĝi sonas banala, tamen alifoje ĝi sonas unika.
+
+"Diferencoj", la unua kanzono de la albumo, havas ordinaran rokenrolan melodion agrablan kaj ĝojigan, eĉ esperigan, kaj la teksto traktas pri la diferencoj inter la homoj kaj la graveco kunvivi en paco kaj harmonio.
+
+"Brila Stelo" estas la kanzono de Mikel Klav' kiu plej impresis min dum tiu koncerto en 2015. Ĝia melodio restis en mia kapo dum longa tempo post kiam mi aŭskultis ĝin unuafoje. Cetere ĝi omaĝas Esperanton.
+
+"Realeco", kiu donas titolon al la albumo, invitas homojn ŝanĝi propran sintenon pri la vivo kaj la mondo, kaj estas alia kanzono aparte rimarkinda de tiu ĉi albumo.
+
+"Aerobus" estas alia kanzono kiun mi memoras, de tiu agrabla vespero en 2015. Ĝi estas inspirita de la libro
+
+Nia Hejmo
+
+, kiu priskribas la ekziston de veturilo nomita aerobuso en la spirita mondo.
+
+"Senbrida Mondo" miksas elektronikan kaj nov-eraan muzikstilojn kaj traktas problemojn de la nuntempa socio.
+
+"Mia Idolo Ĉarli Ĉaplin (Karleto Estas...)" estas omaĝo al la fama aktoro kaj lia rolo Karleto, kiuj profunde markis la historion de kinarto. La kanzono estas inspirita de Esperanta renkontiĝo, kiam Mikel spektis samideaninon Tania Paixão ludi la rolon de Ĉarli Ĉaplin.
+
+La lasta kanzono "Ŝanĝo de l' Sezonoj" rezultas de la pandemio de KOVIM-19, kiam multaj homoj perdis siajn familianojn, sed fokusiĝas pli amplekse pri la perdo de amataj personoj.
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de la kantoj kaj aĉeti la bitalbumeton:
+
+https://www.vinilkosmo-mp3.com/eo/popo-roko-hiphopo-elektronik/mikel-klav/1-realeco.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe
+
+https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+Verkis Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Henan: Ekpompis umefloroj
+
+**Published:** 2023-02-21
+
+**URL:** http://esperanto.china.org.cn/2023-02/21/content_85118368.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Venas printempo, ankaŭ pompas floroj. En la provinco Henan ekfloris umefloroj allogante turistojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# NKH丨Lanzhou-stila skulptado sur kalabasoj
+
+**Published:** 2023-02-23
+
+**URL:** http://esperanto.china.org.cn/2023-02/23/content_85123981.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Skulptado sur kalabasoj estas tipa manarto de la urbo Lanzhou de la provinco Gansu de Ĉinio. Per tranĉilo aŭ nadlo, la metiisto skulptas sur kalabaso desegnojn aŭ kaligrafaĵojn. Laŭ tempopaso, tiu metiarto akiris apartajn teknikajn trajtojn en Lanzhou kaj pro tio fariĝis aparte valora.
+
+Kalabasoj malsamformaj povas esti uzataj por tiu mamarto.
+
+Tiu ĉi verko konsistas el 300 ĉinaj poemoj gravuritaj sur kalabaso.
+
+Tiu ĉi verko miksas kaligrafion kaj bildojn.
+
+Pejzaĝo inspirita de la antikva Silka Vojo estas gravurita sur kalabaso.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Birdoj bonvenigas printempon
+
+**Published:** 2023-02-24
+
+**URL:** http://esperanto.china.org.cn/2023-02/24/content_85126252.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Venas la printempo, ĉe la protektejo de birdoj en Lushan-gubernio, Pingdingshan-urbo, Henan-provinco, Ĉinio, birdoj kaj pepas kaj flugas sub la fono de verdaj branĉoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hubei: Kajtoj flugas en printempo
+
+**Published:** 2023-02-28
+
+**URL:** http://esperanto.china.org.cn/2023-02/28/content_85133268.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Dank' al varmeta vento en printempo, homoj turismas kaj flugigas kajtojn ĝuante printempajn pejzaĝojn en turismejo de Hubei-provinco, Ĉinio.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# UK 2024 okazos en Aruŝo, Tanzanio
+
+**Published:** 2023-03-02
+
+**URL:** http://esperanto.china.org.cn/2023-03/02/content_85138006.htm
+
+**Categories:** E
+
+Por la 109-a Universala Kongreso de Esperanto (UK), okazonta en 2024, la estraro de UEA unuanime elektis Tanzanion kiel kongreslandon. La unuan fojon UK okazos en la kontinento Afriko. La gastiga urbo Aruŝo estas internacia turisma destino, sed ne nur: ĝi ankaŭ estas grava diplomatia urbo, la sidejo de la Orient-Afrika Komunumo kaj de la Afrika Kortumo de Afrika Unio.
+
+La regiono de Aruŝo loĝigas pli ol 2 milionojn da homoj. Ĝi troviĝas je la orienta branĉo de la Granda Rift-valo sub modera klimato. La granda urbo estas proksima al la nacia parko Serengeti, la konservada areo Ngorongoro, la nacia parko Lago Manyara, la gorĝo Olduvai, la nacia parko Tarangire, la monto Kilimanĝaro kaj la monto Meru en la nacia parko Aruŝo mem.
+
+La Esperanto-asocio de Tanzanio (EATA) invitis kongresi en Aruŝo post multjara laboro de la Afrika Komisiono de UEA, kiu plenumis la taskon kunordigi la landajn asociojn en la kontinento por difini la gastiganton de la unua UK en Afriko. La kunlaboro estis multhoma kaj internacia. Per tiu decido ankaŭ la estraro de UEA plenumas devon de la asocio, kiu en la pasinta jardeko deklaris la okazigon de UK en Afriko kiel strategian elementon por UEA.
+
+La asocio kunlaboros kun la lokaj aktivuloj por fikisi la datojn, lokan kongresan komitaton, temon kaj aliajn detalojn de la 109-a UK. La kongresejo estos la Aruŝa Internacia Kunveneja Centro, altnivela loko por internaciaj eventoj, kiu jam gastigis eventojn de UN. La Kongresa Fako kaj la estraro de UEA ankaŭ kunlaboros kun ĉiuj partioj koncernataj de la okazigo de la UK, ĉu de la Esperanto-movado, ĉu de lokaj instancoj en Tanzanio. Jam eblas subteni la 109-an UK-on per donaco al la Fondaĵo Afriko de UEA:
+
+uea.org/alighoj/donacoj/afriko
+
+.
+
+Indas ankaŭ aliĝi al la 108-a UK okazonta en 2023 en Torino, kiu devos kalkuli je speciala partopreno de tanzanianoj:
+
+uk.esperanto.net/2023
+
+. La nuna favorpreza aliĝperiodo finiĝas en la 31-a de marto 2023.
+
+Redaktis Rafael Henrique Zerbetto
+
+Fonto: Gazetaraj Komunikoj de UEA
+
+El Popola Chinio
+
+
+---
+
+# Jiangxi: Antikva vilaĝo en printempo
+
+**Published:** 2023-03-03
+
+**URL:** http://esperanto.china.org.cn/2023-03/03/content_85135061.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La antikva vilaĝo Bailu situas en la urbo Ganzhou de la provinco Jiangxi, Ĉinio. En printempo ĝia aparta ĉarmo prezentiĝas kiel klasika poemo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hunan: Pompas floroj en printempo
+
+**Published:** 2023-03-03
+
+**URL:** http://esperanto.china.org.cn/2023-03/03/content_85135089.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Printempo komenciĝis. En diversaj lokoj de Hunan-provinco, suda Ĉinio, ekpompis floroj allogante turistojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Veturanta trajno trans kolzfloroj
+
+**Published:** 2023-03-04
+
+**URL:** http://esperanto.china.org.cn/2023-03/04/content_85135139.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+En printempo kolzoj komencis floradi, trajnoj trapasas tiajn pejzaĝojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Huaneng-a Pingliang-a Karbocentralo en Gansu
+
+**Published:** 2023-03-06
+
+**URL:** http://esperanto.china.org.cn/2023-03/06/content_85147975.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Elektro kaj hejtado estas bezonataj por homa vivo kaj ekonomia disvolvado, kaj Huaneng-a Pingliang-a Karbocentralo en la urbo Pingliang de Gansu-provinco, nordokcidenta Ĉinio, provizas kaj hejtadon kaj elektron al la urbo. Profite de la elektro produktita de ĝi, industria parko estis konstruita ĉirkaŭ la centralo, kontribuante por la urba disvolvado. La centralo estis reformita kaj alprenis la plej novajn teknikojn por altigi la efikecon de elektrogeneratoroj kaj redukti karbon-emisiado al preskaŭ nulo, kongrue kun ĉiuj mediprotektaj normoj de la lando.
+
+La karbocentralo
+
+Laboristoj monitoras funkciadon de la karbocentralo.
+
+La unua el la ses generatoroj
+
+Ene de la centralo
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Floroj en la pitoreskejo Fenghuangling de Pekino
+
+**Published:** 2023-03-13
+
+**URL:** http://esperanto.china.org.cn/2023-03/13/content_85165473.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La 12-an de marto la pitoreskejo Fenghuangling (Feniksa Monto) de Pekino ricevis multajn vizitantojn. Tie nun pompas floroj, inter ili persikfloroj, kiuj igas la lokon tre bela. Floroj kovras la montaron kaj beligas eĉ pli la pitoreskejon.
+
+Blankaj kaj rozkoloraj floroj pompas sur monto.
+
+Floroj kontrastas kun ĉina paviliono.
+
+Vizitantoj promenas ĉe floroj en la pitoreskejo Fenghuangling.
+
+Floroj en la pitoreskejo Fenghuangling
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Kunming: Ĝis venontjare, ridmevoj!
+
+**Published:** 2023-03-14
+
+**URL:** http://esperanto.china.org.cn/2023-03/14/content_85167410.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Pli kaj pli altiĝas la temperaturo en la urbo Kunming, Yunnan-provinco de Ĉinio. Ridmevoj kiuj trapasas vintron ĉiujare en la urbo komencis reveni norden. Turistoj kolektiviĝas ĉe Dianchi-lago por nutri kaj adiaŭi la birdojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kongtong-monto en Gansu
+
+**Published:** 2023-03-14
+
+**URL:** http://esperanto.china.org.cn/2023-03/14/content_85167653.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Kongtong-monto troviĝas en la urbo Pingliang de la provinco Gansu, nordokcidenta Ĉinio. Ĝi estis referencpunkto de la antikva Silka Vojo, kun sia pinto alta je 2 123 metroj. Ekde 1994, Kongtong-monto estas 5A-nivela turismejo, kun pluraj naci-nivele protektataj antikvaĵoj, inter ili aro da arkitekturaj verkoj. Ĝi troviĝas en pluraj listoj de dek plej vizitindaj turismejoj en Ĉinio, inkluzive de la "dek ĉefaj turismejoj pri taŭismo" kaj "dek ĉefaj religiaj montoj de Ĉinio".
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Hubei: Klarega rivero en pitoreskejo
+
+**Published:** 2023-03-15
+
+**URL:** http://esperanto.china.org.cn/2023-03/15/content_85169278.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+En la pitoreskejo Pingshan de Enshi-a Tuĝja-a kaj Mjaŭ-a Aŭtonoma Subprovinco, Hubei-provinco de Ĉinio, troviĝas klarega rivero, sur kiu boatoj kvazaŭ flosas en aero.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Anhui: Nubmaro sur montoj
+
+**Published:** 2023-03-15
+
+**URL:** http://esperanto.china.org.cn/2023-03/15/content_85169292.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La 14-an de marto aperis nubmaro sur Shitan-vilaĝo de Huangshan-urbo, Anhui-provinco de Ĉinio, la duonkovreco plie beligis lokajn montarajn pejzaĝojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Verda energio kaj industria disvolvado: ekzemplo de Gansu
+
+**Published:** 2023-03-18
+
+**URL:** http://esperanto.china.org.cn/2023-03/18/content_85176753.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La politiko reformo kaj pordmalfermo, oficiale lanĉita en 1976 de la tiama predizanto Deng Xiaoping, ebligis rapidan industrian disvolvadon al Ĉinio, tiel ke post kelkaj jardekoj la lando jam estis produktanta plejparton de la konsumcelaj varoj en la mondo.
+
+Likva Suno: Ĉinio aplikas sunenergion al kemia industrio
+
+Sed tio ankaŭ havis koston: sen mono por investi en puraj energifontoj, Ĉinio bezonis bruligi karbon por provizi elektron al sia rapide disvolviĝanta industrio. Antaŭ jardeko, multaj ĉinaj urboj ankoraŭ havis severe poluitan aeron, kio malbone efikis sur homa sano kaj vivkvalito.
+
+Alia problemo de tiu modelo de disvolvado estas, ke ĝia eksportocela naturo favoris konstruadon de grandaj industriaj zonoj en orienta Ĉinio, proksime al la marbordo, por faciligi eksportadon per havenoj. Rezulte de tio, pligraviĝis diferencoj inter orienta -- pli kaj pli riĉa -- kaj okcidenta parto de la lando.
+
+Por solvi tiujn du problemojn, Ĉinio alprenis ampleksan strategion kiu entenas, interalie, transiron al puraj energifontoj, industria disvolvado de centr-okcidenta Ĉinio kaj fokuso sur kvalito anstataŭ kvanto. Efektivo de tiu strategio postulas solvadon de aliaj du praktikaj problemoj.
+
+Huaneng-a Pinliang-a Karbocentralo: pli da efiko kaj malpli da poluado
+
+La unua estas la grandegaj investoj en infrastrukturo bezonataj por certigi glatan funkciadon de provizĉenoj kaj distribuado de produktoj el la landinterno, kaj tio ankaŭ postulas esploradon de novaj itineroj por surtera transportado, el kio rezultis la rapida ekspansio de ĉina fervoja reto kaj la esplorado de itineroj por internacia komerco tra Centra Azio, lige kun la estigo de ĉin-eŭropa kargotrajno kaj la investoj en centrazia infrastrukturo pere de la iniciato "La Zono kaj Vojo".
+
+La dua estas la disvolvado de nova industria modelo, kongrua kun la novaj mediprotektaj leĝoj kaj normoj de Ĉinio kaj bazita sur novigo, aŭtomatigo, alt-tekniko kaj novaj energifontoj. La defio estas eĉ pli granda pro la du karbonaj celoj de Ĉinio: atingi la pinton de karbonemisiado antaŭ la jaro 2030 kaj karbonneŭtraliĝon ĝis la jaro 2060.
+
+La provinco Gansu, nordokcidenta Ĉinio, fariĝis grava ekzemplo de la sukceso de tiuj novaj politikoj: ĝi havas grandegan potencialon por sunenergio kaj ventenergio, sed pro la distanco al grandaj industriaj urboj de la pasinteco, tiu potencialo estis apenaŭ uzata. En la lastaj jardekoj, tiu situacio ekŝanĝiĝis pro la translokiĝo de industrioj al Gansu.
+
+Fabriko en Lanzhou-a Novarea Industria Parko
+
+Bona ekzemplo estas Lanzhou-a Novarea Industria Parko, konsiderata "ekzempla zono pri kolektiĝo de translokigitaj industrioj". Kun areo de 150 kvadrataj kilometroj, la parko fokusiĝas sur kvar ŝlosilaj industrioj: ekspansio de petrolkemia industrio, fajnaj kaj specialaj kemiaĵoj, novaj materialoj kaj post-procesado de materialoj.
+
+Tie disvolviĝas la projekto Likva Suno. Ĝi estas la unua ekzempla projekto de Ĉinio pri uzo de sunenergio por sintezi metanolon per hidrogenigo de karbondioksido. Tiu teknologio estas grava paŝo por ke kemia industrio - enlande kaj eksterlande - estu malpli dependa de brulaĵoj.
+
+En la sama industria parko troviĝas fabriko de alt-rendimentaj kupraj folioj de la kompanio limigita Gansu-a Hailiang-a Novenergiaj Materialoj. Tiuj folioj, malpli dikaj ol haro, estas uzataj en baterioj de elektraj aŭtoj, kiuj kontribuas por redukti poluadon en ĉinaj urbegoj. La produktado de la folioj estas aŭtomate farata de maŝinoj protektitaj kontraŭ polvo.
+
+Virino laboras en oficejo por negocado de prikarbonaj servoj de State Grid Corporation en la urbo Pingliang.
+
+Sed necesas atenti, ke sun- kaj vent-energio havas malavantaĝon rilate al termoenergifontoj: intenseco, kaj eĉ manko, de vento aŭ sunlumo estas naturaj fenomenoj, kiujn homoj ne kontrolas, dum bruligo de fuelo permesas al homoj kontroli elektrogeneradon laŭbezone. Pro tio, ni estas iugrade dependaj de tiaj energifontoj.
+
+Bona novaĵo estas, ke nuntempaj termoelektraj centraloj estas pli efikaj kaj malpli poluaj. La elektro uzata en Pingliang-a Industria Parko (Alt-teknika Zono) estas provizata ĉefe de Huaneng-a Pinliang-a Karbocentralo, kiu ankaŭ provizas hejtadon al la urbocentro. Post reformo, karbonemisiado estis signife reduktita, kreskis la efikeco de la reaktoroj kaj la centralo disvolvis programon pri ŝparado kaj reuzo de akvo.
+
+Por helpi Ĉinion atingi la du karbonajn celojn, la firmao State Grid Corporation estigis en Pingliang la unuan oficejon por negocado de prikarbonaj servoj en nordokcidenta Ĉinio. La oficejo fokusiĝas sur individuaj homoj kaj ankaŭ mal- kaj mezgrandaj entreprenoj, donante al ĉiuj la eblecon kontribui por la du karbonaj celoj kaj profiti de tio.
+
+La sperto de Gansu montras, ke Ĉinio ne nur survojas al plenumo de la du karbonaj celoj, sed ankaŭ disvolvas teknikojn kaj praktikojn, kiuj povas helpi aliajn landojn atingi karbonneŭtralecon.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Festado de "naskiĝo de flora diino"
+
+**Published:** 2023-03-21
+
+**URL:** http://esperanto.china.org.cn/2023-03/21/content_85179577.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 18-an de marto okazis festado por la "naskiĝo de flora diino" en Guangxi-a Ĝŭang-a Aŭtonoma Regiono en sudokcidenta Ĉinio. Por la festado oni surhavigis
+
+hanfu
+
+-kostumojn laŭ la tradicia kulturo de han-etno por pli profunde sperti la antikvan vivon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Fujian: Drakboata remkonkurso
+
+**Published:** 2023-03-23
+
+**URL:** http://esperanto.china.org.cn/2023-03/23/content_85179596.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 18-an de marto 12 drakboataj teamoj el distriktoj kaj gubernioj sub Fuzhou-urbo de Fujian-provinco partoprenis en remkonkurso sur la rivero Liuhua. En la lastaj jaroj la urbo okazigas drakboatajn remkonkursojn, ludojn de surakvaj sportoj kaj aliajn kulturajn aktivadojn por prezenti la ĉarmon de la mont-akva urbo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kolzaj floroj oras kampojn
+
+**Published:** 2023-03-23
+
+**URL:** http://esperanto.china.org.cn/2023-03/23/content_85179616.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Lastatempe, ekpompis kolzaj floroj en Youyang-a Tuĝja-a kaj Mjaŭ-a Aŭtonoma Gubernio de Chongqing. La floroj oras la kampojn formante kun trankvilaj vilaĝoj allogajn pejzaĝojn en printempo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Komparo de pasinteco kaj estanteco: Kiel Guangxi "naturigis" forlasitajn minejojn?
+
+**Published:** 2023-03-24
+
+**URL:** http://esperanto.china.org.cn/2023-03/24/content_85182448.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Forlasitaj minejoj, senŝirmaj ŝtonegoj... ili estas kvazaŭ "cikatroj" sur la vizaĝo de la tero. Ekde 2016, Guangxi-a Ĝŭang-a Aŭtonoma Regiono, sudokcidenta Ĉinio, pliigis la mediprotekton kaj rebonigon de montoj, riveroj, arbaroj, kampoj, lagoj kaj herbejoj. La unua stadio de la projekto rebonigis ĉirkaŭ 25 kvadratajn kilometrojn da forlasitaj minejoj.
+
+Diandeng-monto en Long'an-gubernio estis kalkŝtona minejo. Troviĝis rokoj sur la monto kaj ŝtonoj falis ofte, tio igis ĝin danĝera kaj homoj ne kuraĝis alproksimiĝi. En 2019, la loka registaro komencis rebonigon de areo kun ĉirkaŭ 95 000 kvadrataj metroj. Nun Diandeng-monto fariĝis ĝardeno por lokanoj, kaj ĝi ne nur havigas spacon por popola aktivado, sed ankaŭ realigas la daŭripovan evoluon de forlasitaj minejoj.
+
+La projekto de la urbo Hezhou, kiu temas pri futbala urbeto, kovras terareon de tri iamaj minŝtonaj konservejoj forlasitaj antaŭ pli ol 20 jaroj. Projekto por elimini eblajn danĝerojn kaj rebonigi la medion komenciĝis en 2017. Post 5-jara laborado, la unua stadio estis finita, kaj la urbeto jam gastigis futbalajn konkursojn de la vira junulara futbalturniro de Ĉinio kaj la Pokalo de Ĉina Futbala Asocio.
+
+Keda-monto de Hezhou-gubernio estis dezerta loko ĉe forlasita minejo. En 2018 oficiale efektiviĝis la projekto de la urbo; dank' al tio en la loko multiĝis kultivebla kampo je ĉirkaŭ 1.8 kvadrataj kilometroj, kio efike utiligas la valoran terresurson kaj realigis samtempan gajnon de ekologio, socio kaj ekonomio.
+
+Ĉe Bachi-rivero en Nanning-urbo, la iama polvoplena ŝtonminejo fariĝis mineja ĝardeno. En 2016, dezajnistoj faris rebonigon al loka medio kun diverseco kaj kreemo utiligante ekzistantajn min-klifojn, kanjonojn, profundajn akvejojn kaj industriajn heredaĵojn, kio formis vidindaĵojn kunfanditajn de industria memoro kaj loka karaktero. La loko fariĝis la gastigejo de la 12-a Ĉina (Nanning-a) Internacia Hortikultura Ekspozicio, kaj nun funkcias kiel turismejo.
+
+Similaj sukcesaj kazoj de media rebonigo daŭre okazas en multaj lokoj de Guangxi. Dum la periodo de la 14-a Kvinjara Plano, Guangxi plenumos tian laboron al forlasitaj minejoj kun totala terareo de 159 kvadrataj kilometroj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# 14-a Ĉina Kongreso de Esperanto signifoplena kaj fruktodona
+
+**Published:** 2023-03-27
+
+**URL:** http://esperanto.china.org.cn/2023-03/27/content_85194352.htm
+
+**Categories:** E
+
+La 14-a Ĉina Kongreso de Esperanto okazis en la 25a de marto. Ĝi estis mallonga tamen fruktodona kunveno. Post la solena inaŭguro kaj tagmeza paŭzo, la novelektitaj komitatanoj okazigis la unuan kunvenon pri laborplanoj.
+
+Inter la membroj de la komitato estas eminentuloj de diversaj fakoj el diversaj lokoj de Ĉinio, la strukturo de la komitato fariĝis pli optimuma kaj juneca. Estis varmaj diskutoj kaj profundaj interŝanĝoj en la komitata kunveno. Wang Hanping, vicprezidanto de la Ĉina Esperanto-Ligo (ĈEL) kaj vicdirektoro de la Azi-Pacifika Centro de la Ĉina Internacia Komunika Grupo (ĈIKG), faris projekton pri la laboroj de la nova komitato. Chen Ji, ĝenerala sekretario de ĈEL, deklaris la gravajn laborojn plenumotajn de la ligo en 2023.
+
+Tuj post la kunveno, la komitatanoj kaj esperantistoj el diversaj rondoj koncentriĝis sur diskutado pri aplikado de Esperanto en malsamaj fakoj. La kongreso havis tri forumojn laŭ la fakoj de instruado, komerco kaj junularo, kaj ankaŭ forumon por prezidantoj kaj sekretarioj de lokaj E-asocioj.
+
+Samtempe okazis la kvar forumoj. En la junulara forumo, kun plej multe da ĉeestantoj, junaj esperantistoj varme diskutis, kiel antaŭenigos Esperanton en junularon en la nova epoko. La foruma prezidanto diskonigis bazajn informojn pri la ĉina E-movado, kiel funkcioj de ĈEL, la Ĉina Junulara Esperanto-Asocio, la Tutmonda Esperantista Junulara Organizo (TEJO), kio estas KS (Komuna Seminario) kaj estontaj programoj por junaj esperantistoj. La gejunuloj diskutis pri la lingvo mem, ĝia granda idealo por egaleco kaj monda paco kaj ĝia rolo en kulturaj interŝanĝoj kaj internacia komunikado. Ili, spertante la lernadon de la lingvo, babilis pri ĝia pozitiva efiko sur scipova plivastigo. Esperanto povas helpi homojn koni fremdajn kulturon kaj eĉ la tutan mondon, indas plie diskonigi ĝin laŭ malsamaj manieroj kiel videaĵoj kaj per aplikaĵoj ŝatataj de junularo.
+
+En la junulara forumo
+
+En la forumo por E-komercistoj
+
+En la forumo por E-instruistoj
+
+En la forumo por E-komercistoj, Zhang Changsheng, prezidanto de Changzhou-a Esperanto-Asocio, unue diris pri la situacio de esperantista komercado. Li diris, ke la ĉina E-movado iagrade direktas disvolviĝon de la monda E-movado, samkiel en la komerca kampo. Pri la laboroj de komercista fako de ĈEL, li diskonigis la semajnfinan interretan kunvenon kaj invitis esperantistojn ĉeesti la baldaŭan komencontan kunvenon, en kiu tanzania esperantisto klarigos gastigon de la venontjara UK en Afriko. Sekve, Xie Longfei, An Deshun, Sun Shoude, Li Jiaquan, Zhao Yunfeng kaj aliaj diskonigis siajn spertojn en la kampoj de internacia komercado, novaj teknikoj, Esperanta arbaro kaj tiel plu.
+
+En la forumo por E-instruistoj, kiun prezidis Wei Yubin, direktoro de la elementa lernejo Baiyangshujie en Taiyuan-urbo de Shanxi-provinco, ĉinaj esperantistoj, kiuj havas spertojn instrui en lernejo, diskutis pri edukado de Esperanto en varma etoso. Yu Jianchao, kontrolisto de ĈEL kaj prezidanto de la Pekina Esperanto-Asocio, parolis pri Esperanto-sumoo, legado de Esperantaj libroj, kio daŭris inter ĉinaj esperantistoj de majo ĝis novembro de 2020, kun samtempa okazigo de interretaj diskutadoj pri nekonataj vortoj kaj gramatiko, kaj partoprenantoj rimarkis la altiĝon de sia lingva nivelo. En 2022, sume 36 kunvenoj okazis kaj solvis diversajn demandojn de komencantoj, la temo ne nur koncernis al legaĵoj, sed ankaŭ tuŝis la sciojn pri Esperanta kaj fremdaj kulturoj. Sekvante ŝin, Liu Minghui, prezidanto de Jilin-a Esperanto-Asocio, diskonigis pri la efika sperto akirita en sia asocia aktivado, tio estas persistemo en ĉiuĵaŭda E-libra legado, de 19:30 ĝis 22:00. La legado kaj jam okazis 46-foje. La asocio celas, per komuna legado, altigi la lingvan nivelon de ĉinaj esperantistoj, ĉar en la lando mankas la lingva medio, sekve tia longdaŭra legado ja povas helpi. Krome, trejni kaj multigi altnivelajn E-instruistojn estas urĝe solvenda problemo por nia esperantistaro. En la forumo oni kaptis la ŝancon proponi kompiladon de Esperanta vortaro de verboj. Ankaŭ Alessandra Madella, itala esperantisto, partoprenis la diskutadon.
+
+En la forumo por prezidantoj kaj sekretarioj de lokaj E-asocioj, esperantistoj aktive parolis pri sia volo helpi ĈEL okazigi lokajn E-aktivadojn. Unu el la novaj laborplanoj temas pri kunagoj inter lokaj E-asocioj, kaj ĈEL povas funkcii kiel platformo por trejni lokajn aktivulojn. Kaj, lokaj registaroj povas helpi, subteni E-movadon, kiu alkondukas ekonomian efikon al la socio. Menciinde estas, ke en la forumo la hubei-a asocio anoncis sian volon gastigi la 15-an tutlandan kongreson en la urbo Huangshi.
+
+Akirinte tiom da fruktoj, komenciĝis la ferma ceremonio de la 14-a Ĉina Kongreso de Esperanto posttagmeze de la 25a de marto. Zhang Mingyue, reprezentante esperantistan junularon, faris parolon la unua. Ŝi menciis pri la opinioj de junaj esperantistoj, ke Esperanto helpas interkomprenon kaj kungajnon. Laŭ ŝi, Esperanto estas internacieca kulturo, junuloj devas ludi sian rolon pionire konduki la internacian lingvon en la publikon, interesigi homojn per videaĵoj kaj diskonigi siajn spertojn per la lingvo.
+
+Wei Yubin diris, ke kun la ĉeftemo "instrui Esperanton en lernejoj", la instruistoj atingis interkonsenton, ke oni devas vastigi sian kampon de reta instruado kaj ekzercado surbaze de konservado al Esperanto en kampusoj. Indas pli multe zorgi nunan reformadon de leciona strukturo en lernejoj, esperantistigi pli da instruistoj por funkcii pli da Esperantaj aktivadoj por lernantoj kaj estas grave ludigi la rolon de interreta edukado.
+
+Zhang Changsheng emfazis la utilecon de Esperanto en komercado kaj kultura interŝanĝo. Li donis ekzemplojn de la 3-a Komuna Konferenco de Internacia Komerca kaj Ekonomia Federacio (IKEF) okazinta en Ulanbatoro de Mongolio, la daŭranta ĉiudimanĉa interreta kunveno por komercistoj kaj alifakaj esperantistoj kaj la komunikado inter ĉinaj esperantistoj kun iranaj, nepalaj kaj uzbekaj esperantistoj por kunlabori. Li diris, ke la plej grava afero por Esperanto estas ĝia praktikado, per Esperanto kunlabori kun fremdaj landoj, precipe tiuj laŭ la vojlinio de la iniciato "La Zono kaj Vojo", helpas ilin scii, koni kaj kompreni Ĉinion, kaj dum la procezo, ĉinaj komercistoj povas vidi la novajn konceptojn de alilandaj komercistoj, tio estas reciproka lernado.
+
+Sekve venis varmega etoso: premi-disdonado al eminentaj kontribuantoj kiel Ŝanhaja Esperanto-Asocio, Pekina Esperanto-Asocio, Xiamen-a Esperanto-Instituto, Xi'an-a Esperanto-Asocio, Hubei-a Esperanto-Asocio, Changzhou-a Esperanto-Asocio kaj 26 esperantistoj. Reprezentante la premiitoj, Zhou Tianhao kaj Zhang Yan faris paroladojn. Zhou Tianhao diskonigis pri siaj spertoj, kiel multigi junajn esperantistojn kaj kreskigi junajn komitatanojn en ŝanhaja asocio, kaj kia estis kaj estos la Esperanto-forumo inter Seulo kaj Ŝanhajo. Zhang Yan, nome de Shandong-a Esperanto-Klubo, faris paroladon ĉefe pri semado de Esperantaj semoj fare de Esperanta fako de Zaozhuang-a Universitato kaj ĝia esperantigo kaj eldonado de antikvaj ĉinaj klasikaĵoj.
+
+Chen Wenge, direktoro de la Azi-pacifika Centro de ĈIKG kaj vicprezidanto de ĈEL, faris resuman paroladon de la ferma ceremonio. Li diris, ke la nova prezidanto kaj nova komitato de ĈEL gvidos la antaŭenigon de la ligo laŭ la novamenditaj regularoj, kvankam la kongresa periodo estis mallongigita, tamen la efiko pliiĝis kaj la celon atingis sub atenta kaj precizeca aranĝado. ĈIKG zorgas la laborojn de ĈEL, kaj la ligo, kiel nodo kunligante novepokajn internaciajn komunikadojn kun interlandaj amikecaj kunagon, ludos pli gravan rolon en sia tempo per diskonigo, eldonado, komunikado kaj trejnado. La kongreso finiĝis en varma etoso kaj densa amikeco, kaj la kuranta jaro estas ŝlosila por la estonteco de ĈEL kaj ĉina E-movado, la misio estas honora, kaj la taskoj pezaj. ĈIKG, organizo kiu administras la aferojn de ĈEL, daŭre servos la ĉinan esperantistaron kaj strebos por konstrui la homaran komunumon de komuna estonteco.
+
+Sub la melodio de La Espero, finiĝis la kongreso. Partoprenantoj atendas venontfojan renkontiĝon kaj donos kontribuojn al la Esperanta afero.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Memorindaj momentoj en la 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-28
+
+**URL:** http://esperanto.china.org.cn/2023-03/28/content_85196392.htm
+
+**Categories:** E
+
+En la 24-a kaj 25-a de marto okazis en Pekino la 14-a Ĉina Kongreso de Esperanto. Tio estas la unua tutlanda reala kunveno por ĉinaj esperantistoj depost 2020. Partoprenantoj el 24 provincoj, municipoj kaj aŭtonomaj regionoj renkontiĝis en Pekino. La tutlanda kongreso unuafoje okazas en Pekino. Estas renkontiĝoj de malnovaj amikoj, konatiĝoj de novuloj kaj renkontiĝo de retumantoj, kiuj unuafoje vidis unu la alian eksterrete. Ni kune ĝuu la memorindajn momentojn de la kongreso.
+
+En la kongresejo:
+
+Revido de amikoj:
+
+Pretigo de la kongreso:
+
+Redaktoroj: Zhao Wenqi kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Inaŭguriĝis la 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-30
+
+**URL:** http://esperanto.china.org.cn/2023-03/30/content_85201453.htm
+
+**Categories:** E
+
+Antaŭtagmeze de la 25-a de marto solene inaŭguriĝis la 14-a Ĉina Kongreso de Esperanto en la domo de la Ĉina Internacia Komunika Grupo (ĈIKG) en Pekino.
+
+La kongreso, organizita de Ĉina Esperanto-Ligo (ĈEL), kun la temo "nova epoko, novaj taskoj kaj nova progreso" altiris 250 partoprenantojn en la kongresejo kaj 180 per videoligo. La inaŭguron ankaŭ videolige ĉeestis Duncan Charters, prezidanto de Universala Esperanto-Asocio (UEA). Pli ol 20 landaj kaj internaciaj Esperantaj organizoj kaj esperantistoj sendis salutmesaĝojn al la kongreso aŭ videe aŭ skribe, ekzemple Nishinaga Atushi nome de la Azi-Oceania Komisiono de UEA (KAOEM), Ahmad Reza Mamduhi de la Internacia Ligo de Esperantistaj Instruistoj (ILEI), Dominiko Simeone de la Sennacieca Asocio Tutmonda (SAT), kaj Kitagawa Ikuko de la Japana Esperanto-Instituto, So Jinsu (estrarano de UEA) de la Korea Esperanto-Asocio, Ángel Arquillos de Hispana Esperanto Federacio, Mireille Grosjean de la Svisa Esperanto-Asocio, Belo Horizonte de la Societo Esperantista de Minas-Ĵerajso (SEM) de Brazilo, Renato Corsetii (eksa prezidanto de UEA) kaj tiel plu. Ankaŭ partoprenis brazila kaj itala esperantistoj surloke. Menciinde estas, ke al la inaŭguro ĉeestis oficistoj de la Ĉina Ministerio pri Edukado, montrante zorgadon pri ĉi-flanka edukado de la registaro.
+
+Estas la unuafojo por Pekino gastigi tutlandan kongreson de Esperanto. En la kongreso, oni elektos novan estraron de ĈEL.
+
+Du Zhanyuan, prezidanto de ĈIKG
+
+La inaŭguro komenciĝis je 9:30, ĝin prezidis Yu Tao, vicprezidanto de ĈIKG kaj vicprezidanto de ĈEL. Du Zhanyuan, membro de la Konstanta Komitato de Ĉina Popola Politika Interkonsiliĝa Konferenco (ĈPPIK) kaj prezidanto de ĈIKG, la unua faris parolon. Li diris, ke Esperanto esprimas la komunan idealon de la homaro pri egaleco kaj amikeco, kunportante eternan celadon por pli bela mondo. Li esperas, ke la nova estraro de komitato de ĈEL kondukos tutlandajn esperantistojn resti fidelaj al la komenca misio de Esperanto-movado kaj misio de Esperanto-ligo, fokusiĝi sur pliigo de marka influo kaj voja novigo, profundigi kulturajn interŝanĝojn inter Ĉinio kaj aliaj landoj, por progresigi novigon kaj disvolvon de la Esperanta afero kaj akceli mondan pacon kaj disvolvadon. Junularo estas la estonteco kaj espero de Esperanto-movado. Oni devas havi longdaŭran konsideron kaj meti varbadon kaj trejnadon de junaj esperantistoj kiel strategian taskon de ĈEL. Necesas okazigi Esperantajn diskonigojn al diversaj sociaj rondoj, precipe al junaj lernantoj, kaj dissemi semojn de espero en aktivadoj. Indas konscie konduki kaj elekti pli da junuloj al la nova mandato de komitato kaj ĉiuj Esperantaj laboroj. Niaj lingvoniveloj estos altigitaj en praktiko, kaj ni havos pli da posteuloj en nia movado. Estontece ĈIKG mobilizos diversajn sektorojn, unuojn kaj eksterlandajn agentejojn ene de la grupo kaj invitos ĈEL partopreni aktivadojn de la grupo por doni helpon al disvolviĝo de ĈEL. Li esperas, kune kun ĉiuj esperantistoj, bazita sur la kerna platformo de la Azi-Pacifika Centro de la grupo, fari la plej grandan komunan forton por realigi novan progreson de la Esperanta afero kaj kontribui pli da saĝo kaj forto al disvastigo de la ĉina civilizacio kaj konstruado de la homara komunumo de komuna estonteco.
+
+Duncan Charters, prezidanto de UEA
+
+En sia salutparolo, kiu alte taksis la kongreson funkciante reale kaj videolige, kaj la laborojn de ĈEL kaj ĉinaj esperantistoj, sinjoro Duncan Charters diris: "La kongresa temo rekte tuŝas la nunan situacion de transiro al nova mondo kun novaj formoj de komunikado. Por la Nova Epoko, ja necesas Novaj Taskoj, kaj se ni sukcesos difini tiujn kaj agi laŭplane por atingi la novajn celojn, ni povas esperi la rezulton: Nova Progreso."
+
+Chen Haosu, ĝenerala konsilisto de Ĉina Esperanto-Ligo
+
+Sekve Chen Haosu, eksa prezidanto de ĈEL kaj ĝenerala konsilisto de la ligo, faris parolon. Li diris, ke la aspiro de Esperanto estas, komprenigi ĉiun per lingvo por unuigi la tutan homaron kaj paŝi al la evoluo kaj progreso de la mondo. La granda idealo proksime kongruas kun la revo de la ĉina popolo kaj ĉinaj komunistoj. Ankaŭ la koncepto de la progreso de homaj civilizacioj estas granda afero strebinda por ni, esperantistoj. Do, nur dum la laborado por konstrui la homaran komunumon de komuna estonteco, eblas realigi la idealon de esperantistaro.
+
+Chen Wenge, direktoro de la Azi-pacifika Centro de ĈIKG kaj vicprezidanto de ĈEL, deklaris la klarigojn de la regularoj de ĈEL. Tuj post la klarigo, la membroj faris ekzamenon al la amendoj de la Statuto de ĈEL, Administra Regularo por Membroj de ĈEL kaj Regularo pri Kotizkolektado por Membroj de ĈEL. La regularoj estis glate akceptataj kaj gajnis aprobojn de la membroj.
+
+Sekve, komenciĝis la voĉdonado al la nova komitato. La tutlanda kongreso okazas en ĉiu dua jaro, kaj la komitato estas reelektata en ĉiu kvara jaro. Pro la pandemio, la komitato travivis kvin jarojn kaj bezonas esti reelektita. Komitato estas pensbanko de ĈEL kaj decidanto kaj plenumanto de ĈEL. Ĝi ludas gravan rolon por la disvolviĝo de ĈEL. Por bone fari la elektadon, ĈEL serĉis taŭgajn daŭrigantojn por unu jaro, kaj finfine formiĝis la sugesta nomlisto de estranoj por la nova komitato. Ĝi estis elmetita al la 10-a konstanta komitato por diskuto en la 10-a de marto. La nomlisto havas multajn novajn vizaĝojn, inkluzivas multajn junajn esperantistojn kaj akceptas fortojn de diversaj sociaj rondoj. Antaŭ la malferma ceremonio oni jam disdonis la nomliston de kandidatoj por la nova komiato al ĉiuj ĉeestantoj kaj faris voĉdonadon. 157 membroj de la komitato kaj 47 konstantaj membroj de la komitato estis adoptitaj.
+
+Liu Dawei, vicprezidanto de ĈIKG, estis novelektita kiel prezidanto de ĈEL.La novaj vicprezidantoj estas Chen Wenge, Wang Hanping, Hu Kaimin, Wang Junxiao, Cao Shengqiang, Wang Danhui, Yang Huajie, Zhou Tianhao, Liu Haitao kaj He Ning. Chen Ji kaj Jiang Limin respondecas kiel ĝenerala sekretario kaj vicĝenerala sekretario de ĈEL.
+
+Liu Dawei, vicprezidanto de ĈIKG kaj novelektita prezidanto de ĈEL
+
+Ĉe la fino de la inaŭguro, Liu Dawei faris sian unuan parolon kiel nova prezidanto de ĈEL. Li diris, ke antaŭenigante uzon kaj diskonigon de Esperanto, ĈEL ĉiam ludas gravan rolon en diskonigo de Ĉinio al aliaj landoj kaj akcelado de kulturaj interŝanĝoj inter Ĉinio kaj aliaj landoj, kio estas organika parto de la internacia komunikado en la nova epoko kaj grava ponto por amikaj interŝanĝoj inter Ĉinio kaj aliaj landoj. Nun, Ĉinio iom post iom proksimiĝas al la centro de la monda scenejo, ĉe tiu nova historia starpunkto, ĈEL alfrontas senprecedencan disvolvan ŝancon. En la nova vojaĝo, ĈEL devas konscie surŝultrigi la mision de la epoko kaj kapti la historian ŝancon por klopodi al bonkvalita disvolvado de la Esperanta afero kaj ludi pli grandan rolon en konstruado de forta lando kaj reprosperiĝo de ĉina nacio. Nun, Esperanto-movado alfrontas pli kompleksajn internaciajn cirkonstancojn. Ni devas plene elvolvi la rolon de Esperanto kiel ponton en gravaj internaciaj kunvenoj kaj kulturaj kaj interpopolaj interŝanĝoj, por profundigi amikecon kaj akceli reciprokan konfidon inter ĉinaj kaj alilandaj esperantistoj kaj inter amikoj el diversaj rondoj en interŝanĝoj kaj interagoj kaj plani por feliĉigi la homaron.
+
+Liu Dawei diris, ke por estontaj laboroj, ni devas kombini lernadon kaj esploradon, fortigante la kondukan kapablon de la Esperanta teorio. ĈEL plenumos projekton pri trejnado de Esperantaj talentuloj kaj novigo, klopodos pri novigo de Esperantaj lernomaterialoj, fortigos Esperantan instruadon kaj diskonigon kaj plie solidigos kaj vastigos talentulan bazon de la Esperanta afero. ĈEL devas fari esploradon pri fundamenta teorio de Esperanto kaj internacia komunika teorio, kaj plifortigos kapablon por interpreti la konotacion de Esperanto kaj bone kompreni ĝian komunikan regularon. ĈEL kunigos koncernajn fortojn en diversaj rondoj kaj starigos Esperantan akademion kaj platformon altnivelan, profesian kaj aplikatan. Kun viglanima sinteno, firma decido, saĝo kaj forto el la vasta Esperantujo, ĈEL antaŭenigos ŝlosilajn taskojn, plibonigos sian propran konstruadon, restos fidela al sia origina intenco kaj marŝos antaŭen, por efektivigi novan transpason de la Esperanta laboro en la nova vojaĝo kaj fari novan kaj pli grandan kontribuon al pliigo de povo de disvastigo kaj influo de la ĉina kulturo kaj konstruado de la homara komunumo de komuna estonteco.
+
+Kunfotiĝo de ĉefaj membroj de la nova komitato de ĈEL
+
+Sukcese finiĝis la inaŭguro de la 14-a Ĉina Kongreso de Esperanto en tagmezo, ĉeestantoj iom ripozis kaj turnis sin al signifoplena diskutado en posttagmezo.
+
+Redaktoroj: Liu Zijia kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Pli ol 30 amaskomunikiloj raportis pri 14-a Ĉina Kongreso de Esperanto!
+
+**Published:** 2023-03-31
+
+**URL:** http://esperanto.china.org.cn/2023-03/31/content_85203653.htm
+
+**Categories:** E
+
+La 25-an de marto okazis en Pekino la 14-a Ĉina Kongreso de Esperanto, organizita de la Ĉina Esperanto-Ligo (ĈEL) kaj la Azi-Pacifika Centro de la Ĉina Internacia Komunika Grupo. La kongreso, kun la temo "nova epoko, novaj taskoj kaj nova progreso", altiris pli ol 400 partoprenantojn en la kongresejo kaj per videoligo, akirinte bonan eĥon de la ĉina publiko.
+
+Ĝis posttagmezo de la 31-a de marto, aperis cento da rilataj raportoj el pli ol 30 amaskomunikiloj en la interreto inkluzive ĉina ŝtata novaĵagentejo Xinhua (xinhuaxmt.com), people.com, gmw.cn, chinanews.com.cn, chinaxiaokang.com, news.gscn.com.cn, travel.hebei.com.cn, cflac.org.cn, edu.youth.cn, culture.yunnan.cn, gngj.gog.cn kaj aliaj. Krom tiuj raportoj, iuj amaskomunikiloj diskonigis la raporton en siaj sociretejaj kontoj, tio igis pli vastan diskonigon kaj ricevis pli ol milionoj da klakoj post tia disvastigo.
+
+Redaktoroj: Sheng Min kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Chenzhou-a Esperanto-Asocio: Diskonigi turismon de Chenzhou en 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-31
+
+**URL:** http://esperanto.china.org.cn/2023-03/31/content_85203703.htm
+
+**Categories:** E
+
+La 25-an de marto inaŭguriĝis en Pekino la 14-a Ĉina Kongreso de Esperanto. Sub la gvido de Guo Zhechun, konstanta vicprezidanto de Chenzhou-a Esperanto-Asocio, ses membroj el Suxian-a Bazlernejo, Chenjiang-a Bazlernejo, Fengqi-a Mezlernejo kaj komerca rondo, partoprenis en la kongreso.
+
+En la lastaj jaroj, Chenzhou-a Esperanto-Asocio, sub la gvido de la Federacio de Sociaj Sciencoj de Chenzhou, aktive antaŭenigis la kombinadon de Esperanto kun edukado, komerco kaj turismo kaj faris multe da laboroj. En la laborraporto de ĈEL en la malferma ceremonio de la kongreso, la asocio estis plurfoje menciita.
+
+La kongreso estas okazo por desegni skizon por disvolviĝo. En Chenzhou lokaj esperantistoj bone disvastigos Esperanton kaj aktive ludos la rolon de Esperanto kiel ponton inter Chenzhou kaj aliaj lokoj.
+
+Raportis Xie Renyi
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Mesaĝo de Societo Esperantista de Minas-Ĵerajso (SEM) al 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-31
+
+**URL:** http://esperanto.china.org.cn/2023-03/31/content_85204674.htm
+
+**Categories:** E
+
+La Societo Esperantista de Minas-Ĵerajso (SEM) el Brazilo salutas ĉiujn partoprenantojn en la 14-a Ĉina Kongreso de Esperanto en Pekino kaj deziras fruktodonan kongreson kaj sukceson al la nova estraro.
+
+Ni esperas, ke la Ĉina Esperanto-Ligo kaj Ĉinio helpos la disvastigadon de Esperanto tra la mondo, por ke ĉiuj popoloj povu rekte interŝanĝi siajn kulturojn, sen perantoj de alia tria kulturo. Ĉinio estas fama pro sia saĝeco kaj oni devas koni ĝin per originalaj kaj fidelaj fontoj.
+
+Ni esperas ankaŭ, ke tiu kongreso influos la ekonomiajn grupojn, kiel BRICS, en kiu partoprenas Brazilo kaj Ĉinio, por antaŭenigi Esperanton kiel oficialan lingvon por interŝanĝo de scioj, kulturoj kaj sciencoj inter civitanoj kaj entreprenoj en ties landoj, ĉar Esperanto faciligas la kunlaboradon kaj ebligas tutmondiĝon pli humanan, nepre necesan por la nova epoko, novaj taskoj kaj nova progreso.
+
+Ni preparu nin por alporti sinergion por plibonigi la vivkvaliton de ĉiuj homoj sur nia planedo. Ni profitu el la senlima potenco de Esperanto por plibonigi la homan interrilaton.
+
+Por ĉiu popolo ĝia lingvo, por ĉiuj popoloj Esperanto.
+
+Societo Esperantista de Minas-Ĵerajso (SEM) el Brazilo
+
+
+---
+
+# Mesaĝo de sinjoro Ángel Arquillos al 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-31
+
+**URL:** http://esperanto.china.org.cn/2023-03/31/content_85204679.htm
+
+**Categories:** E
+
+Nome de la Hispana Esperanto Federacio, mi, kiel ĝia prezidanto kaj komitatano A por Hispanio, tutkore deziras sukcesan kaj fruktodonan kongreson. Mi certas, ke via nova estraro kaj novaj komitatanoj plifortigos E-movadon en via vastega kaj historia lando, kie la Ĉina Esperanto-Ligo laboras kun la celo disvastigi la internacian lingvon. Pli ol 200 homoj estas tre bona partopreno, simile al multaj gravaj internaciaj eventoj, elkoran gratulon!
+
+Ĝuu la kongreson!
+
+
+---
+
+# Mesaĝo de sinjorino Mireille Grosjean al 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-31
+
+**URL:** http://esperanto.china.org.cn/2023-03/31/content_85204680.htm
+
+**Categories:** E
+
+La Ĉina Kongreso de Esperanto estas grava kunveno, feliĉa okazo revidi samideanojn kaj konatiĝi kun novaj membroj, estas tempo por ideo-interŝanĝoj kaj signifoplenaj decidoj.
+
+Ĉina kongreso de Esperanto, grava kunveno de ekzistanta tutlanda strukturo, kiel en dekoj da landoj en la mondo: la landaj asocioj de UEA. Ili estas la vertebraro de nia asocio UEA. Diligentaj kolegoj transprenas oficon kaj vivigas ilin.
+
+Mi deziras, ke la ĉina Esperanto-movado floru kaj kresku en harmonia kunlaboro kun la aliaj agemaj esperantistoj en la tuta mondo. Ĝi estu unu el la multaj instrumentoj de granda orkestro, kies muziko estu harmonia.
+
+
+---
+
+# Mesaĝo de sinjoro Dominiko Simeone al 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-31
+
+**URL:** http://esperanto.china.org.cn/2023-03/31/content_85204683.htm
+
+**Categories:** E
+
+Mi salutas la ĉinan kongreson, nome de la Liberpensula Frakcio de SAT.
+
+Bonan laboron kaj fruktodonajn decidojn.
+
+
+---
+
+# Mesaĝo de sinjoro Renato Corsetti al 14-a Ĉina Kongreso de Esperanto
+
+**Published:** 2023-03-31
+
+**URL:** http://esperanto.china.org.cn/2023-03/31/content_85204684.htm
+
+**Categories:** E
+
+Se mi estus pli juna, mi certe volus esti inter vi en ĉi tiu solena okazo, en via 14-a kongreso de Esperanto. Mi memoras kun plezuro mian ĉeeston okaze de la 60-jara datreveno de via asocio.
+
+Kial mi ŝatus esti kun vi? Ĉar la temo de via kongreso aparte interesas min: "Nova Epoko, Novaj Taskoj kaj Nova Progreso". Mi ĉiam pensis, ke la ĉina Esperanto-movado havas la eblecon doni multon al la tutmonda movado pro la aparta situacio de Ĉinujo kaj de la mondo en ĉi tiu nova epoko. Se la mondo moviĝas de imperiisma situacio de unu lando al plurcentra monda civilizo, en kiu ne estas unu centro sed kunlaboro inter ĉiuj landoj, la ĉina Esperanto-movado devas nur apliki al la Esperanto-agado kaj al la rilatoj kun aliaj landaj Esperanto-movadoj la gvidliniojn de la ĉina registaro pri eksterlanda politiko kaj aktive rilati kun la movado en la landoj tuŝataj de la ĉinaj iniciatoj kiel “La Zono kaj Vojo” aŭ la sekvantaj politikoj, kiuj certe venos. Estu kuraĝaj: iniciatu aktive rilatojn kaj help-agadojn por la Esperanto-movadoj en amikaj landoj kaj kreskigu la movadon internacie.
+
+Multajn sukcesojn al via kongreso nome de la tutmondaj esperantistoj, kiuj rigardas al vi kun espero!
+
+(Renato Corsetti, eksprezidanto de UEA)
+
+
+---
+
+# Tra la Sonĝoj: albumo de ĴeLe
+
+**Published:** 2023-04-07
+
+**URL:** http://esperanto.china.org.cn/2023-04/07/content_85216525.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** E
+
+Lena kaj Ĵenja estas, respektive, patrino kaj filino, kiuj duope muzikas en Esperantujo sub la nomo ĴeLe. Inter 2010 kaj 2020 ili eldonis kvin albumojn de Esperanta muziko, kaj ĉi-jare lanĉis per Vinilkosmo la bit-albumon
+
+Tra la Sonĝoj
+
+, kun 15 trakoj.
+
+Por delongaj ŝatantoj de ĴeLe, tiu ĉi albumo estas kvazaŭ vojaĝo en tempomaŝino, ĉar ĝi entenas kaj novajn kaj malnovajn kanzonojn kiuj famiĝis en Esperantujo per ili. Aparte substrekindaj estas "Tra la Sonĝoj", "Kvodlibeto", "Dank' al Vi" kaj "Infanaj Bildetoj", kiuj estis ofte ludataj en Muzaiko antaŭ jardeko -- kaj ĝuste tiel mi ekkonis la muzikon de ĴeLe. "Vento Vaganta" kaj "Pri Maro" ankaŭ estas komponitaj antaŭ longa tempo, ambaŭ agrablaj kaj trankviligaj.
+
+Krom la tradiciaj kantoj, en tiu ĉi albumo ankaŭ troviĝas novkomponitaj kantoj, tradukaĵoj kaj verkoj de geamikoj. La muziko estas aranĝita tiel, ke voĉoj de la du kantistoj aparte elstaras, kaj ili ambaŭ belege kantas. La melodio estas orelplaĉa kaj konsistas el pluraj muzikiloj: en tiu ĉi albumo, Ĵenja ludas violonon, gitaron kaj metalofonon, dum Lena ludas pianon, gitaron, perkutilojn kaj blovklavaron.
+
+"Kantu Ni", la unua kanto en la labumo, invitas homojn kunkanti -- la bitalbumo ne estis elpensita nur por esti aŭskultata, sed ankaŭ kunkantata, provu tion, se vi ŝatas kanti. "Romanco" estas flustre kantata, kvazaŭ la vortoj hezitas eliri el la buŝo, kun bela kaj trista melodio por piano, kio tamen entenas iom da espero. Se vi iam enamiĝis de iu, sed ne estis certa ĉu la sento estas reciproka, vi certe komprenos tiun ĉi senton majstre konvertitan en kanzono. "Suna Floro" ne tiom impresis min, sed estas ja aŭskultinda.
+
+Inter la kantoj de geamikoj, "La Urbo", de Imant kalninsh, estas aparte bona surprizo de tiu ĉi albumo, kun teksto kaj melodio simplaj, sed kiuj tuŝas rekte la koron de la aŭskultanto. La teksto de "Karteta Dometo", de Vladimir Soroka, estas ja bona, sed la melodio ne impresis min. En "La Malĝojo Tristas Sole", de Andreo Berce, ĴeLe faris bonan muzikaranĝon.
+
+"Du Kverkoj" estas tradicia ukraina popolkanto memtradukita, kies melodio alportas ĝojon al la bitalbumo. Ĝin sekvas "Se Mi Imagas", de Dirk Michaelis, kun melodio milda kaj maltrankviliga, kun teksto pri la timo apartiĝi de amata homo.
+
+La bitalbumo finiĝas per "Ĝis Revido", kies nomo diras ĉion: ĝi estas adiaŭa kanto.
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de la kantoj kaj aĉeti la bitalbumeton: https://www.vinilkosmo-mp3.com/eo/kanzono-tradicia-progresiva/%C4%B5ele/1-tra-la-son%C4%9Doj.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Sakuroj en la parko Yuyuantan de Pekino
+
+**Published:** 2023-04-07
+
+**URL:** http://esperanto.china.org.cn/2023-04/07/content_85217131.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Ĉiujare fine de marto kaj komence de aprilo, la parko Yuyuantan de Pekino allogas plurajn turistojn, kiuj venas por vidi la belajn sakurojn kiu famigas tiun parkon. Ĉi-jare estis la unua fojo, ke sakuroj floris en Ĉinio post la fino de la epidemio de KOVIM-19, sekve la nombro de vizitantoj, aparte dum semajnfinoj, estis multe pli granda ol en la tri pasintaj jaroj.
+
+Turistoj admiris la florantajn sakurojn en la parko Yuyuantan de Pekino, la 28-an de marto
+
+Sakuroj en la parko Yuyuantan de Pekino, fotita la 28-an de marto
+
+Televidturo rigardata el la parko Yuyuantan de Pekino, fotita la 28-an de marto
+
+Turistoj promenis en la parko Yuyuantan de Pekino, la 5-an de aprilo
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ruĝaj ibisoj, de 7 ĝis 9 000!
+
+**Published:** 2023-04-10
+
+**URL:** http://esperanto.china.org.cn/2023-04/10/content_85217101.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La 4-an de aprilo, la intervju-teamo de transmaraj ĵurnalistoj, organizita de la Informa Oficejo de la Shaanxi-a Komitato de la Komunista Partio de Ĉinio, la Oficejo pri Hongkongo kaj Makao kaj la Oficejo pri Taiwan de Shaanxi-a Komitato, vizitis la ŝtatnivelan naturrezervejon de ruĝaj ibisoj en Hanzhong-urbo de la provinco.
+
+La ĵurnalistoj intervjuis Zhang Yazu, direktoro de la naturrezerveja administracio. Zhang diris, ke ĝis la fino de 2022, la nombro de ibisoj kreskis de 7 en 1981 al pli ol 9 000, kaj ilia areo plivastiĝis de malpli ol 5 kvadrataj kilometroj ĝis 16 000 kvadrataj kilometroj. Protektado de ruĝa ibiso en Ĉinio fariĝis sukcesa ekzemplo de savado al endanĝerigitaj bestoj en la mondo.
+
+Ruĝa ibiso estas konata kiel orienta gemo kaj estis vaste disigita tra Ĉinio, Japanio, korea duoninsulo kaj Siberio. En meza kaj malfrua 20-a jarcento, ibisoj ekmalaperis en tiuj regionoj escepte de Ĉinio.
+
+La protekta modelo de ruĝa ibiso, formita dum savado kaj protektado al ekstreme malgrandaj populacioj, prezentas novan penson de sovaĝbesta protektado.
+
+La nombro de ibisoj kreskis por malpezigi la ŝarĝon de la vivejo kaj solvi enkruciĝon, oni komencis rearanĝi la ibisojn kaj helpi ilin plivastigi la habitaton. Ilia habitato etendiĝis de montaro al ebenaĵo, de unu angulo de la urbo al la tuta provinco, de la baseno de Jangzio al la areo de la Flava Rivero, eĉ de la provinco al la tuta lando. Kaj, per donacoj kaj aliaj rimedoj, la birdoj atingis aliajn orientaziajn landojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Printempa pejzaĝo de la lago Shouxihu en Yangzhou
+
+**Published:** 2023-04-10
+
+**URL:** http://esperanto.china.org.cn/2023-04/10/content_85217140.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La lago Shouxihu en la urbo Yangzhou de la provinco Jiangsu, orienta Ĉinio, estas 5A-nivela pitoreska turismejo kun histori-kultura graveco, plena de belaj pontoj, ĝardenoj kaj arkitekturaj verkoj. Dum printempo, la pejzaĝoj ĉe la lago estas aparte belaj pro la abundo de buntaj floroj.
+
+Turistoj boatumis sur la lago Shouxihu, la 31-an de marto
+
+Turistoj promenis ĉe la lago Shouxihu, la 31-an de marto
+
+Virino fotis florojn ĉe la lago Shouxihu, la 31-an de marto
+
+Floroj ĉe antikva muro ĉe la lago Shouxihu, fotitaj la 31-an de marto
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Pekinanoj amuziĝas per kajtoj en printempo
+
+**Published:** 2023-04-10
+
+**URL:** http://esperanto.china.org.cn/2023-04/10/content_85221479.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Fari kajtojn kaj ilin flugigi estas antikva tradicio de ĉinoj. Krom antikva kredo, ke flugigi kajtojn komence de printempo povas alporti bonaŭguron, laŭ tempopaso kajtoj fariĝis populara distraĵo de ĉinoj. En Pekino, homoj kutime iras al parkoj por flugigi siajn kajtojn, kaj la vastaj subĉielaj areoj de la parko Shougang, konstruita por gastigi la Vintrajn Olimpikojn kaj Paralimpikojn 2022, estas oportuna loko por tia aktivaĵo.
+
+Kajtoj flugas malantaŭ malnova fabrika turo en Shougang, fotitaj la 3-an de aprilo.
+
+Homoj pretiĝas por ekflugigi kajton en Shougang, fotitaj la 3-an de aprilo.
+
+La 3-an de aprilo virinoj sin fotis la kajtojn kiujn ili mem pentris.
+
+Viro ekflugigis kajton en la parko Shougang la 3-an de aprilo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Prezidanto de ĈEL vizitis Chongqing-an Esperanto-Asocion
+
+**Published:** 2023-04-14
+
+**URL:** http://esperanto.china.org.cn/2023-04/14/content_85229403.htm
+
+**Categories:** E
+
+de Wang Hanping
+
+Antaŭtagmeze de la 8-a de aprilo, Liu Dawei, prezidanto de la Ĉina Esperanto-Ligo (ĈEL) kaj vicprezidanto de la Ĉina Internacia Komunika Grupo (ĈIKG), kune kun respondeculoj de ĈEL kaj rilataj sektoroj de ĈIKG, vizitis Chongqing-an Esperanto-librejon en la turo Tongyuan sur la urbomura pordego Tongyuanmen en la urbo Chongqing kaj kunvenis kun respondeculoj, veteranoj kaj aktivuloj de la Chongqing-a Esperanto-Asocio.
+
+Yuan Ailin, prezidanto de la Chongqing-a Esperanto-Asocio, konigis la historion, nunan situacion kaj kelkajn sukcesajn spertojn de la asocio, kaj raportis pri asociaj laboroj en la lastaj jaroj, precipe post la 14-a Ĉina Kongreso de Esperanto. Prezidanto Liu detale demandis pri membra statuso kaj Esperantaj kursoj de la asocio, kaj interŝanĝis kun ĉeestantoj pri trejnado de junaj esperantistoj, eldonado de E-libroj kaj rolo de Esperanto en Ĉinio.
+
+Liu diris: "Ni alfrontas malfacilaĵojn kaj defiojn. Tiuj, kiuj persistas por nia afero, estas respektindaj. Transdoni la verdan torĉon dependas de junularo. E-asocioj devas okazigi pli da aktivadoj kun riĉaj enhavoj kaj formoj por altiri junulojn." Li emfazis, ke ĈEL kaj lokaj asocioj devas pli multe kontaktiĝi kaj kunlabori, kaj helpi iujn asociojn, kiuj havas povon kaj kreivecon por fari pionirajn laborojn. "Se tutlandaj asocioj kaj esperantistoj kune laboros kaj klopodos, certe aperos nova perspektivo de Esperanto-movado en la lando."
+
+La pordego Tongyuanmen estas la plej bone konservata pordego de la antikva urbo de Chongqing. Post restaŭrado, formiĝis tie parko de urbomura ruino, kaj ĝi allogas multajn turistojn. Chongqing-a Esperanto-librejo estas sur la pordego. Oni vidas okulfrapan rubandon kun surskribita slogano "Esperanto estas ideala internacia helpa lingvo" ekster la librejo. En la konstruaĵo troviĝas libroj, periodaĵoj, bildoj kaj objektoj rilataj al Esperanto. La loka Esperanto-asocio ofte okazigas aktivadojn tie.
+
+Redaktoro: Zhao Wenqi kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Japana ĉefmnistro: Ni komencos ĵeti nukle-poluitan akvon en maron dum ĉi-jara printempo kaj somero
+
+**Published:** 2023-04-21
+
+**URL:** http://esperanto.china.org.cn/2023-04/21/content_85243764.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Malgraŭ enlanda kaj eksterlanda kontraŭstaroj, ne ŝanĝiĝis la plano de Japanio komenci ĵeti nuklepoluitan akvon el la nuklea centralo Fukushima Daiichi dum printempo kaj somero de tiu ĉi jaro. Japana ĉefministro Fumio Kishida diris komence de marto, ke la plano elŝuti poluitan akvon ne ŝanĝiĝis. Japana kompanio Tokyo Electric Power (mallongigo: Tepco) anoncis, ke la instalaĵo por miksado kaj traktado de tia kloakaĵo estis finkonstruita kaj ekfunkciis la 17-an de marto.
+
+Tuj kiam la novaĵo aperis, la koncernaj landoj ekmaltrankviliĝis. La 3-an de marto, la deĵoranta ĉefministro de Fiĝio, Kami Kamiga, deklaris, ke Fiĝio estas en alta alarmo pro la plano de Japanio. La 6-an de aprilo, la plej granda opozicia partio de la Korea Respubliko petis viziti Tepco-n pri la plano, sed Tepco rifuzis.
+
+"La kialoj donitaj de la japana registaro ne sufiĉas por subteni ĝiajn agojn. La ĉefa kialo estas, ke la kosto de ĵetado en la maron estas pli malalta." Multaj fakuloj diris, ke ili konsentis, ke daŭre pligrandigi la stokan kapaciton de nukle-poluita akvo estas la plej ĝusta elekto por trakti la aferon, unuflanke, tio povas plu redukti la danĝeron de radioaktivaj elementoj kun pli mallongaj duondiseriĝaj periodoj, kaj aliflanke, oni povas atendi ĝis la apero de scienca solvo per ĵetado en la maron kaj aliajn efikajn metodojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Yuweizhou-parko de Nanchang en Jiangxi
+
+**Published:** 2023-04-23
+
+**URL:** http://esperanto.china.org.cn/2023-04/23/content_85238600.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Norde de Aixi-lago en Nanchang-urbo, Jiangxi-provinco, Ĉinio, troviĝas Yuweizhou-parko (Fiŝvosta Parko), iama grave poluita fiŝbredejo. En 2022 la internacia premio AZ Awards donis al ĝi du premiojn pri spektinda arkitekturo kaj media gvidforto.
+
+Kun totala areo de ĉirkaŭ 556 000 kvadrataj metroj, Yuweizhou-parko mem estas unika natura puriga sistemo. En la pasinteco, la loko estis nur forlasita fiŝbredejo, ekzistis neniu planto ĉirkaŭe, kaj flareblis malbona odoro la tutan jaron. Dum pluvo, polvo senĉese eniĝis en la akvejon, kaj la akvokvalito estis tre aĉa.
+
+Konsiderante, ke ĉi tiu areo situas ĉe grava ekologia nodo de Aixi-lago kaj Ganjiang-rivero, en 2018 Nanchang lanĉis la programon pri Yuweizhou, kaj ĉiam tenis ekologian restarigon kaj spacan restrukturadon.
+
+Nanchang situas ĉe la okcidenta bordo de Poyang-lago, la plej granda dolĉakva lago en Ĉinio, kaj tie ofte okazas inundoj en la pluv-sezono. Yuweizhou situas en malalta areo de la urbo. Post pluvado, granda kvanto da pluvakvo tie kolektiĝas. La projektisto klopodis konservi la ekvilibron inter la kvanto de elfosita tero kaj remetota tero por la parko. Oni formis insulojn laŭ lokaj pejzaĝoj, kaj rezervis spacon por enteni pluvakvon. La parko povas elteni2-metran altiĝon de akvonivelo kaj havas stokan kapaciton de 882 000 kubmetroj da akvo. Dum la pluv-sezono, ĝi efike mildigas la premon sur la urba tubreto, purigas surfacan pluvakvon kaj reduktas la riskon de inundo.
+
+Kun tiu ĉi natura ekosistemo, la akvosistemo de Yuweizhou formis sian stabilan "mempurigan" medion. La origine kvaraklasa akvo enkondukita en Yuweizhou fariĝos triaklasa akvo kaj eniĝos en Ganjiang-rivero.
+
+Reguligante pluvakvon, plibeligante la medion, kreante vivejon por migrantaj birdoj kaj provizante urban distrejon, la malsekeja parko kun ekologia rolo kaj estetika valoro jam fariĝis nova ejo kie lokanoj renkontiĝas kun la naturo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Laosa ministro: Ekfunkcio de pasaĝeraj trajnoj estas historia tempo por rilatoj inter Laoso kaj Ĉinio
+
+**Published:** 2023-04-23
+
+**URL:** http://esperanto.china.org.cn/2023-04/23/content_85247209.htm
+
+**Categories:** Socia Vivo
+
+La 13-an de aprilo ekveturis pasaĝera trajno de ĉin-laosa fervojo. Kiam la unua trajno atingis Boten-stacion en Laoso, ĝi estis varme bonvenigita de lokanoj. Alvenis Suanesavanh Vignaket, laosa ministro pri informado, kulturo kaj turismo, por bonvenigi ĉinajn turistojn.
+
+La ministro diris, ke la fervojo estas ligilo de amikeco inter Ĉinio kaj Laoso en la nova epoko, kaj ĝi estas grava strategia projekto por ke Laoso transformiĝu de "malkonektita lando" al "konektita lando", kio ankaŭ realigas la revojn de la laosa popolo. "La ekfunkcio de la pasaĝeraj trajnoj estas grava historia evento, dank' al interhelpo de Laoso kaj Ĉinio por konstrui prosperan kaj fortan landon. Hodiaŭ estas grava tago registrota en la historio de amikeca kunlaboro inter Laoso kaj Ĉinio kaj de la homara komunumo de komuna estonteco de ambaŭ landoj."
+
+Ĝis la 9-a de aprilo la fervojo transportis entute 13.93 milionojn da pasaĝeroj kaj 18.38 milionojn da tunoj da varo, inkluzive de 3.59 milionoj da tunoj da translanda varo.
+
+La ekfunkcio de internaciaj pasaĝeraj trajnoj havas grandan signifon por faciligi la vojaĝon de loĝantoj laŭ la linio, antaŭenigi la disvolviĝon de turismo kaj aliaj industrioj en la du landoj, akceli ekonomiajn kaj komercajn interŝanĝojn, kaj kune konstrui la bonkvalitan disvolviĝon de la iniciato "La Zono kaj Vojo".
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kial damaĝi maron? La maro ne estas rubujo
+
+**Published:** 2023-04-24
+
+**URL:** http://esperanto.china.org.cn/2023-04/24/content_85249071.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+En la mondo estis senprecedenca ellaso de akvo nukle-poluita en maron. La nuklea akcidento en nukleenergia centralo Fukushima Daiichi en 2011 estas unu el la plej severaj nukleaj akcidentoj ĝis nun, kaj pro la akcidento naskita nukle-poluita akvo enhavas pli ol 60 radioaktivajn nukleajn elementojn laŭ unuapaŝa kalkulo. Rilata kompanio Tokia Elektro-Energia Kompanio konfesis en 2022, ke laŭ nunaj teknikoj, multaj radioaktivaj elementoj en tia akvo ne povas esti forigitaj. Pluraj esploroj jam pruvis, se la akvo estos ellasita en maron, tiuj ĉi radioaktivaj elementoj poluos maran medion kaj finfine damaĝos sanon de homoj kaj la tutan terglobon.
+
+"Kial ili damaĝos maron? La maro ne estas rubujo!" Japana fiŝisto Haruo Ono kolere diris, "Se la ellaso estas vere sekura, kial ili ne ellasos la malpurigitan akvon en Tokion aŭ Osakon?" Laŭ lokaj amaskomunikiloj de la gubernio Fukushima, 93% de lokaj urbestroj, urbetestroj kaj vilaĝestroj konfesis, ke pro la plano renomo de la gubernio estis damaĝita.
+
+Ellaso de nukle-poluita akvo absolute ne estas privata afero de Japanio, sed "publika afero" rilata al daŭripova disvolvo de la tuta homaro. Kaj Pacifiko ne estas rubujo de Japanio por ellaso de poluaĵo, sed publika resurso de multaj landoj por vivteno. Japanio devas science trakti la malpurigitan akvon per vere sekuraj metodoj. Sen konfirmo de ĉiuj intereso-rilataj flankoj de sekureco de projekto pri ellaso, la japana flanko ne devas arbitre fari agon.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Pacifiko ne estas rubujo de Japanio por ellasi poluaĵon
+
+**Published:** 2023-04-24
+
+**URL:** http://esperanto.china.org.cn/2023-04/24/content_85249110.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La 22-a de aprilo estas la Monda Tago de la Tero. Multaj neregistaraj grupoj kaj mediprotektaj organizoj okazigis aktivadojn kontraŭ la plano de la japana registaro ellasi akvon nukle-poluitan en maron el la damaĝita nukleenergia centralo Fukushima Daiichi. Ankaŭ la internacia neregistara organizo Verdpaco (Greenpeace) lastatempe publikigis artikolon, kritikante, ke la decido de la japana registaro ellasi poluaĵon en maron malobservas internaciajn leĝojn kiel Konvencion de la Unuiĝintaj Nacioj pri Leĝo de la Maro, kaj kondamnante, ke la japana flanko ne plenumis sian internacian devon pri takso de media influo.
+
+Aperis pli kaj pli da oponoj kaj duboj depost anonco de la japana registaro pri ĝia plano. Tamen fronte al la opono de la internacia komunumo, la japana flanko ankoraŭ obstine antaŭenigas sian planon sen taksa raporto de la Internacia Atom-Energia Agentejo. Japana ministro pri ekonomio, komerco kaj industrio Yasutoshi Nishimura diris, ke Japanio komencos laborojn ĉi-rilatajn fine de printempo kaj komence de somero en la kuranta jaro. Masao Uchibori, estro de la gubernio Fukushima, vizitos Eŭropon celante akiri subtenon de la Grupo 7 al la plano.
+
+Estas klare, ke la japana registaro neniam donis energion al trovo de ĝusta solvo de la nukle-poluita akvo, sed energie cerbumis pri malseriozigo kaj kovro de danĝereco de la plano kaj provis altiri aliajn landojn kaj akiri alies subtenon por pavimi vojon al sia erara ago.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Emmanuel Macron malesperigas "atlantikistojn"
+
+**Published:** 2023-04-26
+
+**URL:** http://esperanto.china.org.cn/2023-04/26/content_85255731.htm
+
+**Categories:** Socia Vivo
+
+de Bruno Guigue
+
+Francio kaj Ĉinio konservas specialajn dulandajn rilatojn ekde kiam Charles de Gaulle agnoskis la Ĉinan Popolan Respublikon en januaro 1964. En sia ŝtata vizito al Ĉinio, de la 5-a ĝis la 7-a de aprilo, franca prezidento Emmanuel Macron daŭre subtenis la tradicion de amikaj rilatoj inter la du landoj kaj montris al la mondo, ke Francio estas suverena lando kapabla diskuti kun Ĉinio en egaleco. Francio povas efektivigi siajn proprajn sendependajn eksterajn politikojn en tiu ĉi ŝlosila regiono, kontribuante por tutmonda estonteco.
+
+La forta volo, kunlabori kun Ĉinio, videblas el multaj gravaj komercaj interkonsentoj subskribitaj de la du flankoj. Ili koncernas ŝlosilajn kampojn kiel aviado, nuklea energio kaj renovigebla energio. Fakte, Ĉinio kaj Francio delonge kunlaboras en tiuj kampoj, kaj decidas plu profundigi kunlaborojn. Rimarkinde estas tio, ke en francaj amaskomunikiloj kaj sociaj retejoj, tiuj, kiuj sinsekve kritikas Ĉinion, same akuzas la francan prezidenton klopodi profundigi la ekonomian partnerecon inter la du landoj. Laŭ iliaj opinioj, ŝajne la prioritato devas esti, starante sur la tero de Ĉinio, kontraŭstari "ĉinan intervenon" aŭ "defendi homajn rajtojn". Emmanuel Macron ignoris la akuzojn, ĉar la vortoj kaj faroj de tiuj homoj ne nur damaĝos la ekonomiajn interesojn de Francio, sed ankaŭ estas naiva provo sin trudi en la internajn aferojn de Ĉinio.
+
+"Atlantikistoj" opinias, ke Francio devus doni "averton" aŭ eĉ "malpermeson" al Ĉinio pro la tiel nomata rifuzo de Ĉinio "kondamni" Rusion pro la situacio en Ukrainio. Sed male, ambaŭ flankoj diskutis la aferon surbaze de reciproka respekto -- tiom for de la espero de la "atlantikistoj".
+
+Male al kelkaj okcidentaj nacioj, Ĉinio ne liveras armilojn al iu ajn militanta flanko, forte kondamnas provojn uzi nukleajn armilojn, prezentas koheran pacplanon al ĉiuj koncernaj flankoj kaj urĝas batalhalton por ĉesigi suferon de civitanoj. Dume, aliaj ĉefaj potencoj antaŭenpuŝas Ukrainion oferi sin por NATO.
+
+Tiel, la espero de la "atlantikistoj" estis detruita. Ili volis vidi la francan prezidenton "urĝi" Ĉinion "elekti flankon" aŭ "ne plu esti ambigua", sed la absurda volo ja estis frakasita de la realo: Ĉinio estas sendependa lando, kiu ne rompos la principojn de paca kunekzistado kaj respekton de nacia suvereneco. La franca prezidento evidente konscias pri tio, do li ne plu insistis. Li sin inklinas al komuna konsento inter la du landoj pri serĉi vojon por solvi la krizon, anstataŭemfazi la diferencojn inter la du flankoj kiel profundaj kaŭzoj de la konflikto.
+
+Ĉu tio markas novan ŝanĝon de la franca ekstera politiko, kiel reaserto de ĝia sendependeco kadre de internaciaj aferoj? La pozicio esprimita de Emmanuel Macron post sia vizito al Ĉinio donas al ni esperon. En intervjuo kun
+
+Les Echos
+
+, Emmanuel Macron deklaris, ke "strategia aŭtonomeco" estas "la batalo de Eŭropo". Li atentigas: "Se dum pli rapida evoluo de la konfliktoj inter Ĉinio kaj Usono, Eŭropo hezitos konstrui sian strategian aŭtonomecon,  ĝi finfine fariĝos akcesoraĵo. Ni havas kelkajn jarojn por konstrui nian aŭtonomecon, kaj ni povos fariĝi la 'tria poluso'." "La paradokso estas, ke ni penas por vera strategia aŭtonomeco de Eŭropo, kaj samtempe sekvas usonan politikon pro 'timo je reago'." Emmanuel Macron atentigas eŭropanojn esti prudentaj. Ĉu li fine sorbos la diplomatian heredaĵon de de Gaulle kaj decidos restarigi tiun ĉi noblan tradicion de nacia sendependeco? Se jes, tio estus bona signo. Ĉiaokaze, almenaŭunu afero estas certa: la vizito de la prezidento al Ĉinio estas amara senesperiĝo por "atlantikistoj".
+
+*Bruno Guigue estas franca fakulo pri internacia politiko.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Dua Libro de l' Lingvo Internacia legata en ĉina mezlernejo
+
+**Published:** 2023-04-26
+
+**URL:** http://esperanto.china.org.cn/2023-04/26/content_85255756.htm
+
+**Categories:** E
+
+La 23-a de aprilo estas la Monda Tago de Legado, por ĝin festi, en la 18-a de aprilo Xiong Yeping, ĝenerala sekretario de Hangzhou-a Esperanto-Asocio, vizitis Shenglan-mezlernejon de Hangzhou-urbo kaj gvidis lernejanojn tie legi kaj lerni la
+
+Duan Libron de l' Lingvo Internacia
+
+.
+
+Xiong Yeping klarigis al ĉeestantoj bazajn sciojn de Esperanto kaj la enhavon de la libro. Ŝi donis ekzemplojn de Esperantaj vortoj por la ĉiutaga vivo, kaj lernantoj akiris sciojn de E-literoj, E-vortoj kaj prononcoj. La lerna etoso estis varma kaj aktiva.
+
+Redaktoroj: Zhao Wenqi kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Erik Solheim aplaŭdis grandrapidan fervojon de Ĉinio
+
+**Published:** 2023-04-28
+
+**URL:** http://esperanto.china.org.cn/2023-04/28/content_85258521.htm
+
+**Categories:** Socia Vivo
+
+Lastatempe, Erik Solheim, eksa vicĝenerala sekretario de Unuiĝintaj Nacioj (UN) kaj eksa plenuma direktoro de medi-programo de UN, vojaĝis per grandrapida trajno de Pekino al la urbo Zibo de Shandong-provinco. Li afiŝis fotojn en sia konto ĉe socia retejo kaj alte taksis la rapidecon kaj komforton de la trajno.
+
+Li diris, ke li vojaĝas al la furoranta urbo Zibo kaj dufoje fotis la ciferojn de rapido montratajn en la trajno. Li afiŝis: "Estas ege bone vojaĝi per grandrapida trajno en Ĉinio! Rapide kaj komforte."
+
+Li diris, ke antaŭ kelkaj tagoj li vojaĝis al Pekino el Chengdu-urbo, kaj pli-ol-2 000-kilometra distanco postulis nur 7 horojn per trajno. "Ĝis komenco de 2023, la totala longeco de ĉinaj grandrapidaj fervojoj atingis 42 000 kilometrojn."
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# La tago, kiam mi premis la manon de digno
+
+**Published:** 2023-04-28
+
+**URL:** http://esperanto.china.org.cn/2023-04/28/content_85260672.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Socia Vivo
+
+La 12-an de aprilo ĉi-jare, mi vojaĝis al Ŝanhajo por akompani la viziton de brazila prezidento Luiz Inácio Lula da Silva al Ĉinio. Kiam mia trajno estis alvenonta en Ŝanhajo, mi estis informita, ke Lula jam estis alveninta. El la stacidomo mi prenis taksion al lia hotelo, nur por malkovri ke Lula kaj aliaj membroj de lia delegitaro jam estis en siaj ĉambroj, en la halo estis raportistoj kaj kelkaj aliaj homoj. Mi kaj miaj amikoj de PT (Partio de Laboristoj, la partio de prezidento Lula) estis kunfotitaj de Ricardo Stuckert, oficiala fotisto de Lula, portantaj bonvenigan bendon antaŭ la hotelo, kaj Ricardo promesis montri la foton al la prezidento la sekvan matenon.
+
+Sampartianoj bonvenigas prezidenton Lula ĉe la hotelo. Fotis: Ricardo Stuckert/PR
+
+Sekvatage, mi aŭskultis la historian paroladon de Lula en la Nova Disvolviĝa Banko (NDB). Tiam mi memoris rakonton de la brazila filozofo kaj edukisto Mario Sergio Cortella, pri kiam li estis sekretario pri edukado de la urbo San-Paŭlo, inter 1991 kaj 1992. En tiu epoko, Nelson Mandela vizitis la urbodomon de San-Paŭlo kaj ili interkonatiĝis. "Kiam mi premis lian manon, miaj kruroj ektremis, ĉar mi ne estis premanta la manon de homo, mi estis premanta la manon de digno," rememoras Cortella.
+
+Mandela estis unu el la gvidantoj de rezista movado kontraŭ la politiko de apartiĝo inter blankuloj kaj nigruloj en Sud-Afriko. Pro tio, li estis arestita kaj pasigis 27 jarojn en malliberejo, 18 el tiuj jaroj izolita en tre malgranda ĉelo, kaj estis plurfoje torturita. En 1990, Mandela estis liberigita, fariĝis tre respektata politikisto kaj, en 1993, li gajnis Nobelpremion pri Paco. En la sekva jaro li fariĝis la unua prezidento de Sud-Afriko post la fino de la apartiĝa reĝimo kaj transformis sian landon en modernan pluretnan demokration.
+
+Agentoj de la usona Centra Informkolekta Agentejo (CIA) kunlaboris kun sud-afrika registaro por aresti Mandela en 1962. Lia nomo restis ĝis 2008 en listo de danĝeraj teroristoj publikigita de la usona registaro. Lia "terorismo" estis lukti por egalaj rajtoj inter nigruloj kaj blankuloj, kaj persekutado ne timigis lin, kiu dediĉis sian tutan vivon al tiu kaŭzo, pro la certeco, ke ĝi estas justa.
+
+Prezidento Lula iam rememoris, dum intervjuo, sian viziton al Mandela, tiama prezidento de Sud-Afriko, en 1994. Li vidis homojn karesantaj la muron de la prezidenta palaco, kaj estis eĉ vico por tion fari. Lula tiam demandis Mandela kial homoj estis karesantaj la muron, kaj Mandela klarigis, ke antaŭe nigruloj ne rajtis alproksimiĝi al la palaco, kaj subite ili akiris tiun rajton, pri kiu ili antaŭe ne povis eĉ revi. Tiu sperto profunde impresis Lula, alia elstarulo kiu neniam rezignis pri sia revo plibonigi la mondon.
+
+Naskiĝinta en malriĉa familio, Lula spertis malsaton dum infaneco, kaj ekde frua aĝo bezonis labori kontraŭ tre malalta pago por helpi sian familion. Senpaga teknika lernejo donis al li la ŝancon akiri profesion kaj trovi postenon pli stabilan kaj bonpagan: li estis la unua inter siaj gefratoj, kiu sukcesis akiri profesion, kiu alportis al li salajron pli altan ol la minimuma salajro, kaj li sukcesis aĉeti domon, aŭton, televidilon kaj fridujon, konsideratajn luksaĵojn en tiu epoko.
+
+Nuntempe, kiam laŭdo al individuismo fariĝis modo, vivrakontoj kiel tiu de Lula estas ofte uzataj por kulpigi malriĉulojn pri ilia sorto: "Se ili klopodus pli, ili sukcesus mem riĉiĝi". Sed Lula ĉiam komprenis, ke kvankam homoj ja povas ŝanĝi siajn vivojn, tamen ili bezonas oportunojn por tio, kaj Lula elektis sin dediĉi al la kaŭzo doni oportunojn al homoj, por ke ili povu liberiĝi el malsato kaj malriĉeco, studi kaj havi decan laboron.
+
+Kiel prezidento de Brazilo, Lula sukcesis kreskigi monrezervojn de Brazilo, triobligi la nacian pokapan enspezon, altigi la minimuman kaj averaĝan salajron de brazilaj laboristoj, ekspansii aliron al lernejoj, universitatoj kaj kuracado, kaj signife redukti la indicojn pri malriĉeco, malegaleco, senlaboreco, analfabeteco, infana mortindico kaj infanlaboro.
+
+Priskribita de la historiisto Eric Hobsbawn (1917-2012) kiel homo, kiu sukcesis ŝanĝi la tutmondan ekvilibron per venigo de disvolviĝantaj landoj al la kerno de internacia polika decidfarado, Lula fariĝis pli ol homo, li fariĝis simbolo de la lukto kontraŭ malsato kaj malriĉeco en la mondo, sed simboloj estas danĝeraj por imperiismaj interesoj kaj bezonas esti detruitaj: komenciĝis jura persekutado kontraŭ Lula.
+
+Mi kun kelkaj amikoj en la sidejo de NDB por la enposteniĝa ceremonio de ĝia prezidanto Dilma Rousseff
+
+Akuzita pri koruptado, Lula rifuzis azilon eksterlande kaj restis en Brazilo por pruvi sian senkulpecon. Li pasigis 580 tagojn en malliberejo, kaj estis liberigita post kiam la retejo
+
+The Intercept
+
+diskonigis pruvojn de konspiro inter juĝistoj kaj prokuroroj por kondamni lin. La kreskanta malriĉeco kaj malsato en Brazilo rememorigis homojn pri tiu, kiu antaŭe donis al ili la oportunon prosperi en la vivo: en 2022, Lula elektiĝis prezidento por la tria fojo.
+
+Alia similaĵo inter Lula kaj Mandela estis la internaciaj kampanjoj por ilia liberigo. Kaze de Lula, estis kreitaj tra la mondo la Komitatoj Lula Libera, por esprimi subtenon al lia libero. La Komitato Lula Libera en Ĉinio poste rezultis en la fondiĝo de la unua sekcio de PT en orienta hemisfero, al kiu mi aliĝis pasintjare por agadi en la kampanjo de Lula al prezidanteco de Brazilo. Ni kontribuis por historia venko: unuafoje la neta rezulto en Ĉinio, inkluzive de Hongkongo kaj Tajvano, donis venkon al PT, kiu ankaŭ unuafoje venkis balotadon en Ŝanhajo.
+
+Partianoj kiuj superrigardis la balotadon gardis la balotilajn bultenojn kiel memoraĵojn de tiu historia venko, kaj okaze de la vizito de prezidento Lula al Ĉinio, ni decidis transdoni tiujn bultenojn al li kiel donacojn, kaj aranĝis ilin en kadro kun flago de Ĉinio kaj mesaĝoj manskribitaj de ni. Pro la sekurecaj protokoloj de NDB, ni ne rajtis transdoni tiun donacon ene de la banko, kaj oni sugestis al ni tion fari posttagmeze en la hotelo.
+
+Post vizito al Huawei, prezidento Lula iris al la hotelo por tri sinsekvaj kunvenoj kaj vespermanĝo kun lokaj aŭtoritatoj. Ni estis en la halo, babilantaj kun la brazila ministro pri kulturo, Margareth Menezes, kiam prezidento Lula alvenis, en hasto por iri al la kunvenejo. Vidi lin, tiom aĝa, post vojaĝo tiom laciga kaj en fora horzono, sin dediĉanta tutkore al sia kaŭzo - plibonigi la vivkondiĉojn de sia popolo - profunde kortuŝis min. Antaŭ jardeko, Lula imagis, ke malsato neniam plu revenus al Brazilo, sekve li estis maljuste fifamigita kaj akompanis el malliberejo la detruadon de nacidisvolva projekto al kiu li dediĉis sian vivon, kaj eĉ tiel li revenis por rekonstrui ĉion!
+
+Alveno de prezidento Lula en la hotelo, post lia vizito al Huawei
+
+Inter la kunvenoj devus esti kelkaj paŭzoj, kaj la plano de ceremoni-estro de brazila ministerio pri eksteraj rilatoj estis uzi unu el tiuj paŭzoj por venigi nin al la ĉambro por renkontiĝi kun Lula dum kelkaj minutoj, transdoni al li donacon kaj kunfotiĝi. La kunsidoj daŭris multe pli longe ol antaŭplanite kaj ne estis tempo por aldona kunveno, eĉ se tre rapida. La solvo estis transdoni la donacon al Lula en la halo dum lia foriro al Pekino. Ceremoni-estro aranĝis tion por ni, komunikis la gardistojn kaj la fotiston, kaj ni atendis ĉe la halo.
+
+Kiam prezidento Lula alvenis, estis ĉirkaŭ la 20-a horo kaj duono. De mia sperto el vojaĝoj el Brazilo, je tiu horo oni sentas sin tre dormema. Kaze de Lula, li estas maljuna kaj havis pezan tagordon por plenumi en tiu tago, krom lia malfrua alveno al la hotelo la pasintan nokton. Li estis lacega kaj dormema, en evidenta bezono de ripozo, kaj petis al ni esti rapidaj.
+
+Tiam venis magia momento: kiam ni montris al li nian donacon kaj klarigis ĝian signifon, lia vizaĝo draste ŝanĝiĝis: li trovis forton por malfermi siajn lacegajn okulojn kaj lia vizaĝo subite pleniĝis de ĝojo. Tiam li subite rigardis nin kvazaŭ patro fiera post vidi la notojn de siaj gefiloj en lernejo, pozis por foto kun ni, kaj varme salutis nin unu post alia. Mi estis la lasta kiu premis lian manon, kaj sentis min ekzakte kiel Cortella priskribis: mi estis premanta la manon de digno.
+
+Kiam prezidento Lula ekiris al la aŭto, mi ne sciis kion fari kaj instinkte sekvis lin ĝis la enirejo de la garaĝo. Sekve mi ekrevenis por renkonti miajn amikojn. Paulo César, brazila muzikisto, estis ludanta kun la muzikistaro de la hotelo. Mi filmis tion por poste transdoni al li kiel memoraĵo, kaj sekve serĉis miajn aliajn amikojn: ili estis babilantaj kun Dilma Rousseff! Tiam mi alproksimiĝis kaj ricevis de ŝi afablan brakumon.
+
+Mi kaj Dilma Rousseff
+
+Kiam Dilma estis prezidento de Brazilo, ŝia ĉefa ĝojo estis ludi kun sia nepo. Kiel ŝi sentas sin en Ĉinio, tiom for de sia familio? Mi volis sciigi ŝin, ke ni, sampartianoj, estas je ŝia dispono por igi ŝian vivon en Ĉinio pli facila kaj ĝojplena. Sed vortoj fuĝis de mia buŝo.
+
+Samtempe mi rememoris, ke la virino antaŭ mi estis arestita kaj torturita de diktaturo, poste estis viktimo de puĉo kaj vidis abomenindulon, admiranto de kolonelo kiu torturis ŝin, elektiĝi prezidento. Sed la koro de Dilma estas multe pli granda ol tiuj humiligoj al kiuj ŝi estis submetita: la mondo klopodis amarigi ŝin, tamen ŝi insiste konservas sin dolĉa kaj gaja.
+
+Sed la tago estis laciga ankaŭ por ŝi: ni adiaŭis kaj ŝi iris hejmen. Mi kaj miaj amikoj iris al restoracio por kunvespermanĝi kaj festi tiun neforgeseblan tagon, kiam mi ne nur premis la manon, sed ankaŭ brakumis la dignon.
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Pekina botanika ĝardeno en printempo
+
+**Published:** 2023-04-29
+
+**URL:** http://esperanto.china.org.cn/2023-04/29/content_85257692.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Printempo daŭras en la pekina botanika ĝardeno kun belaj pejzaĝoj ĉe la konata turismejo Xiangshan.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Komenciĝis seria prezentado de operoj en Shijiazhuang
+
+**Published:** 2023-04-30
+
+**URL:** http://esperanto.china.org.cn/2023-04/30/content_85258494.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 26-an de aprilo en la urbo Shijiazhuang, Hebei-provinco, Ĉinio, komenciĝisseria prezentado de operoj de norda Ĉinio. Al la urbo venis 35 trupoj el Pekino, Hebei, Shaanxi, Shanxi, Anhui, Jiangsu, Sichuan kaj aliaj lokoj de norda parto de Ĉinio. Ili prezentos 21 teatraĵojn kaj 5 elektitajn scenojn el 21 specoj de operoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xiong'an: Peonioj pompas en printempo
+
+**Published:** 2023-05-01
+
+**URL:** http://esperanto.china.org.cn/2023-05/01/content_85258502.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+En aprilo, la plej bela monato, pompas peonioj en Yuerong-parko de la nova areo Xiong'an de Hebei-provinco. Bona odoro de la floroj refreŝigas la vizitantojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# En Ĉinio 274 milionoj da enlandaj turismaj vojaĝoj por la 5-taga feriado de majo
+
+**Published:** 2023-05-04
+
+**URL:** http://esperanto.china.org.cn/2023-05/04/content_85265391.htm
+
+**Categories:** Socia Vivo
+
+Laŭ la Ministerio de Kulturo kaj Turismo de Ĉinio, en la feriado de la 29-a de aprilo ĝis la 3-a de majo, sektoroj rilataj al kulturo kaj turismo multe prosperis, kaj la koncerna merkato de la lando enorde leviĝis. Laŭ kalkulo de la ministerio, estis entute 274 milionoj da enlandaj turismaj vojaĝoj, je 70.83% pli multe ol la pasinta jaro; la turisma enspezo estas pli ol 148 miliardoj da juanoj (ĉirkaŭ 2.15 miliardoj da usonaj dolaroj), pliiĝo je 128.9% kompare kun la pasinta jaro.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Vi kaj via lando estas superrigardataj de CIA
+
+**Published:** 2023-05-05
+
+**URL:** http://esperanto.china.org.cn/2023-05/05/content_85267775.htm
+
+**Categories:** Socia Vivo
+
+Delonge CIA (Centra Informkolekta Agentejo) spione faras "pacajn evoluigojn" kaj "kolorajn revoluciojn" tra la mondo kaj samtempe kolektas informojn sekrete. La 4-an de majo la Ĉina Nacia Centro pri Urĝa Reago kontraŭ Komputilaj Virusoj kaj la ĉina interret-sekureca kompanio 360 publikigis raporton, en kio montriĝas ĉefaj teknikoj de CIA dum ĝia praktikado de granda nombro da "koloraj revolucioj". La teknikoj celas instigi gejunulojn per aliro al la interreto aliĝi en manifestacioj.
+
+La rapida disvolviĝo de interreto donas oportunon al CIA aperigi tumultojn en multaj landoj. Ekzemple la "kolora revolucio" okazinta en Ukrainio en 2014, la "verda revolucio" en Irano en 2009, kaj aliaj okazis sub la influo de CIA. Laŭ statistikoj, ekde kelkdekoj da jaroj, CIA renversis aŭ klopodis renversi pli ol 50 laŭleĝajn registarojn de aliaj landoj (kvankam CIA konfesas nur 7 el ili) kaj kaŭzis tumultojn en koncernaj landoj.
+
+Laŭ analizoj, en supre menciitaj aferoj, la teknikoj por informado, komunikado kaj surloka komandado ludas ŝlosilajn rolojn dum efektivigado de la aferoj. Pri tiaj teknikoj Usono sidas ĉe la unua vico, tio liveras senprecedencajn eblojn por realigo de tiaj "revolucioj".
+
+La raporto rimarkigas, ke tiaj ciferecaj armiloj uzataj de CIA severe obeas al normigitaj spionaj teknikoj, la diversaj atakmetodoj interhelpas kaj nun jam kovras preskaŭ ĉiujn ejojn de interreto kaj reto de objektoj en la mondo, kaj povas superrigardi la interreton de aliaj landoj en ajna tempo kaj ŝteli gravajn kaj sentemajn datumojn. Sendube, tio postulas grandegan monsumon, teknikojn kaj homfortojn. Ja estas evidenta la superrego de Usono en interreto.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Okazis rete Junulara Forumo pri Esperanto-muziko
+
+**Published:** 2023-05-05
+
+**URL:** http://esperanto.china.org.cn/2023-05/05/content_85267779.htm
+
+**Categories:** E
+
+Vespere de la 3-a de majo, memore al la 104-a datreveno de la Kvara de Majo, okazis rete la 3-a junulara forumo de Ĉina Esperanto-Ligo (ĈEL) -- Junulara Forumo pri Esperanto-Muziko. Pli ol 70 esperantistoj de Pekino, Ŝanhajo, Shandong, Jiangsu kaj aliaj lokoj, partoprenis en la evento. ĈEL estas la organizanto de la forumo, kaj E-asocioj de Ŝanhajo, Shandong kaj Jiangsu estas la kunorganizantoj.
+
+Rafael Zerbetto, brazila esperantisto laboranta por Esperanto en Pekino, faris diskonigon pri la historio de Esperanta muziko, kiel ĝia origino, apero de E-muzikaĵoj kaj riĉiĝo de la verkoj. Zhao Wenqi, pekina esperantisto, sciigis al ĉeestantoj kiel facile trovi E-muzikaĵojn en la interreto.
+
+Ekzistas aktivaj E-organizoj en la Elementa Lernejo Dongfang en Changzhou, Jiangsu-a Teknologia Universitato kaj Profesia Teknika Kolegio Liu Guojun. En la forumo la esperantistoj prezentis kantadojn kaj ĥorojn, de kantoj kiel
+
+Jen
+
+,
+
+Saluton
+
+,
+
+Lamento de la Arbaro
+
+kaj
+
+Renkontiĝo estas Kanto
+
+.
+
+La studentoj de E-fako de Zaozhuang-a Universitato de Shandong kontribuis per tri prezentadoj, inkluzive de esperantigita
+
+Sono de Silento
+
+, rakonto pri
+
+Doktoro Zamenhof kaj Esperanto
+
+kaj kunkanto de Esperanta versio de
+
+L' iamo Longe For'
+
+.
+
+Ŝanhajaj junuloj prezentis deklamon de la poemo Herbokanto, kunkanto de esperantigita versio de
+
+Someone You Loved
+
+kaj la konata
+
+La Espero
+
+.
+
+La prezentadoj estas impresaj, montrante la spiriton de nunaj junuloj en la nova epoko. Esperanto, nutrata de diversnaciaj lingvoj, ankaŭ posedas riĉajn resursojn de muziko. Scii kaj koni pri E-muziko estas grava kanalo por lerni kaj ĝui Esperanton.
+
+Redaktoroj: Zhao Wenqi kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Salono de junaj esperantistoj en oficejo de ĈEL
+
+**Published:** 2023-05-05
+
+**URL:** http://esperanto.china.org.cn/2023-05/05/content_85267902.htm
+
+**Categories:** E
+
+La 4-a de majo estas la Junula Tago de Ĉinio. Tiutage en la sekretariejo de la Ĉina Esperanto-Ligo (ĈEL) okazis malgranda salono. Alvenis Pietro Fiocchi, itala esperantisto, kiu laboris en la redakcio de
+
+El Popola Ĉinio
+
+en la jaroj 2013 kaj2014 kaj faris profundan amikecon kun la ĉinaj kolegoj. Li rememoris siajn vivon kaj laboron en Pekino kaj ankaŭ konigis Torinon, la gastiganta urbo de la 108-a UK ĉi-jare kaj E-movadon en sia lando.
+
+Chen Ji, ĝenerala sekretario de ĈEL, klarigis disvolvadon de la Esperanta afero en Ĉinio kaj esprimis volon starigi regulan interŝanĝan mekanismon inter la dulandaj E-organizoj, por ke la du flankoj prezentu siajn proprajn kulturojn kaj antaŭenpuŝu reciprokan lernadon inter la orienta kaj okcidenta kulturoj pere de la internacia lingvo.
+
+Junaj laborantoj en la sekretariejo babilis kun Pietro pri la ĵus okazintaj aktivadoj por junaj esperantistoj en Ĉinio.
+
+Redaktoroj: Jiang Limin kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉinio helpas en evakuado de civiluloj el Sudano
+
+**Published:** 2023-05-06
+
+**URL:** http://esperanto.china.org.cn/2023-05/06/content_85269780.htm
+
+**Categories:** Socia Vivo
+
+Raporto de
+
+South China Morning Post
+
+, publikigita la 1-an de majo, informas, ke Ĉinio kunlaboras kun aliaj landoj por evakui eksterlandanojn el Sudano, kie antaŭ tri semajnoj komenciĝis enlanda milito inter du rivalaj armeoj.
+
+Laŭ la raporto, 215 civitanoj de Pakistano, ses brazilanoj el la sama familio kaj 272 ĉinoj estis evakuitaj per la ŝipo Weishanhu de la Ĉina Popola Liberiga Armeo. La evakuitoj estis transportitaj al la urbo Ĝido en Saud-Arabio, matene de la 30-a de aprilo.
+
+La Ĉina Ministerio pri Eksteraj Aferoj deklaris, ke Ĉinio ĝis nun kunlaboris en evakuado de civitanoj el kvin landoj, sed ne diskonigis la nomojn de tiuj landoj. La ministerio ankaŭ informis, ke aliaj landoj petas helpon al Ĉinio por evakui siajn civitanojn el Sudano.
+
+La 4-an de majo brazila ambasadejo en Pekino publike dankis al Ĉinio pro la valora helpo de la lando en evakuado de brazila familio el Sudano. En aprilo, la Brazila Ministerio pri Eksteraj Aferoj sukcesis kontakti la ses brazilanojn en Kartumo, ĉefurbo de Sudano, kaj per loĝistika helpo de Ĉinio ili estis transportitaj en sekureco al la urbo Porto Sudano, el kie ili estis transportitaj al Ĝido. La helpo de Ĉinio al evakuado de brazilanoj estas alia pruvo de la amikeco inter la popoloj de Brazilo kaj Ĉinio.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fontoj: South China Morning Post kaj Brazila Ambasadejo en Pekino
+
+El Popola Chinio
+
+
+---
+
+# Fabriko de kaskedoj en Qingdao
+
+**Published:** 2023-05-08
+
+**URL:** http://esperanto.china.org.cn/2023-05/08/content_85267636.htm
+
+**Categories:** Socia Vivo
+
+Ĉu vi scias kiel oni faras kaskedojn? Ni vizitis fabrikon de la firmao Qingdao-a Yaoqing-a Kapvest-kompanio Limigita en la urbo Qingdao de Shandong-provinco, nordorienta Ĉinio, por montri kiel oni ilin faras. La fabriko, fondita en la 1990-aj jaroj, kreskis kaj nun dungas pli ol 150 laboristojn, inkluzive de 12 dezajnistoj. La produktado de kaskedoj havas plurajn fazojn: tondado, kudrado, brodado, gladado kaj pakado. Ĝiaj produktoj estas vendataj en Ĉinio kaj ankaŭ eksportataj al multaj landoj tra la mondo.
+
+Pecoj atendas por esti kudritaj sur kaskedoj.
+
+Laboristino muntas la pecojn por esti kudritaj de maŝino.
+
+Emblemo kudrita sur la ŝtofo
+
+Poste oni kunligas ĉiujn partojn de la kaskedo kaj ĝin gladas.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Biermuzeo en Qingdao
+
+**Published:** 2023-05-08
+
+**URL:** http://esperanto.china.org.cn/2023-05/08/content_85267653.htm
+
+**Categories:** Socia Vivo
+
+La urbo Qingdao en la provinco Shandong de Ĉinio estas monde fama pro sia biero kun historio de pli ol cent jaroj. Parto de la antikva bierfabriko estis transformita en muzeo, listigita en decembro 2020 kiel nacinivele unuaranga muzeo. Por prezenti la historion kaj procezon de bierfarado, la muzeo alprenas ne nur antikvaĵojn, sed ankaŭ modernajn teknikojn.
+
+Turistoj promenas ĉe la enirejo de la muzeo.
+
+Eksponaĵo pri bierfarado
+
+Hologramoj montras al vizitantoj la procezon de bierfarado antaŭ jarcento.
+
+Bieroj el la tuta mondo estas eksponataj en la muzeo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ĉina kaj japanaj esperantistoj festis la 111-an datrevenon de naskiĝo de Verda Majo
+
+**Published:** 2023-05-08
+
+**URL:** http://esperanto.china.org.cn/2023-05/08/content_85272031.htm
+
+**Categories:** E
+
+La 30-an de aprilo okazis en la urbo Nara, Japanio, ceremonio por festi la 111-an datrevenon de naskiĝo de Verda Majo (Hasegawa Teru) kaj inaŭguro de monumento omaĝe al Verda Majo.
+
+Kunfotiĝo de ĉina kaj japanaj samideanoj antaŭ la monumento de Verda Majo
+
+Hasegawa Akiko faras parolon.
+
+Zhao Dezhi, komitatano de ĈEL, prezentas florojn nome de la ligo.
+
+En la ceremonio, sinjoro Minoru Tanabe, eksa komitatano de la centra komitato de Japana Komunista Partio kaj estro de loka komitato de la partio, faris salutparolon kaj laŭtlegis la mesaĝojn de la Ĉina Esperanto-Ligo, urbestro de la urbo Jiamusi de Ĉinio, urbestro de la urbo Nara de Japanio kaj eksa prezidanto de la Universala Esperanto-Asocio Renato Corsetti.
+
+La prezidanto de la Esperanto-asocio de la urbo Nara, la filino de Verda Majo Hasegawa Akiko kaj aliaj invititoj faris paroladojn esprimante sopiron de la brava esperantistino kaj respekton al ŝiaj kontribuoj por la paco kaj amikeco inter Ĉinio kaj Japanio.
+
+La ceremonion ĉeestis pli ol 140 personoj, inkluzive de membroj de diverslokaj E-organizoj de Japanio, interalie Japana Federacio pri Amikeco inter Ĉinio kaj Japanio.
+
+Raportita de Zhao Dezhi
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kion ĉina modernigo alportos al nia estonteco?
+
+**Published:** 2023-05-09
+
+**URL:** http://esperanto.china.org.cn/2023-05/09/content_85272067.htm
+
+**Categories:** Socia Vivo
+
+La 20-a Tutlanda Kongreso de la Komunista Partio de Ĉinio okazinta pasintjare montras, ke ĉina modernigo estas socialisma modernigo gvidata de la Komunista Partio de Ĉinio, ĝi havas la komunajn trajtojn de diverslandaj modernecoj kaj proprajn trajtojn de Ĉinio. Do, kia estas la plej granda diferenco inter la modernigoj ĉina kaj okcidenta? Kiel trakti la rilatojn de ĉina modernigo kaj la mondo? Pri tio respondis Zhang Shuhua, direktoro de la Instituto pri Politiko kaj direktoro de la Kolegio pri Registara Administrado sub la Ĉina Akademio de Sociaj Sciencoj.
+
+Kio estas ĉina modernigo?
+
+Kompare kun la moderniga procezo de la Okcidento, ĉina modernigo havas tute aliajn valoron, vojon kaj celon. Dum la modernigo de la okcidenta socio, ĉiam ekzistas sangoverŝo, pafado, kolonia rabado kaj premado. Ĉe tia modernigo mankas ekvilibro, egaleco kaj justeco. Kaj la ĉina modernigo alportas profiton al la tuta popolo, kun la celo de komuna riĉiĝo kaj reprospero de la ĉina nacio. La ĉina modernigo persistas pri popol-direkto, emfazante memstarecon laŭ realo. Tio estas la ŝlosila faktoro por la sukceso de ĉina modernigo.
+
+Kion ĉina modernigo alportos al la mondo?
+
+Ĉina modernigo sukcesigas regadon de la lando, kio enmetos pli da stabileco al la monda situacio. Laŭ Zhang Shuhua, la pl-ol-70-jara konstruado de la Ĉina Popola Respubliko breĉis la limigon de okcidentaj teorioj, rompis la "eternan venkon" de la modelo de okcidentaj demokratio kaj libera merkato, kio ne nur estas granda progreso por la ĉina nacio de sendependiĝo al reprosperiĝo, sed ankaŭ prezentas novan elekton kaj ĉinan saĝon por disvolviĝantaj landoj.
+
+De la ĉina iniciato "La Zono kaj Vojo" al la Ĉina Internacia Importa Ekspozicio kaj de Boao-Forumo por Azio al la Konferenco pri Dialogo de Aziaj Civilizacioj, Ĉinio provizas al la mondo platformojn por internaciaj publikaj produktoj kaj interŝanĝoj. Malantaŭ tio estas la koncepto de la homara komunumo de komuna estonteco, grava parto de la ĉina modernigo.
+
+Zhang Shuhua diris: "Ĉinio, kiel la plej granda disvolviĝanta lando, havas similajn celon kaj malfacilojn kun aliaj disvolviĝantaj landoj. Por la modernigo de tiuj landoj, ĉina modernigo provizas bonajn spertojn. Do, ĉina modernigo estas kaj la ĉina kaj la monda."
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping prezidos pintkunvenon de Ĉinio kaj Centra Azio
+
+**Published:** 2023-05-09
+
+**URL:** http://esperanto.china.org.cn/2023-05/09/content_85274747.htm
+
+**Categories:** Socia Vivo
+
+La urbo Xi'an en Shaanxi-provinco, okcidenta Ĉinio
+
+Lastatempe, Hua Chunying, proparolanto de ĉina Ministerio de Eksterlandaj Aferoj, anoncis, ke en la 18-a kaj la 19-a de majo en Xi'an-urbo, Shaanxi-provinco, okazos la Pintkunveno de Ĉinio kaj Meza Azio. Ĉina prezidanto Xi Jinping prezidos la pintkunvenon, kaj dume kazaĥa prezidento Kassym-Jomart Tokayev, kirgiza prezidento Kurmanbek Bakiyev, taĝika prezidento Emomali Rahm, turkmena prezidento Serdar Berdimuhamedov kaj uzbeka prezidento Shavkat Mirziyoyev laŭinvite ĉeestos la pintkunvenon. La prezidentoj ankaŭ faros ŝtatviziton al Ĉinio.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Muzeo pri hejmaj aparatoj en Ĉinio
+
+**Published:** 2023-05-11
+
+**URL:** http://esperanto.china.org.cn/2023-05/11/content_85278584.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Ĉu vi interesiĝas pri la historio de hejmaj aparatoj? La ĉina grupo Haier, kiu fabrikas hejmajn aparatojn ekde 1984, kreis muzeon en la urbo Qingdao de la provinco Shandong de Ĉinio, por rakonti tiun historion. La vizito komenciĝas per ekspozicio de antikvaj hejmaj aparatoj kaj finiĝas per altteknikaj hejmaj aparatoj de Haier, por montri la evoluon de hejmaj aparatoj laŭlonge de historio.
+
+Gladiloj el malsamaj epokoj
+
+Ĉiĉerono montras antikvan hararsekigilon. Antaŭ ĝi videblas antikva elektra ventumilo.
+
+WANG PC 5151-002, komputilo lanĉita en 1984, kiu funkciis per operaciumo MS-DOS, fariĝis la plej populara en Ĉinio en tiu jardeko.
+
+Ĉiĉerono montras modernan fridujon de Haier, kun sensiloj, bludento kaj ekrano sur la pordo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ne nur biero: ĉina bierejo kreeme disvolvas novajn produktojn
+
+**Published:** 2023-05-11
+
+**URL:** http://esperanto.china.org.cn/2023-05/11/content_85278595.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La tradicia ĉina bierejo Qingdao ekzistas de pli ol jarcento kaj ĝia biero estas monde fama. Malpli konataj, tamen, estas aliaj produktoj kreitaj de la firmao, kiel glaciaĵoj, panoj kaj manĝetoj, kiuj entenas bieron aŭ estas farataj de postrestaĵoj de la procezo de bierfarado. Tiel la bierejo pli efike uzas siajn rimedojn kaj samtempe kreskigas siajn enspezojn. La bierejo nuntempe disponigas pli ol 400 malsamajn produktojn disvolvitajn surbaze de biero.
+
+Pano farita de cerealo fermentita dum la procezo de bierfarado
+
+Glaciaĵo el biero, disvolvita de Qingdao-bierejo
+
+Malsamtipaj bieroj, panoj kaj manĝeto el biero
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Kial inviti la kvin landojn en la Centra Azio?
+
+**Published:** 2023-05-11
+
+**URL:** http://esperanto.china.org.cn/2023-05/11/content_85283937.htm
+
+**Categories:** Socia Vivo
+
+En la 18-a kaj la 19-a de majo okazos en la urbo Xi'an la Pintkunveno de Ĉinio kaj Centra Azio. Tio estas la unua eksterreta pintkunveno por Ĉinio kaj la kvin landoj, kiu malfermos novan ĉapitron de la rilatoj inter Ĉinio kaj la centraziaj landoj. Ĝi havas mejloŝtonan signifon por bonkvalite konstrui la ĉinan iniciaton "La Zono kaj Vojo" kaj la ĉin-centrazian komunumon de komuna estonteco, kaj ankaŭ stabile disvolvi la regionon.
+
+La pintkunveno, kiu baldaŭ okazos, naskiĝis el la kunlabora mekanismo "Ĉinio plus la kvin landoj en la Centra Azio". La stariĝo de tiu mekanismo de ŝtatestra renkontiĝo ludas gravan rolon, ke la kunlaboroj inter Ĉinio kaj la Centra Azio atingu pli altan nivelon kaj pli vastan gamon da kunlaboroj.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Deqing de Zhejiang-provinco: Aro da belaj vilaĝoj
+
+**Published:** 2023-05-12
+
+**URL:** http://esperanto.china.org.cn/2023-05/12/content_85278534.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+En lastaj jaroj, deqing-gubernio sub Huzhou-urbo de Zhejiang-provinco sin disvolvas per diversaj manieroj, ĝi renovigis, plibonigis kaj plibeligis siajn vilaĝojn per utiligo de lokaj resursoj naturaj, kulturaj, agrikulturaj kaj turismaj. Tio samtempe allogas turistojn kaj plialtigas la vivnivelon de vilaĝanoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Taibai-monto, pitoreskejo sur Qinling-montaro
+
+**Published:** 2023-05-12
+
+**URL:** http://esperanto.china.org.cn/2023-05/12/content_85278546.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Taibai-monto, ĉefa montpinto de Qinling-montaro, estas pitoreskejo konata de antikveco en Ĉinio. Sur ĝi troveblas neĝo eĉ ĝis junio. La arbarparko, malfermita en 1991, situas ĉe la norda parto de la monto, kovras 2 949 hektarojn kun arbara kovreco de 94.3%, kaj funkcias kiel grava turismejo de la okcidenta parto de Ĉinio.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Internacia Eksponejo de Ŝanhaja Kunlabora Organizo en Qingdao
+
+**Published:** 2023-05-15
+
+**URL:** http://esperanto.china.org.cn/2023-05/15/content_85282919.htm
+
+**Categories:** Socia Vivo
+
+En la urbo Qingdao de la provinco Shandong, orienta Ĉinio, troviĝas internacia eksponejo de la Ŝanhaja Kunlabora Organizo (ŜKO), konstruita en la centro de la Loka Ekzempla Zono pri Ekonomia kaj Komerca Kunlaboro de ŜKO-membrolandoj. En novembro 2022, la centro ekfunkciis kun negoca, turisma kaj kultura celoj. Ĝi havas sep konstruaĵojn, el kiuj sep estas destinitaj al diskonigo kaj eksponado de kulturo kaj tipaj produktoj de ĉiuj membrolandoj, por ke vizitantoj povu koni kaj sperti la kulturojn de tiuj landoj.
+
+Ekspon-areo pri Uzbekio en la eksponejo
+
+Virino fotas la ekspon-areon pri Rusio en la eksponejo.
+
+Homoj vizitas la ekspon-areon pri Pakistano en la eksponejo.
+
+Kazaĥaj muzikiloj eksponataj en la ekspon-areo pri Kazaĥio en la eksponejo
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Kial Zibo famiĝis pro rostaĵo?
+
+**Published:** 2023-05-15
+
+**URL:** http://esperanto.china.org.cn/2023-05/15/content_85282941.htm
+
+**Categories:** Socia Vivo
+
+Lastatempe, Zibo, tradicia industria urbo de Shandong-provinco, orienta Ĉinio, famiĝis en interreto pro sia rostaĵo. Precipe dum la feriado de la Internacia Tago de Laboristoj, Zibo altiris pli ol 120 mil turistojn el la tuta lando, kreinte rekordon pri la plej alta pasaĝerfluo en la pasintaj 10 jaroj. En la unua tago de la ferio, Zibo unuafoje aperis inter la plej konataj fervojaj cellokoj, la turisma mendo de la urbo pliiĝis je pli ol 2 000%.
+
+Famo venigita de studentoj
+
+En majo 2022, pro la epidemio de KOVIM-19, pli ol 10 mil studentoj de Shandong-Universitato en la urbo Jinan estis senditaj al Zibo por kvaranteno. La registaro de Zibo pretigis ĉiutagajn bezonaĵojn kaj retumkartojn por la studentoj, kaj "nutris" ilin per diversaj bongustaĵoj ĉiutage. Por la lasta manĝo antaŭ la foriro de la studentoj, la urba registaro preparis rostaĵojn, kaj en la publika letero al la studentoj, la registaro proponis al ili reveni por nova vizito al la urbo, akompanataj de amikoj.
+
+Komence de marto 2023, miloj da studentoj alvenis laŭ la promeso, sekve "studentoj grupe alprenas grandrapidan fervojon al Zibo por frandi rostaĵojn" iĝis varma temo. La studentoj alŝutis koncernajn filmetojn sur sociaj amaskomunikiloj, altirante retfamulojn el la tuta lando, kio ekbruligis la unuan ondon da turistoj al Zibo.
+
+Kio estas speciala pri loka rostaĵo?
+
+Tian varmecon rimarkis kaj kaptis la urba registaro. Ĝi tuj anoncis okazigon de festivalo pri rostado dum la feriado; aranĝis volontulojn en la trajnoj por bonvenigi gastojn, pretigis instalaĵojn por faciligi la vojaĝon de turistoj en Zibo.
+
+Ne nur koncernaj departementoj, sed ankaŭ lokanoj agas kiel gardantoj de la urba aspekto. Por lasi bonan impreson al la vizitantoj, multaj lokanoj spontanee provizas servojn al ili; iuj senpage transportas turistojn ĉe fervojaj stacidomoj; iuj entreprenistoj donas senpagajn ripozejojn... De la loka registaro ĝis lokanoj, ĉiuj faras sian plej bonon, iuj retumantoj diris: "Tia sincereco estas pli alloga ol rostaĵo mem."
+
+De industria Zibo al"rostaĵa" Zibo
+
+Zibo estas grava industria urbo en norda Ĉinio. Tamen, pro elĉerpiĝo de resursoj, sur ĝi pliiĝas premo por mediprotektado. En 2018, post kiam la lando aprobis, ke Shandong konstruu la unuan ampleksan provzonon por konvertiĝo al nova energio, la registaro de Zibo komencis strebi al daŭripova disvolviĝo.
+
+Kiel antikva ĉefurbo de Qi-regno, kun historio de miloj da jaroj kaj originloko de Qi-kulturo, Zibo sinsekve diskonigis pri sia kulturo kaj ceramikaĵoj en la lastaj jaroj. Fine, la urbo fariĝis konata pro sia "rostaĵo". Tio ne nur mirigas la konsumantojn tra la lando, sed ankaŭ igas lokanojn senti tion nekredebla.
+
+Pri tio, fakuloj diris: "La populareco de Zibo ne povas esti hazarda. La subita prospero de turismo estas sinsekvo de tiu fenomeno; malantaŭ tio, ĝi fakte eĥas la transformiĝon de industria urbo."
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Plaĝo en Qingdao vespere
+
+**Published:** 2023-05-15
+
+**URL:** http://esperanto.china.org.cn/2023-05/15/content_85290965.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La marborda urbo Qingdao en la provinco Shandong, nordorienta Ĉinio, estas fama pro biero kaj pluraj german-stilaj konstruaĵoj -- heredaĵoj de la epoko, kiam la urbo estis germana koncesio. Krom tio, Qingdao ankaŭ havas belajn plaĝojn kaj ĉemarajn pejzaĝojn. Jen kelkaj fotoj faritaj vespere ĉe plaĝo en Qingdao.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ĝuado de bongustaĵoj internaciaj
+
+**Published:** 2023-05-16
+
+**URL:** http://esperanto.china.org.cn/2023-05/16/content_85340272.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 15-an de majo komenciĝis kolektiva gustumado de manĝaĵoj de Ĉinio kaj Mezorienta Eŭropo en Ningbo-urbo, Zhejiang-provinco, sudorienta Ĉinio. La manĝado fakte estas kultura interŝanĝo sub la 3-a ĉin-mezorienteŭropa ekspozicio kaj foiro de internaciaj konsumaĵoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Komenciĝis seria prezentado de sudĉinaj operoj
+
+**Published:** 2023-05-16
+
+**URL:** http://esperanto.china.org.cn/2023-05/16/content_85340317.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 15-an de majo en Wuhan-urbo de Hubei-provinco komenciĝis la 3-a seria prezentado de sudĉinaj operoj. Vidiĝas tie dekkelkaj operoj prezentitaj de la trupoj el Ŝanhajo, Jiangsu-provinco, Hubei-provinco kaj aliaj 13 provincoj, regionoj kaj urboj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Vidindejoj de antikva kaj moderna urbo Xi'an
+
+**Published:** 2023-05-16
+
+**URL:** http://esperanto.china.org.cn/2023-05/16/content_85340400.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Xi'an, kun antikva nomo Chang'an, aĝas pli ol 3100 jarojn, kaj funkciis kiel ĉefurbo dum pli ol 1 100 jaroj kaj travivis 13 dinastiojn. La urbo estis startpunkto de la antikva Silka Vojo kaj estas grava pordo por ĉina pordomalfermo al la okcidenta flanko. Nun ĝi estas gastiganta urbo de la Pintkunveno de Ĉinio kaj Centra Azio.
+
+Internacia Kunvena Centro de Xi'an
+
+Yongning-pordego de antikva urbomuro
+
+Sonorilturo
+
+Tamburturo
+
+Scienc-noviga zono Jinwan sub kreiv-motora platformo Qinchuangyuan
+
+Xiaoyan-turo
+
+Dayan-turo
+
+Paradizo pri dinastio Tang de Xi'an
+
+Olimpika Centro de Xi'an
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kio estas motoro por man-en-mana antaŭeniro de Ĉinio kaj Centra Azio?
+
+**Published:** 2023-05-18
+
+**URL:** http://esperanto.china.org.cn/2023-05/18/content_85379266.htm
+
+**Categories:** Socia Vivo
+
+"Bonaj najbaroj, bonaj amikoj, bonaj partneroj kaj bonaj fratoj" – tio estas vera priskribo de la rilatoj de Ĉinio kun la kvin centraziaj landoj. Depost la starigo de diplomatiaj rilatoj inter Ĉinio kaj la landoj en 1992, la duflankaj rilatoj eltenis la provon de ŝanĝiĝoj de la internacia situacio kaj atingis la disvolviĝon de bona najbareco al strategia kaj ampleksa strategia partnereco, kaj kunlaboro en diversaj kampoj eniris rapidan vojon. Kio estas ĝia motoro?
+
+Nun, Ĉinio kaj la Centra Azio estas en grava etapo de disvolviĝo. Ĉinio penas akceli sian moderniĝon, dum centraziaj landoj plenforte antaŭenigas la strategion de akcela disvolviĝo kaj atendas plifortigon de kunlaboro kun Ĉinio. Samtempe, landoj alfrontas la influon de senprecedencaj ŝanĝiĝoj, kaj la deziro kune venki defiojn estas pli forta. Sub tia situacio, la okazigo de la Pintkunveno de Ĉinio kaj Centra Azio estas ĝusttempa por antaŭenigi kontinuan profundigon de strategia reciproka konfido kaj vastigon de kunlaboro inter la du flankoj en diversaj kampoj.
+
+La iniciato pri komuna konstruado de la silkvoja ekonomia zono, kiun proponis ĉina prezidanto Xi Jinping en vizito al Kazaĥio en 2013, kreis grandegajn disvolvajn oportunojn por la disvolviĝo de ambaŭ flankoj.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Sukcese okazis Altnivela Dialogo kaj Interŝanĝo de Ĉin-Centrazia Amaskomunikilaro
+
+**Published:** 2023-05-18
+
+**URL:** http://esperanto.china.org.cn/2023-05/18/content_85379310.htm
+
+**Categories:** Socia Vivo
+
+La 17-an de majo, antaŭ la Pintkunveno de Ĉinio kaj la Centra Azio, en Pekino sukcese okazis la Altnivela Dialogo kaj Interŝanĝo de Ĉin-Centrazia Amaskomunikilaro. Ĝi estis iniciatita de la Ĉina Komunikila Grupo (ĈKG) kaj al ĝi ĉeestis ĉefaj amaskomunikiloj el la kvin centraziaj landoj. Estroj de la ĉefaj amaskomunikiloj, diplomatiaj senditoj, fakuloj kaj kleruloj faris profundajn interŝanĝojn laŭ la temo "ĉina modernigo kaj la Centra Azio: nova disvolviĝo kaj novaj ŝancoj", kaj kune diskutis pri la nova misio kaj nova respondeco de amaskomunikiloj en la moderniga procezo de la homa socio. La partoprenantoj konsentis, ke la ĉina vojo al modernigo liveras novan elekton al la homaro por realigi moderniĝon, kaj donas ekzemplon al evoluantaj landoj, inkluzive de centraziaj landoj, por sendepende marŝi al modernigo.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kuna konstruado de ĉin-centrazia komunumo de komuna estonteco
+
+**Published:** 2023-05-18
+
+**URL:** http://esperanto.china.org.cn/2023-05/18/content_85379331.htm
+
+**Categories:** Socia Vivo
+
+En la videa kunveno por la 30-a datreveno de la stariĝo de diplomatiaj rilatoj inter Ĉinio kaj la kvin centraziaj landoj en 2022, ĉina prezidanto Xi Jinping prezentis la iniciaton "kune konstrui pli proksiman ĉin-centrazian komunumon de komuna estonteco", kiu gajnis la unuaniman aprobon de ĉiuj partioj. En la sama jaro, la totala komerca sumo inter Ĉinio kaj la kvin centraziaj landoj superis 70 miliardojn da usonaj dolaroj, kiel nova rekordo ĉi-flanke.
+
+En la 18-a kaj la 19-a de majo la Pintkunveno de Ĉinio kaj Centra Azio okazas en Xi'an, Shaanxi-provinco. Xi Jinping prezidas la pintkunvenon kaj, kune kun la ŝtatgvidantoj de la kvin centraziaj landoj, desegnas novan skizon de kunlaboro por la rilatoj inter Ĉinio kaj la Centra Azio. Tio estas la unua fojo, ke Ĉinio okazigas pintkunvenon eksterrete post la stariĝo de diplomatiaj rilatoj kun la kvin centraziaj landoj, kaj ĝi estas mejloŝtono en la historio de la rilatoj inter Ĉinio kaj centraziaj landoj.
+
+Xi'an estas unu el la deirpunktoj de la antikva Silka Vojo, kaj la Centra Azio estas la loko, tra kiu la antikva Silka Vojo nepre trairis. Dum miloj da jaroj, la antikva Silka Vojo kunligis la civilizaciojn en Azio, Eŭropo kaj Afriko, kaj helpis progreson de la homaro. Hodiaŭ de Xi'an elveturas kargotrajnoj laŭ 17 ĉeflinioj al centraziaj landoj, kaj varoj el landoj laŭlonge de "La Zono kaj Vojo" kaj el 29 ĉinaj provincoj estas dissendataj tie.
+
+La 7-an de septembro 2013, Xi Jinping faris paroladon en Kazaĥio, unuafoje diris pri la grava iniciato konstrui la "silkvojan ekonomian zonon". De tiam komenciĝis la granda afero profitanta la popolon de la landoj laŭlonge de "La Zono kaj Vojo". En la pasintaj 10 jaroj, la komuna konstruado de "La Zono kaj Vojo" fariĝis populara internacia kunlabora platformo.
+
+En la pasintaj 10 jaroj, Xi Jinping vizitis la regionon sepfoje, akceptis gvidantojn de centraziaj landoj multfoje, ambaŭ flankoj faris profundajn interŝanĝojn, intimigis la rilatojn inter Ĉinio kaj la kvin centraziaj landoj. La rilato inter Ĉinio kaj centraziaj landoj jam fariĝis modelo por konstrui novtipajn internaciajn rilatojn.
+
+Ju pli ĥaosas la mondo kaj komplikas la situacio, des pli necesas plifortigi unuecon kaj kunlaboron. Ĉinio kaj la kvin centraziaj landoj pliigas kunordigon, kune klopodas por sekureco, daŭra paco kaj daŭripova disvolvo en la regiono, kaj kune konstruas la homaran komunumon de komuna estonteco, celante meti stabilecon en la necertecan mondon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ekonomia kresko de Ĉinio kaj centraziaj landoj estos pli alta ol la monda averaĝo
+
+**Published:** 2023-05-18
+
+**URL:** http://esperanto.china.org.cn/2023-05/18/content_85379393.htm
+
+**Categories:** Socia Vivo
+
+En la 18-a kaj la 19-a de majo, la Pintkunveno de Ĉinio kaj Centra Azio okazos en Xi'an, Shaanxi-provinco. Ĉina prezidanto Xi Jinping prezidos la pintkunvenon, kaj prezidentoj de Kazaĥio, Kirgizio, Taĝikio, Turkmenio kaj Uzbekio estis invititaj ĉeesti la kunvenon. Tio estas la unua fojo post la stariĝo de diplomatiaj rilatoj inter Ĉinio kaj la kvin landoj antaŭ 31 jaroj, ke la ŝtatestroj okazigis konferencon eksterrete, kio estas mejloŝtono en la historio de la rilatoj inter Ĉinio kaj la centraziaj landoj.
+
+Xi’an, gastiganta urbo de Pintkunveno de Ĉinio kaj Centra Azio, en nokto
+
+Ĉinio kaj centraziaj landoj estas najbaroj kun komuna landlimo je pli ol 3 300 kilometroj. En la lastaj jaroj, kadre de la iniciato "La Zono kaj Vojo", daŭre pliiĝis la interkomunikado inter Ĉinio kaj la landoj. Etendiĝo de translandlimaj transportaj kanaloj kaj pliiĝo de transportaj manieroj de Ĉinio kaj la Centra Azio helpis al centraziaj landoj transformi siajn malavantaĝojn de enlandaj lokoj en avantaĝojn de vojnodo por komercaj interŝanĝoj.
+
+Dank' al komuna klopodo de ĉiuj partioj, la komerc-sumo inter Ĉinio kaj la centraziaj landoj atingis 70.23 miliardojn da usonaj dolaroj en 2022, je 40% pli multe ol tiu en la pasinta jaro, la plej bona rekordo en la historio, kaj estis pli frue realigita la komerca celo establita de ŝtatgvidantoj. La eksportado de Ĉinio al la kvin centraziaj landoj estis 42.36 miliardoj da usonaj dolaroj, je 43.3% pli multe ol tiu en la pasinta jaro; importado el la kvin centraziaj landoj sumiĝis je 27.87 miliardoj da usonaj dolaroj, pliiĝante je 35.8%. Nun Ĉinio estas la plej granda komerca partnero de Kirgizio kaj Turkmenio, la dua plej granda de Kazaĥio kaj Uzbekio, kaj la tria de Taĝikio.
+
+Ankaŭ la translandlima elektronika komerco rapide disvolviĝas en la Centra Azio. Ĝis la fino de 2022, 196 kazaĥaj kompanioj ekfunkciis en la retbutiko Alibaba, kaj 100 uzbekaj kompanioj negocis tie. E-komerco laŭ la itinero de la Silka Vojo helpas malgrandajn kaj mezgrandajn entreprenojn en centraziaj landoj akceli ciferecan transformiĝon, uzi interreton por realigi internacian komercon "aĉeti tutmonde, vendi tutmonde".
+
+Laŭ prognozo de internaciaj organizoj, la ekonomia kresko de Ĉinio kaj centraziaj landoj estos pli alta ol la monda averaĝo en 2023. Ĉi tiu regiono fariĝos kunlabora zono por bonkvalita disvolvo kaj pionira areo de "La Zono kaj Vojo". Sub la nuna kompleksa internacia situacio, Ĉinio kaj la landoj senĉese profundigas kunlaborojn kaj pliigas ekonomiajn ligojn, firmigas la stabilecon de la regiona industria ĉeno kaj provizoĉeno kaj helpas la ekonomian disvolviĝon de diversaj landoj kaj regionoj.
+
+Verkita de Liu Huaqin, estro de Instituto de Eŭrazio sub Akademio de Internacia Komerco kaj Ekonomia Kunlaboro de la Ministerio pri Komerco de Ĉinio
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# IKEF-prezidanto Ĉielismo: Amikeco inter centraziaj esperantistoj kaj mi
+
+**Published:** 2023-05-18
+
+**URL:** http://esperanto.china.org.cn/2023-05/18/content_85380458.htm
+
+**Author:** Wang Tianyi (Ĉielismo)
+
+**Categories:** Socia Vivo
+
+Centrazia Esperanto-movado komenciĝis de la tempo de Sovetunio. En la 1990-aj jaroj, helpe de Anatoli Ionesov, samarkanda esperantisto, mi multfoje organizis komerc-grupojn de mia provinco Shaanxi viziti la belan urbon Samarkando. Tiam E-movado estis tre aktiva en la regiono, kaj mi konatiĝis kun multaj esperantistoj de Uzbekio, Kirgizio kaj Kazaĥio. La Centra Azio situas meze de la antikva Silka Vojo, multaj familioj memoras la amikecon kun ĉinoj en la pasinteco. Do la interŝanĝoj inter la landoj kaj Ĉinio estas daŭrigo de longa historio.
+
+Poste, uzbekaj esperantistoj Anatoli Ionesov kaj Gafur Mirzabajev multfoje gvidis grupojn viziti Ĉinion. Ankaŭ mi donacis al la internacia pac-muzeo en Samarkando milon da paperaj kolomboj faritaj de iu Xi'an-a mezlernejo kaj verdan sloganon.
+
+Nun, la Silka Vojo, kunliginta Azion kaj Eŭropon, certe povos helpi la kunlaborojn laŭlonge de "La Zono kaj Vojo", kio briligos la skizon de la granda homara komunumo de komuna estonteco. Mi esperas, ke esperantistoj plie zorgos la Pintkunvenon de Ĉinio kaj la Centra Azio kaj aktive pliigos komunikadon kaj kunlaboron kun centraziaj esperantistoj por servi al la disvolviĝo de nia lando kaj la Centra Azio, tio ankaŭ prezentos la valoron de nia lingvo.
+
+En 2013 centraziaj E-komercistoj kaj mi kunfotiĝis en fabriko de rikoltiloj.
+
+Anatoli Ionnesov (meze) kun kazaĥa paro kaj E-kantisoj Ĵormat kaj Nataŝa
+
+Gafur Mirzabajev (meze en la dua vico) kun sia dancteamo en Taŝkento
+
+Vjacheslav Nasretdinov (dekstre) kun esperantistoj en Ŝimkento, Kazaĥio
+
+Verkis: Wang Tianyi (Ĉielismo)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Altrapida trajno en la plej alta regiono de Ĉinio!
+
+**Published:** 2023-05-24
+
+**URL:** http://esperanto.china.org.cn/2023-05/24/content_85552956.htm
+
+**Categories:** Socia Vivo
+
+Antaŭ du jaroj estis inaŭgurita la unua altrapida fervojo de Xizang (Tibeto), kunliganta la urbojn Nyingchi kaj Lasao. La altrapida fervojo draste reduktis la tempon bezonatan por vojaĝo inter la du urboj kaj oportunigis vojaĝon por turistoj kaj lokaj homoj. Tiu estas la altrapida fervojo en plej alta altitudo en la mondo, kaj ĝia konstruado postulis solvojn de pluraj inĝenieriaj defioj.
+
+Pasaĝeroj eniras la altrapidan trajnon Fuxing en Nyingchi.
+
+Anoncoj en la trajnoj estas en tri lingvoj: la ĉina, la angla kaj la tibeta.
+
+Virinoj en tradiciaj vestaĵoj bonvenigas gastojn en la stacidomo de Lasao.
+
+Muzikistoj bonvenigas gastojn en la stacidomo de Lasao.
+
+Raportis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Tradicia kulturo de Xizang: pli vigla ol antaŭe
+
+**Published:** 2023-05-24
+
+**URL:** http://esperanto.china.org.cn/2023-05/24/content_85556641.htm
+
+**Categories:** Socia Vivo
+
+Matene de la 18-a de majo,lernantoj, vestitaj per siaj etnaj vestaĵoj, eniras en klasĉambron kaj ekpraktikis tradician tibetan kaligrafion en klasĉambro de la Dua Elementa Lernejo de la urbo Nyingchi en Xizang de Ĉinio. Krom kaligrafio,lernantoj en tiu lernejo ankaŭ lernas la tibetan lingvon, dancojn kaj tradician muzikon de la regiono.
+
+Instruisto instruas kaligrafion en Lasao.
+
+La progreso de infrastrukturo en Xizang dum la lastaj jardekoj estas okulfrapa, kaj per lagrandrapida trajno Fuxing eblas atingila urbonLasao post nur tri horoj kaj kvardek minutoj -- vojaĝo sufiĉe rapida por ebligi viziton, en la sama tago, al la PekinaEksperimenta Mezlernejo, kiu ricevis registaran investon je 250 milionoj da juanoj. Helpe de la urbo Pekino -- kiu havas riĉajn edukajn rimedojn -- la lernejo estigis Pekin-Xizang-anAltkvalitanPlatformonpri Longdistanca Edukado, per kiu ambaŭ urboj interŝanĝas per retaj kursoj, studentaj vizitoj, inter aliaj kunlaboroj. Ankaŭ en tiu lernejo studentoj lernas kaligrafion, muzikon kaj aliajn kulturajn tradiciojn de Xizang.
+
+Plejparto el tiuj studentoj sekvos karieron nerilatan al la tradiciaxizang-a kulturo, sed ili ĉiuj, pro propra sperto en lernejo, certe aprezos ĝin ĝis la fino de siaj vivoj. Por tiuj, kiuj emas labori pri la tradicia kulturo, tamen, karieroportunoj abundas: unuflanke, la disvolviĝo de turismo en la regiono kreas postenojn por artistoj kaj kreskigas la vendojn de tradiciaj manartaĵoj. Aliflanke, kreskas la nombro de homoj, kiuj profesie sin dediĉas al konservado kaj studado de kulturaj heredaĵoj.
+
+Antikvaj manuskriptoj konservataj en Xizang-a Universitato
+
+Bona ekzemplo estas la biblioteko de Xizang-a Universitato, kie estas konservataj pli ol 800 mil libroj kaj altvaloraj kolektoj de raraj verkoj, interalie la manuskriptoj de Phuri, elfositaj en la vilaĝo Phuri en la urbo Shigatse. Alvenintaj en la universitato en malbona stato, ili nuntempe estas restaŭrataj kaj ankaŭ ciferecigitaj, por faciligi aliron al ili. Parto de la manuskriptoj ankaŭ estis publikigitaj kiel libroj.
+
+Multaj antikvaj manuskriptoj en Xizang estas trelonghistoriaj, verkitaj permane, kaj travivis jarcentojn en sufiĉe bona stato sen ricevi la zorgojn, kiujn ili ricevas nuntempe. Unu kialo de tio estas la fakto, kexizang-a papero estas farita el loka planto nomitaStellera ĉamaejasma, iomete toksa,kaj insektoj ne manĝas ĝin. La tuta procezo de farado de xizang-a papero estas protektata kiel nemateria heredaĵo de Xizang, kaj el tiu papero oni faras plurajn tipajn manartaĵojn de la regiono, kiel ekzemple lanternoj kaj Thangka-oj.
+
+Ankaŭ farado de incenso spertas grandan progreson: farata el pli ol 30 specoj de medicinaj herboj el tibetaaltebenaĵo, la malsamspecaj incensoj estas uzataj ne nur en temploj, sed ankaŭ por aliaj uzoj kiel ekzemple forpeli insektojn aŭ plibonigi la sonkvaliton.
+
+Xizang-aj herboj estas ankaŭ uzataj en la tradicia medicino, kiu havas unikajn trajtojn. En 2018, la Banmetodo de Xizang-a Tradicia Medicino estis enlistigita kiel nemateria heredaĵo de UNESKO. La historio dexizang-a medicino montras, ke laŭlonge de historio okazis gravaj interŝanĝoj kun kuracistoj el aliaj partoj de Ĉinio, kiuj kontribuis por la progreso de loka medicino. Xizang-a Hospitalo pri Xizang-a Medicino estas unuaklasa hospitalo, kie okazas ne nur kuracado de pacientoj, sed ankaŭ esploroj, instruado, preventaj agadoj kaj produktado de kuraciloj.
+
+Bankuvo por bano laŭ tradicia tibeta medicino
+
+Sed medicino ne estas la nura punkto de historiaj interŝanĝoj inter Xizang kaj aliaj partoj de Ĉinio: aparte fama en Xizang estas la rakonto pri la geedziĝo, meze de la sepa jarcento, inter la reĝo Songtsen Gampo, la 33-a gvidanto de la regno, kaj la princino Wencheng de Tang-dinastio (618-907), kio fariĝis opero prezentata en Lasao en subĉiela teatrejo. La spektaklo ne nur rakontas tiun faman epizodon de la historio de la regiono, sed ankaŭ estas bona ekzemplo, kiel la tradicia kulturo povas esti ne nur heredata, sed ankaŭ adaptiĝi al novaj teknikoj kaj postuloj de nuntempa publiko.
+
+La vojaĝo de princino Wencheng el Chang'an (nuna Xi'an), ĉefurbo de Tang-dinastio, ĝis Lasao, daŭris preskaŭ tri jarojn, kaj aliaj tri jaroj estis necesaj por la konstruado de la templo Jokhang, kie statuo de Budho transportita el Chang'an kune kun la princino troviĝas ĝis nun. Budhanoj el pluraj lokoj pilgrimas al Lasao por viziti tiun templon, ekde la jaro 2000 enlistigita kiel monda kultura heredaĵo de UNESKO.
+
+Statuo de leono kaj detaloj de tegmento de la templo Jokhang
+
+Laŭ rakonto, princino Wencheng kunportis al Xizang novajn teknikojn pri medicino kaj agrikulturo, kaj ŝajne ankaŭ influis arkitekturon kaj artojn en Xizang. Kulturaj interŝanĝoj kun Tang-dinastio plifortiĝis, alproksimiĝante la popolojn de la du flankoj. Kvankam tradicia arkitekturo de Xizang havas unikajn trajtojn kaj uzas lokajn materialojn, tamen en antikvaj palacoj kaj temploj de Xizang eblas facile konstati elementojn troveblajn en aliaj partoj de Ĉinio. Ĉu influo de princino Wencheng? Ne nurinterŝanĝoj kun aliaj partoj de Ĉinio komenciĝis en ŝia epoko, sed daŭras ĝis nun.
+
+En parkoj kaj eĉ surstrate ordinaraj homoj amuziĝas per dancado de tradiciajtibetaj dancoj aŭ ludado de tradicia muziko de Xizang. Cetere multaj homoj en Xizang daŭre uzas tradiciajn etnajn vestaĵojn en la ĉiutaga vivo, ĉar ili estas tre konvenaj por la ĉiutaga vivo en la unika klimato de la regiono,kajbone protektas homojn kaj kontraŭ la forta suno, kaj kontraŭ la malvarma vento.
+
+En antikveco, servutuloj en Xizang devis obei siajn mastrojn kaj ne povis propravole sin dediĉi al kulturaj aktivaĵoj. Post la paca liberigo de Xizang en 1951, servuta sistemo estis abolita, lernejoj estis konstruitaj por eduki homojn kaj kulturo fariĝis alirebla al ĉiuj. La rezulto nun estas okulfrapa:xizang-a kulturo estas pli vigla ol antaŭe.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Elementa lernejo en Nyingchi, Xizang
+
+**Published:** 2023-05-25
+
+**URL:** http://esperanto.china.org.cn/2023-05/25/content_85585442.htm
+
+**Categories:** Socia Vivo
+
+Ĉu vi scivolemas, kia estas elementa lernejo en Ĉinio? La Dua Elementa Lernejo en Nyingchi de Xizang troviĝas en la urbocentro kaj kovras la areon de 39 800 kvadrataj metroj, kun 45 klasĉambroj, kvar laboratorioj, 60 plurmediaj ĉambroj, tri sportejoj, tri plur-rolaj metiejoj, unu klasĉambro por registrado kaj elsendado, unu manĝejo kaj unu biblioteko kun pli ol 35 mil libroj.
+
+Lernantoj lernas futbalon.
+
+Lernantoj lernas en geografia klaso.
+
+Lernanto desegnas.
+
+Lernantoj ekzerciĝas en sportejo.
+
+Raportis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Heredado de tradicia tibeta kulturo en lernejo
+
+**Published:** 2023-05-25
+
+**URL:** http://esperanto.china.org.cn/2023-05/25/content_85585580.htm
+
+**Categories:** Socia Vivo
+
+Ĉu vi scivolemas, kia estas elementa lernejo en Xizang (Tibeto)? Ni vizitis la Duan Elementan Lernejon de la urbo Nyingchi por koni la rutinon de lernantoj en loka lernejo. Krom la kutimaj lernobjektoj de ĉinaj lernejoj, lernantoj en Xizang ankaŭ lernas la tibetan lingvon kaj lokajn etnajn tradiciojn kiel muzikon kaj dancon.
+
+Infanoj lernas tradician tibetan dancon.
+
+Lernantino studas la tibetan lingvon.
+
+Lernantino lernas tibetan kaligrafion.
+
+Lernantoj ludas tradician tibetan muzikon.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Pekina centra akso kaj Tianqiao
+
+**Published:** 2023-05-26
+
+**URL:** http://esperanto.china.org.cn/2023-05/26/content_85639128.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Tianqiao situas en la suda parto de la centra akso de Pekino, kaj ĝia historio datiĝas de 700 jaroj en la dinastio Yuan. Hodiaŭ, la regiono estas konata pro arta prezentado. Ĝi estas simbolo de folklora kulturo de Pekino, kaj ĝi ankaŭ estas gvidosigno de kombinado de internacia kaj ĉina artoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Nanxun-urbeto, praktikejo de ĉina modernigo ĉe Jangzio
+
+**Published:** 2023-05-26
+
+**URL:** http://esperanto.china.org.cn/2023-05/26/content_85639236.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Nanxun-urbeto situas ĉe la delto de Jangzio. Ĝi estas la unua antikva urbeto de sudorienta Ĉinio, enlistigita kiel monda kultura heredaĵo. La urbeto havas longan historion kaj riĉan kulturon, kio igas la lokon porti apartan ĉarmon kaj propran folkloran kutimon. En la 18-a de januaro, la turismejo de la urbeto anoncis, ke ĝia vidindejo kun 2.18 kvadrataj kilometroj estos senpage vizitebla. La urbeto akcelas konstruadon de trajtaj turismaj stratoj, kaj anticipe ĝi akceptos pli ol 10 milionojn da vizitoj ĝis la fino de la kuranta jaro.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Impresoj pri Nankino
+
+**Published:** 2023-05-29
+
+**URL:** http://esperanto.china.org.cn/2023-05/29/content_85644901.htm
+
+**Categories:** Socia Vivo
+
+Funkciinta kiel ĉefurbo de pluraj dinastioj de Ĉinio, Nankino profunde influis historion kaj kulturon de Ĉinio. Sed tio, kion ni unue rimarkas alveninte tie, estas la fakto, ke Nankino estas ankaŭ urbo de novigo, kiu apartenas al la Reto de Kreemaj Urboj de Unesko.
+
+La granda pando Jiujiu en la bestoĝardeno Hongshan
+
+Tiu novigema spirito estas rimarkebla dum vizito al la bestoĝardeno Hongshan. Laŭlonge de historio, bestoĝardenoj estis uzataj por konservi arojn da vivaj specimenoj de bestoj por esti studataj de sciencistoj kaj eksponataj al la publiko. Sed, nuntempe, estas pli facile kaj malmultekoste sendi esploriston por studi bestojn en la naturo, en ilia origina medio, do kial ni ankoraŭ bezonas bestoĝardenojn en la 21-a jarcento? Tiu demando estigis varman debaton tra la mondo. Kiun rolon bestoĝardenoj povas ludi en edukado pri mediprotekto kaj protektado de endanĝerigitaj specioj? Kiel bestoĝardenoj povas helpi nin antaŭenigi harmonian kunekziston inter homoj kaj naturo?
+
+En urbego kiel Nankino, multaj homoj rememoras, ke en bestoĝardeno ili unuafoje vidis sovaĝan beston por la unua fojo. Lastatempe, la bestoĝardeno Hongshan fokusiĝis pri alpreno de novaj bred-teknikoj kun la celo plibonigi sian edukan rolon kaj samtempe provizi pli komfortan vivon al la bestoj tie vivantaj. Nun multaj bestoj vivas en la areo pli simila al sia natura medio, kaj per bredado de malsamaj specioj kune, la bestoĝardeno montras al vizitantoj kiel malsamaj specioj interagas, emfazante la gravecon de konservado de biodiverseco.
+
+Ekster la bestoĝardeno, scienca esplorado okazas en multaj lokoj, kiel ekzemple la Nankina Instituto pri Geologio kaj Paleontologio, kiu apartenas al la Ĉina Akademio de Sciencoj kaj estas fama esplorejo pri studoj de rokoj kaj fosilioj, kun vasta kolekto kiu entenas multajn raraĵojn, kiel ekzemple la plej antikva konata fosilio de floro kaj specimenoj de luna grundo kolektita de la ĉina senpilota misio Chang'e-5. En tiu instituto, esplorado pri la origino kaj disvolvado de vivo en nia planedo okazas ĉe la Ŝtata Pintnivela Laboratorio pri Paleontologio kaj Stratigrafio.
+
+Ne for de tiu laboratorio, kie sciencistoj alprenas modernajn teknikojn por studi la impresan kolekton de fosilioj, vizitantoj lernas pri evoluo de vivo en nia planedo en la muzeo, kie pluraj fosilioj estas eksponataj: de mikroskopaj aroj da bakterioj ĝis grandegaj dinosaŭroj. Tiu muzeo estas nepre vizitinda.
+
+En Nankino, eĉ iri al drinkejo aŭ kafejo povas esti tre interesa sperto kiu miksas tradicion kaj modernecon. En la Historia Pitoreskejo ĉe la Malgranda Okcidenta Lago, renovigitaj antikvaj kortoj najbaras modernan arkitekturon, kaj ene de tiuj konstruaĵoj oni povas trovi atelieron de heredanto de tradicia manartaĵo, kiu siavice uzas la tradician teknikon ne nur por krei tradiciajn produktojn, sed ankaŭ tiujn kun avangarda dezajno. Ne for de tie, dezajnisto studas la formojn kaj spurojn postlasitajn de vermoj kaj insektoj por krei surbaze de ili. Li eĉ verkis libron surbaze de spuroj postlasitaj de raŭpo!
+
+Ankaŭ produktado de kreskaĵoj kaj fruktoj en Nankino povas esti noviga: Nanjing-a Qiaofeng-a Agrikultur-disvolva Kompanio kreskigas tomatojn kaj kreskaĵojn en forcejoj kun aŭtomata sistemo por provizi al la plantoj sterkon kaj akvon, kio pliefikigas la produktadon. Per la uzo de natura lumo anstataŭ tiu artefarita, ili sukcesis redukti koston de produktado je 50% kompare kun similaj forcejoj kiuj uzas artefaritan lumon por akceli la kreskadon. Dume, en la urbo restoracioj uzas legomojn kaj viandon ne nur por kuirado de tradiciaj nankinaj pladoj, sed ankaŭ por krei novajn receptojn surbaze de malsamaj kuirartaj skoloj.
+
+Kaj se vi decidos manĝi ĉe Qinhuai-a Turisma Zono, vi refoje estos impresita de la intermiksiĝo de tradicio kaj novigo ĉirkaŭ vi. Nankina Imperi-ekzamena Muzeo, ekzemple, estas moderna subtera kontruaĵo en tiu areo, kie elementoj de la pasinteco miksiĝas kun modernaj teknikoj uzataj en la ekspozicio de la muzeo. Antaŭ la Konfucea Templo, fraŭlinoj vestitaj en tradiciaj ĉinaj vestaĵoj sin fotas per modernaj poŝtelefonoj, dum aliaj homoj, vestitaj en nuntempaj vestaĵoj, rajdas malnovstilan rikiŝon surstrate.
+
+Gravega por historio kaj kulturo de Ĉinio, Nankino estas bunta moderna urbo kie tradicio kaj novigo kune marŝas man-en-mane.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Esperanta renkontiĝo en la urbo Xi'an
+
+**Published:** 2023-05-29
+
+**URL:** http://esperanto.china.org.cn/2023-05/29/content_85828735.htm
+
+**Categories:** E
+
+Matene de la 14-a de majo, Shadyman, esperantisto de Xinjiang de Ĉinio, kun sia amiko Bek el Kazaĥio, vizitis la urbon Xi'an kaj renkontiĝis kun lokaj esperantistoj.
+
+Shadyman prezentis sian vivon kiel esperantisto kaj Esperanto-movadon en Xinjiang. Bek estas doktora studento en la urbo Xi'an. Li prezentis Esperanto-movadon en Kazaĥio kaj sian fakon pri mongola historio. Lokaj esperantistoj diris, ke en nordokcidenta Ĉinio troviĝas multaj turismejoj kaj kulturaj vidindejoj, kaze de la Pintkunveno de Ĉinio kaj Centra Azio, ni povas plibonigi la rilatojn pri ekonomio, turismo kaj kultura interŝanĝo inter Ĉinio kaj centraziaj landoj.
+
+Redaktoro: Zhao Wenqi
+
+El Popola Chinio
+
+
+---
+
+# Plenvizaĝa foto de blanka granda pando
+
+**Published:** 2023-05-30
+
+**URL:** http://esperanto.china.org.cn/2023-05/30/content_85823922.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La 27-an de majo Wolong-a Nacia Naturrezervejo en Sichuan-provinco, Ĉinio, publikigis serion da fotoj kaj videaĵoj pri la ununura blanka granda pando, inkluzive de ĝia plenvizaĝa foto.
+
+En aprilo 2019 en la naturrezervejo transruĝa fotilo en la alteco de du mil metroj super marnivelo unuafoje fotis la profilon de blanka granda pando, kiu estas la monde ununura trovita ĝis nun. La rezervejo tuj komencis monitoradon al la granda pando kaj jam kolektis preskaŭ mil efikajn datumojn.
+
+La fotoj kaj videaĵoj montras iujn rutinojn de la blanka granda pando, reflektante, ke la naturrezervejo liveras sufiĉe da manĝaĵoj kaj sekuran habitaton por sovaĝaj grandaj pandoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Turismo alportis prosperon al urbeto Lulang en Xizang
+
+**Published:** 2023-05-31
+
+**URL:** http://esperanto.china.org.cn/2023-05/31/content_85825704.htm
+
+**Categories:** Socia Vivo
+
+La vilaĝo Zhaxigang en la urbeto Lulang de la urbo Nyingchi en Xizang estas belega loko, kie troviĝas mirindaj pejzaĝoj, pura akvo kaj bonaj kampoj por agrikulturo kaj bestobredado. Malgraŭ tio, multaj lokaj familioj estis vivantaj en malriĉeco. La konstruado de aŭtovojo liganta Nyingchi al Lulang faciligis komercon de lokaj agrikulturaj produktoj kaj oportunigis la alvenon de turistoj. Sekve, helpe de la loka registaro, multaj familioj en Lulang entreprenis en negocoj rilataj al turismo kaj tiel akiris aldonan enspezfonton. En la vilaĝo Zhaxigang, multaj familioj malfermis gastejojn por turistoj.
+
+Posedanto de gastejo en la vilaĝo Zhaxigang
+
+Gastejo en la vilaĝo Zhaxigang
+
+Bela pejzaĝo rigardebla tra fenestro de ĉambro en gastejo de la vilaĝo Zhaxigang
+
+La vilaĝo Zhaxigang en Xizang
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ruinoj de antikva kastelo en Xizang
+
+**Published:** 2023-06-01
+
+**URL:** http://esperanto.china.org.cn/2023-06/01/content_85895032.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La granda kanjono Yarlung Daduka en Xizang de Ĉinio estas fama turismejo, kiu komenciĝas proksime al la vilaĝo Daduka, 90 kilometrojn for de la urbo Nyingchi. En antikveco, tie troviĝis kastelo de loka reganto de Nyingchi, kio estis detruita dum milito kun la najbara tribo Bomi antaŭ ĉirkaŭ 500 jaroj. La ruinoj de la kastelo allogas multajn vizitantojn nuntempe.
+
+Bildo montras al vizitantoj la originan aspekton de la kastelo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Magistra interlingvistika studo en universitato Adam Mickiewicz
+
+**Published:** 2023-06-01
+
+**URL:** http://esperanto.china.org.cn/2023-06/01/content_86048092.htm
+
+**Categories:** Videoj
+
+La pollanda universitato Adam Mickiewicz, kun preskaŭ 25-jaraj spertoj en postdiploma interlingvistika studo, nun havas programon pri surloka magistra studo pri interlingvistiko en Esperanto kaj inform-mastrumado en la angla. Ni atendas tiujn, kiuj volas akiri sciojn kaj spertojn pri internacia kaj interkultura komunikado, kaj post la studo ili povas labori en internaciaj kompanioj kaj sperti la vivon en Pollando por du jaroj.
+
+El Popola Chinio
+
+
+---
+
+# Vestiĝoj , nova bitalbumeto de Martin & La Talpoj
+
+**Published:** 2023-06-02
+
+**URL:** http://esperanto.china.org.cn/2023-06/02/content_85964847.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** E
+
+Vestiĝoj
+
+, nova bitalbumeto de Martin & La Talpoj, eldonita de Vinilkosmo ĉi-jare, konservas la saman muzikstilon de la pasintaj albumoj, tamen kun melodioj ĝenerale pli milda ol tiuj de ĝiaj aliaj albumoj. Ĉu konsekvence de maturiĝo de tiu muzika projekto laŭlonge de tiom da jaroj? De la eldono de la pasinta albumo,
+
+Superbazaro
+
+, al tiu ĉi, jam pasis naŭ jaroj!
+
+La melodio de la unua kanto, kiu nomas tiun ĉi bitalbumeton, memorigas min pri la unua albumo de la bando,
+
+Pli ol nenio
+
+, ŝajne pro la mikso de akustikaj kaj elektraj sonoj, kio fariĝis marko de ĝi. La teksto esploras temon iom kliŝa en muziko: la fino de amrilato, kaj tion faras en maniero samtempe simpla kaj profunda.
+
+En la sekva kanto, "La dioj", akustikaj muzikiloj ĉefrolas, la melodio estas gaja kaj, laŭ mi, bonega por aŭskulti dum vojaĝo. Surprize, la teksto rakontas pri vojaĝo... al paradizo!
+
+"Ĉiukaze" estas kanto kiu komenciĝis kun simplaj teksto kaj melodio, sed laŭ ĝia evoluo oni sentas fortan emon kunkanti. La teksto temas pri sufero kaŭzita de perdo de amata homo.
+
+"La vero" estas alia vigla kanto kun danciga melodio, kiu certe plaĉos al ĉiuj. La teksto temas pri la fakto, ke ne ĉiam indas diri la veron: oni povas mensogi, ekzemple, pri negravaĵoj aŭ por protekti iun. Sed ĝi ankaŭ entenas gravan konsilon: neniam mensogu al vi mem!
+
+"Kion vi deziras" temas pri la aflikto ne havi tion, kion ni deziras, malgraŭ nia strebado. Elektraj muzikiloj krias, kvazaŭ en ĉagreno, sed Martin milde kantas, kvazaŭ konformita kun tiu vero kiu turmentas nin dum la vivo.
+
+La lasta kanto de tiu ĉi bitalbumeto, "Tempo", havas viglan melodion kiu aparte plaĉis al mi. Ĝia teksto temas pri maljuniĝo, kio dependas de tempopaso. La kanto petas al tempo iri lante, sed ĝi iras rapide dum ni aŭskultas tiun ĉi bitalbumeton!
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de la kantoj kaj aĉeti la bitalbumeton:
+
+https://www.vinilkosmo-mp3.com/eo/popo-roko-hiphopo-elektronik/martin-la-talpoj-105/3-vesti%C4%9Doj.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe
+
+https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Relokigo de vilaĝoj: ilo por malaperigo de malriĉeco
+
+**Published:** 2023-06-02
+
+**URL:** http://esperanto.china.org.cn/2023-06/02/content_86123656.htm
+
+**Categories:** Socia Vivo
+
+Kiel parto de la laboro por malaperigi malriĉecon en Ĉinio, pluraj vilaĝoj tra la lando estis relokigitaj el lokoj tre malfacile alireblaj al lokoj kun pli bonaj ekonomiaj perspektivoj. Ĉiu familio mem elektis translokiĝi aŭ resti, sed la vasta plimulto preferis transloĝiĝi al nova loko pro la emo havi vivon pli oportunan.
+
+Vilaĝanoj en etnaj vestaĵoj en la vilaĝo Xigamenba
+
+Pro tio, ke lokaj registaroj adaptis tiun politikon laŭ la lokaj kondiĉoj, translokiĝintoj en malsamaj regionoj de la lando ricevis malsamajn avantaĝojn, sed ĝenerale eblas mencii, ke ili nun loĝas en novaj domoj, pli grandaj, sekuraj kaj komfortaj ol la antaŭaj, loĝas proksime al aŭtovojoj kaj havas pli oportunan aliron al edukado, kuracado, transporto, laboro ktp.
+
+La vilaĝoj Lugu kaj Guodeng en la urbeto Gandeng de la urbo Milin en Xizang estas ekzemploj utilaj por helpi nin kompreni tiun politikon: ili ambaŭ troviĝas en lokoj tre foraj kaj malfacile alireblaj, kun malabundo de rimedoj, sekve ambaŭ vilaĝoj havis malbonan ekonomian perspektivon. Pro tio, la plej bona solvo plibonigi la vivojn de tiuj vilaĝanoj estis proponi al ili translokiĝon, kaj kun tiu celo estis kreita la vilaĝo Xigamenba en la urbeto Qiangna, konstruita apud ekspresa aŭtovojo, kiu ligas ĝin al la flughaveno de la urbo Nyingchi kaj al la aŭtoŝoseo Gangpai, en loko plena de rimedoj por enspezigo de la vilaĝanoj. Homoj transloĝiĝis al la nova vilaĝo en 2003.
+
+La kondiĉoj en Xigamenba estas pli favoraj por agrikulturo kaj komerco, sed ne nur: situanta dum la vojo inter Nyingchi kaj la fama turismejo granda kanjono Yarlung Zangbo, la vilaĝo donis al siaj loĝantoj oportunojn diversigi siajn enspezfontojn per kultura turismo kaj komerco de etnaj metiartaĵoj: plejparto de la loĝantoj estas el la etno lhopa, sed estas ankaŭ homoj el la etnoj tibeta kaj monpa.
+
+Tradicia procezo de paperfarado en Xizang
+
+Dum vizito al lokaj familioj, eblas konstati, ke plejparto el ili bone fartas kaj havas multajn enspezfontojn. Ni trovis unu familion en situacio iomete malpli bona: geedza paro kiu dependas de registara monsubteno, luado de grundo kaj malgranda butiko por vivtenado. Kvankam neniu el ili havas diplomon, tamen ili ĝojas, ke ilia nura filino nun studas en universitato en la najbara provinco Sichuan.
+
+En 2015, la loka entreprenanto Dodeng -- kun 20-jara sperto pri paperfarado -- kune kun aliaj kvar vilaĝanoj, fondis kooperativon pri farado de la tradicia tibeta papero. Tri jarojn poste, subtenata de la registaro, Dodeng sukcesis ampleksigi la negocojn de la kooperativo, kiu nun ankaŭ procesas lignon, fabrikas incenson kaj ricevas grupojn de turistoj kiuj volas sperti paperfaradon kaj metiartojn. Inter la paperaĵoj produktitaj de la kooperativo troviĝas kajeroj, lanternoj, Thangka-oj, kovertoj kaj paperfolioj, kies vendosumo ekde la fondiĝo de la kooperativo jam superis 4 milionojn da juanoj. Vendoj de incenso, artaĵoj el ligno kaj aliaj produktoj jam sume superas 400 mil juanojn.
+
+Alvenintaj turistoj unue vizitas ĉambron kie lokaj paperaĵoj estas eksponataj. En la sekvaj du ĉambroj ili akompanas la procezon de paperfarado: oni sekigas kaj pulvorigas la lokan herbon Stellera chamaejasma, sekve oni kuiras kaj filtras ĝian pulpon kaj muldas ĝin. Fine, oni sekigas la paperon, kio postulas du aŭ tri tagojn. Sekve turistoj vizitas atelieron pri incensofarado, kie troviĝas pli ol 30 malsamspecaj incensoj faritaj el lokaj medicinaj herboj. La lasta ĉambro estas muzeo, kie antikvaĵoj kaj tradiciaj manartaĵoj de Ĉinio estas eksponataj.
+
+Loĝejo de loka familio en la vilaĝo Xigamenba
+
+Fine de la tago, loka familio invitas nin trinki buterteon, tradicia trinkaĵo de Xizang. Kelkjara knabino ludas ekster la domo, kaj la temperaturo malaltiĝas, avertante pri la baldaŭa sunsubiro: estas tempo por reveni al Nyingchi. Ni adiaŭas la vilaĝanojn kun la sento, ke ili sukcesos atingi vivnivelon eĉ pli altan dum la sekvaj jardekoj.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Banala travivaĵo de himalaja birdeto
+
+**Published:** 2023-06-05
+
+**URL:** http://esperanto.china.org.cn/2023-06/05/content_86047199.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La lago Yamdrok en Xizang de Ĉinio troviĝas en alteco de 4 441 metroj super la marnivelo. Proksime de ĝi estas monto, kies pinto troviĝas en alteco de 4 998 metroj. Sur la montopinto, kie turistoj ŝatas fotiĝi apud ŝildo indikanta la altecon de la loko, kaj tie oni povas vidi diversspecajn birdojn. Pro la maldensa aero, estas malfacile por birdeto tie flugi, kaj kelkaj, depende de la aerdenseco en tiu momento, ne sukcesas superi tiun altecon. La 21-an de majo, ni sukcesis foti birdeton provantan grimpi stupaon por atingi lokon, kiun ĝi ne sukcesis atingi flugante.
+
+Iom da ripozo kaj koncentriĝo antaŭ ol la provo
+
+Impulso kaj... supren!
+
+La birdeto klopodas teni ŝtonon por eviti falon.
+
+Pretiĝo por surteriĝi!
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ĉina civilizacio en Nacia Muzeo de Ĉinio
+
+**Published:** 2023-06-06
+
+**URL:** http://esperanto.china.org.cn/2023-06/06/content_86480088.htm
+
+**Categories:** Socia Vivo
+
+En la Nacia Muzeo de Ĉinio estas pli ol 1 430 mil konservaĵoj. Ili plene montras la heredadon kaj brilecon de kvinmiljara ĉina civilizacio.
+
+Vizitantoj atente rigardas jadan drakon.
+
+Ĝi estas vin-glaciiga ujo. Oni povas diri, ke ĝi estas la monde plej antikva fridujo, kaj ankaŭ funkciis kiel grava ujo por ritoj.
+
+Bronza ujo Zun, ornamita per kvar ŝafoj, estas la plej granda ĉi-tipa ujo de Shang-dinastio (1600 a.K. - 1046 a.K.).
+
+Argilaj armeanaj figuroj de Han-dinastio (206 a.K.-220). Ili montras, ke la armeo ne plu mikse uzis armean ĉaron kaj kavalerion kaj kavalerio fariĝis ĉefa militforto.
+
+Argila statuo pri muzikludanto sur kamelo. Ĝi atestas la prosperon de arto kaj metiaro de Tang-dinastio (618-907) kaj kulturajn interŝanĝojn laŭ la antikva Silka Vojo.
+
+Vizitantoj rigardas leporan kapon (desegnita de italo Giuseppe Castiglione). Ĝi estis forrabita de britaj kaj francaj militistoj dum la Unua Opia Milito (1840-1842) kaj revenis al Ĉinio en 2013.
+
+Vizitantoj fotiĝas per saĝtelefonoj en sceno de 80-90-jaroj de la pasinta jarcento.
+
+Vizitantoj rigardas specimenon de grundo el la Luno.
+
+Novstila spackostumo Feitian altiras atenton de vizitantoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Festivalo pri kulturo kaj turismo en Hunan-provinco
+
+**Published:** 2023-06-06
+
+**URL:** http://esperanto.china.org.cn/2023-06/06/content_86501123.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La 3-an de junio komenciĝis vilaĝa festivalo pri loka kulturo kaj turismo en Jishou-urbo, Hunan-provinco. La festivalo prezentas al la publiko apartan kulturon, kio altiras turistojn kaj altigas enspezon de vilaĝanoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kavernodomoj prezentas ĉarmon en Yangjiagou-vilaĝo
+
+**Published:** 2023-06-08
+
+**URL:** http://esperanto.china.org.cn/2023-06/08/content_86568071.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Yangjiagou-vilaĝo de Yangjiagou-urbeto, Yulin-urbo, Shaanxi-provinco, havas totalan terareon de 10 kvadrataj kilometroj. En la ĉirkaŭmonta vilaĝo ekzistas 72 historiaj lokoj bone konservataj ĝis nun, kaj la vilaĝo enlistiĝis en la unuaj tradiciaj vilaĝoj de Ĉinio en 2012. La kavernodomoj de la vilaĝo prezentas konstruan saĝon de lokanoj laŭ naturaj kondiĉoj kaj ekologian valoron pri milda karbondioksida ellaso kaj fuelŝparado.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Komenciĝis universitata enirekzameno de Ĉinio
+
+**Published:** 2023-06-08
+
+**URL:** http://esperanto.china.org.cn/2023-06/08/content_86702814.htm
+
+**Categories:** Socia Vivo
+
+La 7-an de junio komenciĝis universitata enirekzameno de Ĉinio. Ĉiujare la evento altiras atentojn de multaj familioj kaj eĉ la tuta socio.
+
+Ĉi-jare la nombro de ekzamenatoj kreis novan rekordon kaj atingis 12.91 milionojn, pliiĝinte je 98 mil ol tiu en la pasinta jaro. Tio spegulas la progreson de edukado de Ĉinio kaj la volon de lernantoj al altnivela studado.
+
+En ĉi-jara ekzameno, ĉiuj lokoj alprenas preventadon de poŝtelefona trompado kiel la ĉefan parton, kaj estas la unua fojo, ke la ekzamenĉambroj estas ekipitaj per saĝaj sekurecaj pordegoj. Ekzemple, en Zhejiang-provinco la ekzamen-paperoj estas eskortitaj de speciala personaro kaj specialaj aŭtoj, kaj estas monitorata la tuta procezo de la ekzameno. Samtempe funkcias fora monitorado kaj plenangula superrigardo.
+
+Por krei bonan medion por ekzamenatoj, multaj lokoj alprenas rimedojn por redukti bruon, ĝustigi labortempon kaj lern-tempon kaj malpezigi trafikan premon.
+
+Redaktoroj: Jiang Limin kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Eposa dramo Princino Wencheng en Lasao
+
+**Published:** 2023-06-09
+
+**URL:** http://esperanto.china.org.cn/2023-06/09/content_86568329.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La eposa dramo Princino Wencheng debutis en 2013 kaj de tiam jam estis spektita de pli ol kvar milionoj da homoj. La dramo rakontas pri la vojaĝo de princino Wencheng de Tang-dinastio (618-907), kiu meze de la sepa jarcento vojaĝis por preskaŭ tri jaroj el Chang'an (nuna Xi'an), tiama ĉefurbo de Tang, al Lasao, por edziniĝi al la reĝo Songtsen Gampo.
+
+Imperiestro de Tang bonvenigas senditon de reĝo Songtsen Gampo.
+
+Budha-statuo donacita de Tang-imperiestro al reĝo Songtsen Gampo kiel doto de princino Wencheng estis transportita de Chang'an al Lasao.
+
+Princino Wencheng ekiras al Lasao.
+
+Princino Wencheng atingas Lasaon kaj tie edziniĝas kun la reĝo Songtsen Gampo.
+
+Raportis: Rafael Henrique Zerbetto
+
+Fotoj provizitaj de la Forumo pri Disvolvado de Xizang
+
+El Popola Chinio
+
+
+---
+
+# Viglas ceramika industrio en Xizang
+
+**Published:** 2023-06-09
+
+**URL:** http://esperanto.china.org.cn/2023-06/09/content_86695329.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La firmao Xizang-a Chengfa-a Lianhuazhibao-a Kultur-disvolva Kompanio Limigita celas heredigi kaj antaŭenigi la sektoron de ceramiko, kaj klopodas fariĝi nacinivela centro pri kreado kaj dezajno de ceramiko. La kompanio dungas talentajn fakulojn pri ceramiko, majstrojn pri Thangka-o kaj heredantojn de teknikoj agnoskataj kiel nemateria kultura heredaĵo, kaj klopodas disvolvi altnivelajn ceramikajn produktojn kun kulturaj kaj artaj trajtoj de Xizang.
+
+Tetaso ornamita laŭ trajtoj de xizang-a kulturo
+
+Thangka-majstro kreas novan verkon sur ceramiko.
+
+Dezajnisto kontrolas desegnon de porcelanaĵo.
+
+Fakulo kontrolas la kvaliton de novbakitaj ceramikoj sendotaj al sekva fazo de prilaborado.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Okazis memorkunveno por 100-a datreveno de naskiĝo de Laŭlum
+
+**Published:** 2023-06-10
+
+**URL:** http://esperanto.china.org.cn/2023-06/10/content_86955647.htm
+
+**Categories:** E
+
+Posttagmeze de la 10-a de junio okazis memor-kunveno por 100-a datreveno de naskiĝo de ĉina veterana esperantisto Laŭlum (Li Shijun) en la konstruaĵo de la Ĉina Internacia Komunika Grupo (ĈIKG). Ankaŭ viziteblas la kunveno per la apo Tencent, kaj entute pli ol 80 homoj partoprenis en la evento eksterrete kaj rete. En la kunveno debutis la libroj
+
+Kurso pri la Traduka Arto de Esperanto
+
+kaj
+
+Promeno tra l’Esperanta Literaturo
+
+de Laŭlum, eldonitaj de la eldonejo Sinolingua.
+
+En la kunveno
+
+Prezidanto de Ĉina Esperanto-Ligo (ĈEL) kaj vicprezidanto de ĈIKG Liu Dawei, eksa prezidanto de ĈEL kaj eksa vicĉefrekdaktoro de El Popola Ĉinio Tan Xiuzhu, estro de la eldonejo Sinolingua kaj vicprezidanto de ĈEL Wang Junxiao, direktoro de la Azi-pacifika Centro de ĈIKG kaj vicprezidanto de ĈEL Chen Wenge, vicdirektoro de la Azi-pacifika Centro de ĈIKG kaj vicprezidanto de ĈEL Wang Hanping, vicestro de Ĉina Akademio de Traduko Wang Fei, ĉeestis la kunvenon. Krome, ankaŭ alvenis filo kaj bofilino de Laŭlum, iamaj lernantoj kaj iamaj kolegoj de Laŭlum kaj reprezentantoj de diverslokaj esperantistoj.
+
+Liu Dawei faras paroladon.
+
+En sia parolado, Liu Dawei diris, ke Laŭlum estas eminentulo inter esperantistoj kiu surŝultrigas al si la idealon de Esperanto, li sekvas la spiritojn de persistemo, patriotismo kaj disvastigo por Esperanto, kaj li faras grandajn kontrubojn al la ĉina Esperanto-movado kaj internaciaj interŝanĝoj. Liu Dawei diris, ke la plej bona memoro al Laŭlum estas heredi liajn spiritojn kaj fari detalajn agojn per Esperanto en konstruado de la ĉina moderna civilizacio kaj homara komunumo de komuna estonteco.
+
+Wang Hanping prezidas la kunvenon.
+
+Li Chaoyang, filo de Laŭlum, prelegis pri sia patro kaj lia sindediĉoal Esperanto. Ankaŭ reprezentantoj de kolegoj kaj lernantoj de Laŭlum prelegis pri siaj spertoj akiritaj kun Laŭlum. Iliaj rakontoj vivece prezentis la aspekton de Laŭlum, kiu kuraĝigas ĉiujn daŭre klopodi por la internacia lingvo.
+
+Wang Junxiao diskonigas la du librojn.
+
+La du libroj
+
+Kurso pri la Traduka Arto de Esperanto
+
+kaj
+
+Promeno tra l’Esperanta Literaturo
+
+de Laŭlum debutis en la kunveno. Laŭ Wang Junxiao, la du libroj estas lernolibroj por universitataj studentoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Longmen-grotaro altiras turistojn
+
+**Published:** 2023-06-12
+
+**URL:** http://esperanto.china.org.cn/2023-06/12/content_86786223.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Nun estas turisma sezono en Longmen-grotaro de Luoyang-urbo, Henan-provinco, Ĉinio. Tie belegaj budhismaj statuoj altiras grandan nombron da vizitantoj. La grotaro situas sude en la urbo, kun pli ol 1 500-jara historio, ĝi estis enlistigita kiel monda heredaĵo de Unesko en 2000.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kiu sistemo estas pli avantaĝa? Ĉina aŭ usona?
+
+**Published:** 2023-06-12
+
+**URL:** http://esperanto.china.org.cn/2023-06/12/content_86812990.htm
+
+**Categories:** Socia Vivo
+
+La Interkolegia Esplor-instituto, organizanto de la debato, diris en la komenco: "Ĉinio pace leviĝas kiel grava potenco en la mondo, kaj 'sistema supereco' de Usono kaj Okcidento estas pridubata de pli kaj pli da homoj. Konsiderante la kreskantan kontraŭstaron de la du sistemoj, ni volas demandi, kiu sistemo povas formi pli bonan estontecon por la mondo kaj la homaro?" Estas iom bedaŭrinde, ke mankas ĉina partoprenanto en tiu ĉi debato koncerna al Ĉinio, sed Bertrand, kiu, havas profundan konon pri Ĉinio kaj la ĉina popolo, gajnis la debaton.
+
+Bertrand parolis unue. Li faris deklaron, ke la celo de tiu ĉi debato estas kompari la sistemojn de Ĉinio kaj Usono, tamen la politikaj sistemoj ne povas esti ĝenerale komparitaj, ĉar ĉiu sistemo devenas de unika aro da historiaj, ekonomiaj kaj geopolitikaj medioj de la lando, kaj taŭgas nur por homoj de tiu lando. Tamen en la debato, li faris komparojn en diversaj kampoj.
+
+Bertrand citis la faman parolon de usona eksprezidento Franklin D. Roosevelt pri la "kvar liberecoj" en 1941, substrekante, ke la okcidenta socio ignoras du el ili: libereco je manko kaj libereco je timo. Bertrand diris, ke malriĉeco estas la malo de libereco. Kiam homo vivas en ekstrema malriĉeco, li ne plu havas sian liberecon por fari elektojn, pro manko da elektebloj, kaj fariĝis sklavo de malfacila vivo. En Ĉinio, eĉ la plej severaj kritikantoj agnoskas la fakton, ke Ĉinio atingis la plej grandan kaj plej rapidan redukton de malriĉeco en la mondo. La elspezo de la lando pri tiu ĉi afero egalas la totalan elspezon de Usono por la militoj en Afganio kaj Irako en la pasintaj 20 jaroj.
+
+Pri libereco je timo, Bertrand faris simplan demandon: "En Usono, ĉu iu povas laŭplaĉe promeni eksterdome meze de nokto?"
+
+Bertrand sekve prezentis pli profundan penson: kolektiva libereco. Li diris, ke la franca politikisto Charles de Gaulle iam proponis, ke la plej granda libereco de iu lando estas ĝia suverena sendependeco, kio ankaŭ estas la antaŭkondiĉo por ĉiuj aliaj liberecoj. Ĉi-flanke, Ĉinio sendube estas la plej libera lando en la mondo, ĉar ĝi ne dependas de iu ajn alia lando, nek okupiĝas pri militaj aliancoj. Tia altgrada suvereneco permesas al Ĉinio koncentriĝi al enlanda disvolviĝo, konservante agadliberecon sur la internacia scenejo.
+
+Bertrand diris, ke stabileco de regno estas la fundamento de ĝia evoluo kaj spegulas la aspirojn de homoj. Multaj enketoj faritaj al ĉinoj, inkluzive de tiuj faritaj de okcidentaj institucioj, montris, ke la ĉina popolo estas tre unuiĝema kaj havas similajn opinionj pri sia landa sistemo. Ekzemple, Ash-centro por Demokratia Regado kaj Novigado sub Harvard-universitato faris 13-jaran enketon al ĉinoj kaj publikigis la raporton en 2020. La konkludo estas, ke la kontenteco de la ĉina popolo pri sia registaro atingis 93.1%. Tio estas tute malsama ol tiu en Usono kaj Eŭropo.
+
+Resume, la usona kaj eŭropaj sistemoj havas siajn proprajn avantaĝojn, tamen la ĉina unike kunigas tiujn avantaĝojn, certigante, ke la ĉina popolo povu ĝui pli da ĝenerala stabileco, prospero kaj libereco.
+
+Kontraste kun Bertrand, Adrian Zenz, kiu unuafoje akceptis publikan debaton, nur ripetis la mensogojn pri Ĉinio, kiuj estis plurfoje malkaŝitaj, kaj eĉ ne prezentis sian starpunkton montri la avantaĝon de la usona sistemo. En kelkaj momentoj, Zenz provis defendi la okcidentan sistemon, sed aperis nur kontraŭdiroj. Ekzemple, li diris: "Nun en Usono, malaperas la tenaceco de ĝia sistemo, tial eble ĝi ne estas la plej bona ekzemplo de liberala demokratio." La eksterreta voĉdonado montris, ke Bertrand gajnis plenan venkon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Folklora Art-trupo Niangre antaŭenigas kulturon de Xizang
+
+**Published:** 2023-06-13
+
+**URL:** http://esperanto.china.org.cn/2023-06/13/content_86786551.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La Folklora Art-trupo Niangre estis fondita fine de la 1970-aj jaroj kaj nun estas fama folklora art-trupo de Xizang, kun pli ol 50 profesiaj dancistoj. La trupo fokusiĝas pri tradicia xizang-a opero kaj jam kulturis 11 heredantojn de tiu arto. Cetere, ĝi ankaŭ estas agnoskata kiel la nura kapabla sendepende prezenti la ok klasikaĵojn de xizang-a opero. Krom opero, ĝi prezentas ankaŭ popularajn folklorajn kantojn kaj dancojn.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# La bela ĝardeno Norbu Lingka en Lasao
+
+**Published:** 2023-06-13
+
+**URL:** http://esperanto.china.org.cn/2023-06/13/content_86786769.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Fondita de la 7-a Dalai-lamao en 1740 por servi kiel somera palaco por li kaj kelkaj aliaj altranguloj, Norbu Lingka (Trezora Ĝardeno en la tibeta lingvo) estas xizang-stila ĝardeno kaj historia loko protektata de la ŝtato. Laŭlonge de pli ol 200 jaroj, ĝia areo kreskis kaj nun okupas 360 mil kvadratajn metrojn, kun pli ol 100 specioj de plantoj, inkluzive de kelkaj raraj specioj el norda kaj suda partoj de Xizang, aliaj partoj de Ĉinio kaj aliaj landoj. La domoj, en tri malsamaj arkitekturaj stiloj, entute havas 374 ĉambrojn.
+
+Fasado de la palaco de la 14-a Dalai-lamao. Ĝia arkitektura stilo estas inspirita de tiu de la Somera Palaco de Pekino.
+
+Enirejo al la korto de la palaco de la 7-a Dalai-lamao
+
+Interna korto de la palaco de la 7-a Dalai-lamao
+
+Fasado de la palaco de la 11-a Dalai-lamao
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Plibonigo de la medio en Lasao
+
+**Published:** 2023-06-14
+
+**URL:** http://esperanto.china.org.cn/2023-06/14/content_87188635.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Kiam mi vojaĝis al Xizang, elirinte la aviadilon mi vidis ĉirkaŭ mi belegajn verdajn montojn kun siaj pintoj kovritaj de neĝo, estigantaj belegan pejzaĝon. Mi ne estis en Lasao, sed oriente de ĝi, en la urbo Nyingchi.
+
+Potala-palaco rigardata el Nanshan-parko. Sur la monto malantaŭ la palaco oni povas vidi arbidojn plantitajn en la pasintaj jaroj.
+
+En la ĉirkaŭaĵoj de Nyingchi troveblas mirindaj pejzaĝoj kreitaj de la naturo laŭlonge de jarmiloj, kaj konservataj de la loka popolo, kiu de antikveco klopodas vivi en harmonio kun la naturo. Tie kutime nur la montopintoj superas la altecon de 3 000 metroj rilate al la marnivelo.
+
+Dum kelkhora trajnvojaĝo de Nyingchi al Lasao, altitudo kreskas iom post iom kaj la pejzaĝo tra la fenestro ŝanĝiĝas de fekundaj montoj kovritaj de verdaj arbaroj al seka grundo plena de rokoj, kie nur herboj povas kreski. De la stacidomo al la hotelo, mi atente rigardis la pejzaĝon kaj subite detalo kaptis mian atenton: sur senarbaj montoj plenaj de grandaj rokoj, mi vidis ĝardenistojn plantantaj arbidojn kaj akvumantaj la grundon.
+
+En la ĉirkaŭaĵoj de Lasao, ĉe la aŭtovojo inter la urbo kaj la lago Yamdrok, mi vidis nur stepon kun kaproj kaj poefagoj paŝtataj, kaj grandaj rokaj montoj sur kiuj nenio kreskas. Aparte la montoj ĉirkaŭ la urbo estas plenaj de rokoj, kaj sur ili oni vidas desegnitajn ŝtuparojn: oni klarigis al mi, ke laŭ la loka tradicio, post forpaso de familiano oni pagas monon al bonzo por desegni ŝtuparon sur roko, por ke la forpasinto glate atingu la ĉielon.
+
+Verdo abundas en monto, kie antaŭe troviĝis nur seka grundo kaj rokoj kaj nun estas promenejo por la loka popolo.
+
+Aliflanke, ĉe Lasao-rivero videblas multaj junaj arboj, evidente plantitaj antaŭ nelonge. Sur la montoj, eĉ sur tiuj plenaj de rokoj, troveblas irigaciaj sistemoj, kaj ne estas malfacile vidi ĝardeniston laborantan ĉe tiuj montoj: ili plantas kaj prizorgas arbojn, kaj en lokoj, kie arbo ankoraŭ ne povas kreski, ili fiksas la grundon per plantado de arbustoj. Evidente estas grandega investo en verdigo de la urbo kaj ĝiaj ĉirkaŭaĵoj. Sed por kio? La klarigo estas, ke arboplantado plibonigos la kvaliton de la grundo kaj konservadon de akvo, kaj ankaŭ purigos la aeron. Plej grave, Lasao troviĝas en alteco de 3 650 metroj super la marnivelo -- ĝi estas unu el la plej altecaj urboj en la mondo -- kie la aero estas tre maldensa, kaj pro tio malfacilas spirado. Novaj arbaroj ĉirkaŭ la urbo provizos pli da oksigeno al la valo kie situas la urbo, mildigante la simptomojn de altituda malsano en turistoj kaj alportante pli bonan vivkvaliton al la loka popolo.
+
+La arbarigo de regiono estas komplika tasko. Krom la bezono de irigacio por teni arbojn vivantaj, en kelkaj montoj la rokoj ne provizas spacon por ke radikoj de arbidoj profundiĝu en la teron, kaj la nutraĵoj troveblaj en la grundo foje estas netaŭgaj por kreskigo de arbo. Por solvi tion, oni disvolvis plurajn teknikojn, kiel ekzemple aldoni tavolon da fekunda grundo.
+
+Vizito al Nanshan-parko helpis min kompreni, kiel oni faras tion: tiu bela parko konstruita ĉe monto rezultas de pionira projekto por verdigo de la areo de 221.5 hektaroj, kiu postulis plurajn eksperimentojn pri arboplantado en lokoj sub malsamaj kondiĉoj, en malsamaj altitudoj kaj en malsamaj sezonoj de la jaro. El la eksperimento rezultis valora sciaro pri la plej taŭgaj plantadteknikoj kaj plantoj uzeblaj en ĉiuj kondiĉoj. La parko fariĝis mejloŝtona atingo pri plantado de arbaro sur seka aŭ duonseka grundo en altitudo de 3 900 metroj super la marnivelo.
+
+Vizitantoj rigardas la urbon starantaj sur vitra platformo en Nanshan-parko.
+
+Ĝis nun, ok projektoj pri arboplantado estis jam sukcese realigitaj en la loko, kun pli ol 1.2 miliono da arboj el pli ol 100 malsamaj specioj plantitaj, kaj la arbarigo de Nanshan ĉiujare rezultas je ŝparo de pli ol 4 milionoj da juanoj pri konservado de grundo kaj akvo, kaptado de karbono, ellasado de oksigeno kaj purigado de aero. Nanshan-parko populariĝis inter lokanoj: familioj promenas, junuloj renkontiĝas, homoj praktikas sportojn... El tie oni havas belan rigardon de la fama Potala-palaco, la plej fama vidindejo de Lasao, kaj vitraj platformoj estis konstruitaj en la plej konvenaj lokoj por rigardi ĝin.
+
+Nuntempe, Lasao antaŭenigas novan serion da verdigaj projektoj laŭ dekjara plano (2021-2030) en la norda kaj suda montoj, kun la celo "verdigi la montojn kaj riverojn en kvin jaroj kaj verdigi Lasaon en dek jaroj". Kun planita investo je preskaŭ 28 miliardoj da juanoj, la projekto aldonos 133 333 hektarojn da verdo.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Liujiagou-vilaĝo: Protekto kaj utiligo de kaverndomoj
+
+**Published:** 2023-06-14
+
+**URL:** http://esperanto.china.org.cn/2023-06/14/content_87189426.htm
+
+**Categories:** Socia Vivo
+
+Liujiagou-vilaĝo situas je 15 kilometroj nordokcidente de Yanchuan-gubernio, Shaanxi-provinco. En lastaj jaroj, la vilaĝo provis utiligi siajn tradiciajn kavernodomojn por prezenti la tradiciajn metiojn, ekzemple, farado de alkoholaĵo, oleo, nudelo, papertondaĵo kaj korbo. Ili ankaŭ montras la tradiciajn rakontadon kaj daŭĉing-on (kanto akompanata de simpla perkutinstrumento).
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# En Esperantujo, bitalbumo de ĴeLe
+
+**Published:** 2023-06-15
+
+**URL:** http://esperanto.china.org.cn/2023-06/15/content_87288351.htm
+
+**Categories:** E
+
+Unu aparte interesa trajto de esperanta muziko estas, ke ĝi ofte spegulas la movadon kaj la komunumon de parolantoj de nia lingvo. La bitalbumo En Esperantujo de ĴeLe traktas ĝuste pri agrablaj rememoroj kaj travivaĵoj de la duopo ekde 1987 pere de Esperanto.
+
+La albumo estas aranĝita tiel, ke ĝi ŝajnas kvazaŭ vojaĝo tra Esperantujo. Ĝi komenciĝas per saluta kanto, "Salut' al vi, amikoj". Sekve venas la kanto kiu donas nomon al la albumo, kun nostalgia melodio kaj teksto pri la agrabla etoso de Esperantujo.
+
+Sekve "Trajno Veturas", kaj aŭdanta tiun trajnecan melodion vi certe rememoros trajnvojaĝon al iu esperantumado. "Sezonoj" pasas en agrabla ritmo kaj humoro de homoj ŝanĝiĝas. Ŝajne humoro estas pli bona en somero, kiam okazas pli da Esperantaj kongresoj, ĉu?
+
+"Via Ravo" rakontas pri renkontiĝo kaj disiĝo, bone konata de la Esperanta komunumo en diasporo tra la mondo. Esperanta komunumo estas plena de homoj, kies karaktero estas rimarkinda. Unu el tiuj homoj estas "La Solulo", simpatia kun multaj hobioj, kaj tre okupata pri sia ena mondo.
+
+Amo ankaŭ havas spacon en Esperantujo. "Pensis Mi" estas kanto kun melodio tre delikata kaj bela amdeklara teksto kiu priskribas feliĉan amrilaton. "Danĝera Gluo", male, rakontas pri la danĝera gluo kiu ligas paron en toksan amrilaton, kaj havas interesan rokenrolan melodion.
+
+"Sinjorino Pigreco" priskribas... Nu, pigreman homon. Mi scivolemas pri kiu inspiris tiun ĉi kanton. "La Novembra Pluvo" bildigas scenon de pluvo, kio invitas homojn dediĉi pli da tempo al si mem, al siaj pensoj, deziroj kaj rememoroj. Sekve venas la "Krio" de la animo, kaŭzita de forta sento de manko.
+
+Por plenumi tiun mankon, oni povas iri al... "Ho, Renkontiĝo" de esperantistoj, kiam amikoj kune festas kaj ĝuas la vivon. Bedaŭrinde tempo pasas rapide, kaj oni haste adiaŭis, sed "Ne Interparolis" kun ŝatata homo, kiun oni ne revidos dum longa tempo. Tiel estas la vivo. Sed Esperantaj renkontiĝoj havas tradicion, kiu mildigas tiun problemon: dancado. Per danco la esperantistoj interagas kaj amuziĝas sen interparoli, kaj ĉiuj kunportas dolĉajn rememorojn hejmen, do "Dancu kun Mi"!
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de la kantoj kaj aĉeti la bitalbumon:
+
+https://www.vinilkosmo-mp3.com/eo/kanzono-tradicia-progresiva/%C4%B5ele/3-en-esperantujo.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe
+
+https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+El Popola Chinio
+
+
+---
+
+# Paŝtejo ĉe Lulang-kanjono en Xizang
+
+**Published:** 2023-06-16
+
+**URL:** http://esperanto.china.org.cn/2023-06/16/content_87460772.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+Nordoriente de la urbeto Lulang troviĝas paŝtejo inter la vilaĝoj Zhaxigang kaj Luobu. Kvankam la loko estas ĉirkaŭita de belaj pejzaĝoj, tamen tie vivis malriĉaj familioj. Helpe de registara agado por malaperigo de malriĉeco en Ĉinio, turismo disvolviĝis en la loko kaj fariĝis aldona enspezfonto por la lokanoj. En aŭgusto kaj septembro la vilaĝoj gastigas Paŝtejan Flokloran Kultur-turisman Festivalon, kun turniroj pri tradiciaj sportoj kiel surĉevala arkpafado kaj ŝtontenado.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Pli ol dek amaskomunikiloj raportis pri memorkunveno por 100-a datreveno de naskiĝo de Laŭlum
+
+**Published:** 2023-06-16
+
+**URL:** http://esperanto.china.org.cn/2023-06/16/content_87772980.htm
+
+**Categories:** E
+
+La 10-an de junio en la sidejo de la Ĉina Internacia Komunika Grupo en Pekino okazis memorkunveno por la 100-a datreveno de la naskiĝo de s-ro Laŭlum (Li Shijun), kaj debutis liaj novaj libroj
+
+Kurso pri la Traduka Arto de Esperanto
+
+kaj
+
+Promeno tra l' Esperanta Literaturo
+
+. La memorkunveno estis okazigita de la Ĉina Esperanto-Ligo, Pekina Esperanto-Asocio, eldonejo Sinolingua, Fremdlingva Eldonejo kaj Azi-Pacifika Centro sub la Ĉina Internacia Komunika Grupo. Pli ol 80 personoj partoprenis la memorkunvenon eksterrete kaj rete. La evento gajnis eĥojn en la publiko.
+
+Ĝis posttagmeze de la 14-a de junio, pli ol 10 amaskomunikiloj, inkluzive de la retejoj gmw.cn, chinanews.com.cn, china.com.cn, peoplechina.com.cn, espero.com.cn, beijingreview.com.cn, chinatoday.com.cn kaj tibet.cn, publikigis pli ol 40 novaĵojn rilate al la kunveno. Inter ili, la artikolo en chinanews.com.cn akiris pli ol 570 000 vizitojn.
+
+Armena esperantistino Rita Mkrtchyan komentis: "Dankon, ke oni aperigis informon, kiu tre gravas por tuta esperantistaro! Bonegaj fotaĵoj, interesa alvoko (parolo), belege sonas la kanto 'Ho, mia kor'! Kia memoro pri elstaraj, famaj samideanoj, kiuj ĝis fino de la vivo, enmetas la 'ŝtonon' en konstruadon de nia Esperanto-kulturo, devas esti gravega por ĉiuj dankemaj loĝantoj de Esperantujo!"
+
+Redaktoroj: Sheng Min kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kelkaj konsideroj pri edukado en Xizang
+
+**Published:** 2023-06-19
+
+**URL:** http://esperanto.china.org.cn/2023-06/19/content_87772424.htm
+
+**Categories:** Socia Vivo
+
+Matene de la 17-a de majo ĉi-jare, tra fenestro de koridoro de hotelo en la urbo Nyingchi mi vidis multajn studentojn alvenantajn al lernejo. Rigardante tiun scenon, mi rimarkis, kiom multe ŝanĝiĝis Xizang ekde sia paca liberigo en 1951: antaŭe virinoj ne rajtis iri al lernejo, kaj preskaŭ ĉiuj homoj en Xizang estis analfabetaj. Nun la infanoj kaj junuloj en Xizang iras al lernejo, kaj multaj el ili sukcesos diplomiĝi en universitato en la estonteco.
+
+Studentino praktikas kaligrafion en la 2-a Elementa Lernejo de Nyingchi.
+
+En la sekva semajno, jam en Pekino, mi malkovris, dum babilado kun studentino, ke ŝi estas etne tibeta kaj kreskis en Lasao, post fini lernejon ŝi estis akceptita de la universitato Tsinghua kaj venis al Pekino por studi, kaj post diplomiĝo ŝi intencas reveni al sia hejmurbo kaj kontribui por la disvolvado de sia regiono.
+
+En mia lasta tago en Nyingchi, mi tie vizitis elementan lernejon fonditan en 1971. Ĝi, samkiel aliaj lernejoj vizititaj de mi en Ĉinio, estas tre granda kompare kun tipa brazila lernejo, kun vastaj kortoj kaj areoj por praktikado de sportoj. Fakte, tuj post eniri la lernejon mi vidis studentojn provludantajn futbalon sur granda futbalejo. Laŭ diskonigo, la lernejo kovras areon de 39 800 kvadrataj metroj, el kiuj 12 362 estas subĉielaj, kaj havas tri sportejojn, inter kiuj la futbalejo estas la plej vasta.
+
+Ĉe la pordo de la unua klasĉambro vizitita de mi, mi rimarkis, ke lernantoj, dividitaj en grupoj, estis ĉe tergloboj analizantaj la mondan mapon: la leciono estis pri la ĉirkaŭnavigado de Magelano, uzante tiun ekspedicion kiel fonon por instrui plurajn geografiajn konceptojn.
+
+Studentoj ludas basketbalon en Lasa-Pekina Eksperimenta Lernejo en Lasao.
+
+Dume, en la sekva ĉambro, infanoj kun ŝnuroj en la manoj lernas fari nodon en klaso pri savado. En aliaj ĉambroj, lernobjekto varias: la angla lingvo, la tibeta lingvo, matematiko, muziko, danco, kaligrafio ktp. En leciono pri artoj, studentoj estis farantaj ceramikon, dum en la najbara ĉambro aliaj studentoj estis pentrantaj.
+
+Unu speciala lernoĉambro kaptis mian atenton: ĝi nomiĝas registra kaj elsenda ĉambro, kaj aspektas kiel la aliaj klasĉambroj, krom pro la akustika izoleco, pluraj kameraoj kaj mikrofonoj, kaj ĉambreto malantaŭ ĝi, el kie oni povas registradi kaj elsendi la klason. Oni klarigis, ke tiu ĉambro estas uzebla ne nur por registri lecionojn por dedistanca lernado (rimedo tre utila dum la pandemio de KOVIM-19), la lernejo ankaŭ registras la plej gravajn lecionojn kaj igas ilin rete disponeblaj al lernantoj, kaj registras lecionojn de modelaj instruistoj por ke aliaj instruistoj spektu ilin dum trejnado. Cetere, la lernejo ankaŭ uzas registritajn lecionojn por interŝanĝoj kun aliaj lernejoj por plibonigi la kvaliton de instruado.
+
+Posttagmeze de la sama tago en Lasao, alia surpizo: tie troviĝas Lasa-Pekina Eksperimenta Lernejo, kiu profitas la altnivelajn edukajn rimedojn de la urbo Pekino por pli disvolvi la edukadon en Xizang. Kadre de tiu kunlaboro estis kreitaj la Pekin-Xizang-a Altkvalita Distanca Eduka Platformo, kiu provizas retajn kursojn al la lernantoj; okazas studentaj ekskursoj inter la du urboj; eminentuloj el malsamaj fakoj estas invititaj fariĝi mentoroj de junaj studentoj; kaj pli ol 50 nedevigaj lernobjektoj kaj pli ol deko da asocioj estis kreitaj por plenumi la bezonojn de la studentoj. Ekde 2014, Pekino jam sendis 167 elstarajn instruistojn kaj lernejmanaĝerojn por helpi la lernejon plialtigi sian nivelon.
+
+Studentoj en leciono pri ĉina ŝako en Lasa-Pekina Eksperimenta Lernejo en Lasao.
+
+La unua afero, kion mi vidis en tiu lernejo, estis pluraj studentoj entuziasme ludantaj basketbalon. Tie troviĝas pluraj basketbal-kortoj. En klasĉambroj, studentoj ĉefe lernas la kutimajn lernobjektojn, kiuj oni havas en aliaj lernejoj, inkluzive de tiuj pri muziko, dancoj, lingvo kaj kaligrafio de Xizang. Sed unu el la lernobjektoj aparte kaptis mian atenton: la studentoj estis lernantaj ĉinan ŝakon, tre bona ludo por disvolvi strategian pensadon.
+
+Kun 300 instruistoj kaj 2 434 studentoj, la lernejo havas vastan manĝejon por provizi manĝojn al tiom da homoj. Ne for de la manĝejo, kelkaj studentoj provludas teatraĵon en la teatrejo. Krom praktiko de aktorado, la studentoj per teatro rakontas epizodojn de la historio de la lando kaj de la vivo de ĉinaj eminentuloj, kaj por tion fari ili bezonas mem esplori tiujn temojn kaj interŝanĝi siajn lernospertojn kun siaj kolegoj. Tiel la studentoj fariĝas scivolemaj kaj disvolvas kritikan pensadon.
+
+Post tiu vizito, estas klare, ke ĉinaj politikoj pri edukado estas pragmataj kaj orientitaj al memperfektigo. Oni ne timas esplori novigajn rimedojn por plibonigi la edukan kvaliton kaj instigi la lernantojn apliki en la ĉiutaga vivo la sciojn akiritajn en lernejo. Samtempe, la eduka sistemo de Ĉinio estas sufiĉe fleksebla por ebligi, ke lernejoj adaptiĝu al la specifaj kondiĉoj de ĉiu loko kaj eĉ de ĉiu lernanto.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Kial ni firme oponas Japanion forverŝi nuklepoluitan akvon en maron?
+
+**Published:** 2023-06-19
+
+**URL:** http://esperanto.china.org.cn/2023-06/19/content_88240064.htm
+
+**Categories:** Socia Vivo
+
+La nuklepoluita akvo en Japanio enhavas pli ol 60 specojn de radioaktivaj nuklidoj, ni havas nenian efikan traktadteknologion por sendanĝerigi multaj el ili. Partaj longvivaj nuklidoj povas disvastigi kun marfluoj kaj formi biomagnifikon. La duoniĝa tempo de radioaktivaj nuklidoj en nuklepoluita akvo povas superi 5 000 jarojn. Laŭ studo de germana instituto pri oceana esplorado, la radioaktivaj materioj povas disvastiĝi tra la plej granda parto de Pacifiko ene de 57 tagoj depost elfluo el Fukushima en la maron, kaj polui tutmondajn oceaojn en 10 jaroj. Krome, atmosfera cirkulado povas vaporigi nuklepoluitan akvon en la nubojn, kaj fali sur la tutan teron en la formo de pluvo aŭ neĝo. Estas nemezurebla la ebla damaĝo. Tamen, malgraŭ duboj enlande kaj eksterlande, la plano de Japanio enmarigi nuklepoluitan akvon eniris la finan fazon.
+
+Por trompi la internacian komunumon, la japana registaro kaj japana kompanio TEPCO ĉiam deklaris, ke la nuklepoluita akvo estas "jam traktata" kaj ne diferencas de la normala funkciado de nukleaj centraloj, kaj ilia plano estas scienca kaj racia. Sed la fakto estas, ke la nuklepoluita akvo produktita en la nuklea akcidento de Fukushima estas tute malsama ol la rubakvo produktita de normalaj nukleaj centraloj.
+
+Unue, ekzistas ĉrikaŭ 1 000 specoj de radioaktivaj substancoj en la nuklepoluita akvo de Fukushima, multe superante la normalan nuklecentralan rubakvon. TEPCO prenas nur 30 specojn de radioaktivaj substancoj, ekzemple cezio-137 kaj plutonio, kiel la monitorataj objektoj. Se la totala enteno de tiuj 30 specoj da radioaktivaj substancoj estas pli malalta ol certa limo, ĝi estas konsiderata kiel "norma".
+
+Due, la totala kvanto de nuklepoluita akvo de Fukushima estas grandega, multe superante la kvanton de rubakvo produktita de normalaj nukleaj centraloj. Nun la totala kvanto de nuklepoluita akvo de Fukushima atingis 1.33 milionon da tunoj. Laŭ la plano anoncita de TEPCO, en la venontaj kelkaj jardekoj, pli ol unu miliono da tunoj da "traktita" tia akvo estos forŝutitaj en Pacifikon.
+
+Japanio ne estas senscia pri tio. La japana registaro neas kaj kaŝas, kio nur montras, ke la akvo estas ne nur malsekura, sed ege danĝera. Kiam fakuloj de pacifikinsulaj landoj sugestis, ke Japanio "uzu nuklepoluitan akvon por miksi betonon por infrastrukturo", Japanio tuj forĵetis la multfoje diritan "sekurecon", kaj tute rifuzis, ĉar "nuklepoluita akvo povas kaŭzi vaporiĝon de tritio el radioaktiva materio, kaj tio estas malsaniga".
+
+La serio da agoj de Japanio pri enmarigo de nuklepoluita akvo montras, ke ĝi fariĝis detruanto de la tutmonda medio, sano kaj sekureco. Ĝi estas ege egoisma, kiam la agoj povas redukti koston, ĝi ignoras la tutmondan homaron.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ludu kaj Kantu , la unua Esperanta bitalbumo de Klarisa
+
+**Published:** 2023-06-21
+
+**URL:** http://esperanto.china.org.cn/2023-06/21/content_88240458.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** E
+
+Ludu kaj Kantu
+
+estas la unua Esperanta bitalbumo de la 23-jara itala muzikisto Clarissa Sabatini, Esperante Klarisa. Kun ĝojaj ritmoj kaj karibaj sonoroj, tiu ĉi bitalbumo estas bona elekto por homoj kiuj serĉas ĝojon kaj energion en muziko.
+
+Klarisa scipovas ludi plurajn muzikilojn kaj eklernis klasikan pianon dum sia infaneco. Ŝi aparte interesiĝas pri etnaj instrumentoj kaj afrika muziko, tiel ke multaj el ŝiaj kantoj, inkluzive de kelkaj el tiu ĉi albumo, estas origine verkitaj en la afrikaj lingvoj svahila kaj zulua.
+
+Serĉante inspiron en pluraj etnoj, lingvoj kaj stiloj, Klarisa disvolvis unikan muzikstilon kiu festas la diversecon de la homaro, do estas nature, ke ŝia esplorado pri tiu temo pli aŭ malpli frue alportus ŝin al Esperantujo, la natura loko de homoj kiuj volas krei pontojn inter kulturoj. Klarisa malkovris Esperanton fine de 2021.
+
+Pluraj kantoj en tiu ĉi albumo estas origine verkitaj en aliaj lingvoj. Laŭ klarigo de la aŭtoro, "Amata Venu" estas origine verkita en la zulua, "Jen Li la Hom'" en la zulua. Por adapti tiujn kantojn al Esperanto, Klarisa ricevis helpon de spertaj esperantistoj, kiel la italaj Giuseppe Castelli kaj Pier Luigi Cinquantini kaj la hispana Miguel Gutiérrez (Liven Dek). Pluraj kantoj en tiu ĉi bitalbumo estas origine verkitaj en Esperanto.
+
+Klarisa liveras kion ŝi promesas: la albumo estas ja plena je energio, ĝojo kaj espero, por ke homoj ludu kaj kantu. Plie, la kantoj ja dancigos vin! Ĝenerale la muziko estas multe pli bone prilaborita ol la tekstoj, kiuj estas kutime tre simplaj kaj mallongaj, konsistantaj je nur kelkaj frazoj facile parkereblaj kaj kanteblaj. Tio ne estas problemo, tute male, tiaj tekstoj estas ja efikaj por ke la aŭskultanto envolviĝu kun la muziko, tiel ke post nelonge li fariĝas parto de ĝi: malfacilas ne aliĝi al la kantado, kaj same malfacilas ne aliĝi al la dancado.
+
+Se vi, tamen, preferas tekstojn kun pli profunda enhavo, "Dancu la Tero", verkita de Liven Dek kaj kun melodio iom melankolia, certe plaĉos al vi. Inter la aŭtoraj kantoj de Klarisa, la teksto plej bone prilaborita laŭ mi estas tiu de "Jen Li la Hom'", pri malkonsekvenco de homo.
+
+Aŭskuntinte la tutan albumon, mi sentas, ke Klarisa ne sukcesis plene eluzi sian talenton. Mi alvenis al tiu konkludo pro tio, ke en kelkaj kantoj la melodio fariĝas tre interesa, kiel ekzemple en "Mi Ŝatas Maron", dum en kelkaj aliaj ĝi tedigas la aŭskultanton, kiel en "Ni Estas Ĥoro". Krome, en kelkaj momentoj, kiel ekzemple en "Vera kaj Pura", Klarisa bonege uzas sian voĉon -- ŝi estas ja talenta por kantado, sed malofte ŝi plene profitas tiun talenton.
+
+Resume, Klarisa estas juna kaj talenta muzikistino kun muzika projekto tre interesa kaj ankaŭ tre taŭga por Esperanto. Tiu projekto postulas pli da esplorado kaj provado por maturiĝi. Se ŝi persistos en tiu vojo, ŝi certe rikoltos tre bonajn fruktojn!
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de la kantoj kaj aĉeti la bitalbumon:
+
+https://www.vinilkosmo-mp3.com/eo/kanzono-tradicia-progresiva/klarisa/1-ludu-kaj-kantu/results,1-0.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe
+
+https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Bildoj de kutimoj de ĉina Drakboata Festo
+
+**Published:** 2023-06-21
+
+**URL:** http://esperanto.china.org.cn/2023-06/21/content_88551954.htm
+
+**Categories:** Socia Vivo
+
+La Drakboata Festo de Ĉinio, ankaŭ konata kiel Duanwu-festo, estas tradicia ĉina festo pri homa sano. Kial? La festo falas en la kvinan tagon de la kvina monato laŭ la tradicia ĉina kalendaro. Antikvaj ĉinoj rimarkis, ke malsanoj estis precipe oftaj en junio (tradicie, la kvina monato). Tiam ankaŭ venenaj bestoj, kiel serpento, centpiedulo kaj skorpio, iĝis pli aktivaj dum tiuj tagoj, minacante homan sanon kaj eĉ la vivon. Por protekti sin kontraŭ la danĝeroj kaj malhelpi malsanojn, antikvaj homoj pendigis artemiziajn foliojn kaj kunportis parfumajn saketojn por forpeli venenajn insektojn kaj bestojn. Tiuj tradicioj estis transdonitaj de generacioj al generacioj, markante la historion de la festo de almenaŭ pli ol 2 000 jaroj. Ĉi-jare, la festo falas la 22-an de junio.
+
+Pendigi artemiziajn foliojn
+
+Fari kaj kunporti parfumajn saketojn
+
+Trinki realgaran vinon
+
+Manĝi
+
+zongzi
+
+-ojn.
+
+Zongzi
+
+-o estas tradicia ĉina manĝaĵo farita el glueca rizo kun diversaj farĉoj, kaj pakita per bambua, fragmita aŭ aliaj folioj.
+
+Okazigi drakboatan konkurson. La konkurso originis en la ĉina folkloro por memorigi la tre faman ĉinan patriotan poeton Qu Yuan (340 a.k. - 278 a.k.). Tiu kutimo havas la historion de pli ol 2 000 jaroj, kaj nun ĝi estas la tradicia sporto de la ĉina popolo kaj estis enmetita en la nomliston kiel unu el la ŝtataj nemateriaj kulturaj heredaĵoj de Ĉinio.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Deklaro de la Akademio de Esperanto pri la Esperanta litero ŭ
+
+**Published:** 2023-06-30
+
+**URL:** http://esperanto.china.org.cn/2023-06/30/content_90073293.htm
+
+**Categories:** E
+
+La 9-an de aprilo, per jeso de 86% el la voĉdonintoj (43 el la 45 akademianoj voĉdonis), la Akademio de Esperanto aprobis la jenan deklaron:
+
+A.
+
+La Akademio de Esperanto konstatas, ke
+
+la Esperanta litero ŭ plej ofte aperas en la sonkombinoj "aŭ" kaj "eŭ";
+
+eĉ inter spertaj esperantistoj ne regas konsento pri la demando, ĉu la litero ŭ estas permesebla ankaŭ en aliaj pozicioj, kaj se jes, en kiuj pozicioj;
+
+la Gramatiko de la Fundamento de Esperanto (en siaj germana kaj rusa versioj) instruas, ke ŭ estas uzata nur post vokaloj;
+
+ekzistas provoj anstataŭigi la malmultajn ekzistantajn Esperantajn radikojn, en kiuj ŭ ne estas antaŭata de a aŭ e, per aliaj radikoj aŭ esprimoj, ekzemple "poŭpo" per "pobo" aŭ "ŝipvosto", kaj "ŭato" per "vato".
+
+B.
+
+Detale studinte la problemaron, la Akademio
+
+rekomendas, ke, proponante novan Esperantan radikon, oni evitu uzi en ĝi la literon ŭ en alia pozicio ol en la sonkombinoj "aŭ" kaj "eŭ";
+
+rekomendas – depende de la situacio – uzi v aŭ u anstataŭ ŭ, kiam oni kreas novan Esperantan radikon surbaze de nacilingva esprimo enhavanta la sonon de ŭ (aŭ similan sonon) ne antaŭatan de a aŭ e;
+
+agnoskas, ke la Fundamenta kaj plej kutima nomo por la litero ŭ estas "ŭo";
+
+akceptas, ke en elkri-esprimoj kaj sonimitoj la litero ŭ povas aperi en aliaj pozicioj ol en kutimaj Esperantaj radikoj, ekzemple silabkomence aŭ inter konsonanto kaj vokalo (kiel ekzemple en la zamenhofa elkri-esprimo "ŭa" kaj en la sonimito "kŭaks");
+
+opinias, ke, indikante la prononcon de fremdaj esprimoj per Esperantaj literoj, oni uzu ŭ por indiki sonon egalan aŭ tre similan al la Esperanta prononco de ŭ sendepende de la pozicio de la sono en la koncerna esprimo, ekzemple Wells [ŭelz] kaj Pwani [pŭani], tamen konsciante, ke tia prononcindiko ne estas esperantigo.
+
+(el
+
+akademio-de-esperanto
+
+)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Afrika junulo Nick: Mi lernis en Ĉinio mediamikan agrikulturon
+
+**Published:** 2023-07-04
+
+**URL:** http://esperanto.china.org.cn/2023-07/04/content_91052248.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+25-jara Nick el Niĝerio studas medion kaj ekologion
+
+por doktoreco
+
+en Hunan-a Agrikultura Universitato. Nick decidis lerni pri modernaj agrikulturaj scioj en Ĉinio, ĉar lia familio okupiĝas pri rilataj industrioj kaj ofte importas el Ĉinio agrikulturaĵojn.
+
+Nun lia ĉefa studkampo estas rebonigo de malpurigita tero, kaj li esperas, ke la scioj, kiujn li akiras en Ĉinio, estos aplikitaj en la regado de metala kaj akva poluado en sia hejmloko.
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping alvokis pri harmonia disvolvado de diversaj civilizacioj en kunveno de ŜKO
+
+**Published:** 2023-07-05
+
+**URL:** http://esperanto.china.org.cn/2023-07/05/content_91307994.htm
+
+**Categories:** Socia Vivo
+
+La 4-an de julio ĉina prezidanto Xi Jinping videolige ĉeestis la 23-an Ŝtatestran Konsilion de Membroŝtatoj de Ŝanhaja Kunlabora Organizo (ŜKO) kaj faris gravan paroladon.
+
+Xi Jinping diris, ke harmonia disvolvado de diversaj civilizacioj estas la bona espero de popoloj de la landoj en la regiono. Ĉinio volas labori kun ĉiuj partioj por efektivigi la Tutmondan Civilizacian Iniciaton, antaŭenpuŝi inkluzivan kunekziston de diversaj civilizacioj, antaŭenigi amikecon inter la popoloj de ĉiuj landoj.
+
+Li diris, ke justeco estas la komuna celo de landoj en la regiono. "Ni devas fari pli radiantaj la komunajn valorojn de la tuta homaro, protekti la internacian sistemon kun la Unuiĝintaj Nacioj en ĝia kerno kaj la internacian ordon bazitan sur la internacia leĝo, kontraŭbatali hegemoniismon kaj fortopolitikon, antaŭenigi disvolviĝon de tutmonda administrado en pli justa kaj racia direkto, kaj antaŭenigi modernigon de la homa socio per la komuna klopodo por daŭre antaŭenigi la justecon de homrajtoj, justecon de ŝancoj kaj justecon de reguloj."
+
+Li diris, ke Irano estas akceptita en ŜKO kiel nova membroŝtato, kaj memorando de devoj pri la membreco de Belorusio aliĝanta al ŜKO estos subskribita. Tiu ago montras la viglecon kaj energion de ŜKO. Li esprimis gratulojn al Irano kaj Belorusio.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping ĉeestis 23-an Ŝtatestran Konsilion de Membroŝtatoj de ŜKO
+
+**Published:** 2023-07-05
+
+**URL:** http://esperanto.china.org.cn/2023-07/05/content_91308165.htm
+
+**Categories:** Socia Vivo
+
+La 4-an de julio ĉina prezidanto Xi Jinping videolige ĉeestis la 23-an Ŝtatestran Konsilion de Membroŝtatoj de Ŝanhaja Kunlabora Organizo (ŜKO) kaj faris gravan paroladon.
+
+Xi Jinping diris, ke antaŭenigo de ekonomio estas la komuna tasko por landoj en la regiono. Ĉinio volas labori kun ĉiuj partioj por efektivigi la Tutmondan Disvolvan Iniciaton, insisti la ĝustan direkton de ekonomia tutmondigo, oponi protektismon, unuflankisman sankcion kaj ĝeneraligi la koncepton de nacia sekureco, kontraŭstari starigon de muroj kaj baroj kaj malkuplon kaj rompon de ĉeno, klopodi plibonigi la atingojn de kunlaboro por ke la fruktoj de disvolvado povu pli kaj pli juste profitigi homojn de ĉiuj landoj.
+
+Li diris: "Ni devas fortigi la altkvalite komunan konstruon de la iniciato 'La Zono kaj Vojo' interliganta la disvolvan strategion de aliaj landoj kaj kunlaboran iniciaton de regionoj, profunde antaŭenigi liberigon kaj faciligon de komerco kaj investo, akceli konstruadon de havena infrastrukturo kaj regionaj internaciaj loĝistikaj kanaloj, kaj certigi stabilecon de la regiona industria ĉeno kaj proviz-ĉeno."
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping alvokas ŜKO plifortigi solidarecon kaj reciprokan fidon
+
+**Published:** 2023-07-05
+
+**URL:** http://esperanto.china.org.cn/2023-07/05/content_91308809.htm
+
+**Categories:** Socia Vivo
+
+Ĉina prezidanto Xi Jinping ĉeestis la 23-an Ŝtatestran Konsilion de Membroŝtatoj de Ŝanhaja Kunlabora Organizo (ŜKO) laŭ la invito de barata ĉefministro Modi.
+
+Xi Jinping diris en la konsilio, ke la nuna mondo estas komplika, kaj la ŝanĝoj, kiuj okazis en jarcento, plirapidiĝas, la homa socio alfrontas senprecedencajn defiojn. Unueco aŭ divido? Paco aŭ konflikto? Kunlaboro aŭ konflikto? Tiuj denove fariĝas demandoj por nia tempo. Xi Jinping donis respondon, ke la homaro serĉadas pli bonan vivon, kaj la tendenco de cirkonstancoj pri paco, disvolvado, kunlaboro kaj komuna gajno estas nerezistebla.
+
+Li diris, ke oni devas plifortigi strategian komunikadon kaj kunordigon, elimini diferencojn per dialogo kaj superi konkurencon per kunlaboro, reciproke respekti la kerninajn teresojn kaj gravajn zorgojn, kaj firme subteni unu la alian por atingi disvolvadon kaj revigliĝon. Oni devas, el la ĝeneralaj kaj longdaŭraj interesoj de la regiono, determini eksterlandajn politikojn sendepende kaj firme teni la estontecon de la disvolviĝo kaj progreso de la lando en siaj manoj. Ĉinio volas labori kun ĉiuj partioj por efektivigi la Tutmondan Sekurecan Iniciaton, insisti pri solvado de diferencoj kaj kontraŭdiroj inter landoj per dialogo kaj interkonsiliĝo, antaŭenigi politikan solvon de internaciaj kaj regionaj demandoj kaj konstrui solidecon por regiona sekureco.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Shaanxi pliigas interŝanĝojn de civilizacioj kaj antaŭenigas protekton de kulturaj heredaĵoj
+
+**Published:** 2023-07-06
+
+**URL:** http://esperanto.china.org.cn/2023-07/06/content_91491438.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+En la lastaj jaroj la provinco Shaanxi de Ĉinio okazigis 104 ekspoziciojn en pli ol 30 landoj kaj regionoj, subskribis 94 kunlaborajn interkonsentojn, intencojn kaj memorandojn kun eksterlandaj instituoj kaj iniciatis la starigon de la aliancoj de arkeologiaj institutoj laŭ la Silka Vojo. La provinco ankaŭ konstruis platformon por interŝanĝoj pri kulturaj heredaĵoj de la landoj laŭ "La Zono kaj Vojo"... La agoj kontribuas al la protekto de aziaj heredaĵoj kaj helpas reciprokan komprenon inter homoj de tiuj landoj.
+
+Kultura interŝanĝo por reciproka kompreno
+
+Nuntempe, inkluzive de la konataj argilaj armeanaj figuroj, la ekspozicio de kulturaj eksponaĵoj el Shaanxi jam kovris 7 gravajn arkeologiajn temojn pri antikvaj dinastioj, la Silka Vojo, novaj arkeologiaj eltrovaĵoj, budhismo kaj tiel plu, kun bronzaĵoj, valormetalaj aĵoj, religio, arto, scienco kaj antikvaj teknikoj. Shaanxi daŭre novigos la formon de eksterlandaj ekspozicioj, ke pli da kulturaj eltrovaĵoj estu viditaj en la landoj laŭlonge de "La Zono kaj Vojo", prezentante estetikan, teknologian kaj epokan valoro de la kulturaj restaĵoj.
+
+Esplorcentro pri arkeologia kunlaboro de la Silka Vojo
+
+En la unua azia konferenco de alianco pri protektado de kulturaj heredaĵoj okazinta antaŭ nelonge en Xi'an, ĉefurbo de Shaanxi, la provinca buroo de antikvaĵoj de Shaanxi kaj la Nordokcidenta Universitato kune starigis esplorcentron pri arkeologia kunlaboro de la Silka Vojo. Samtempe, la shaanxi-a arkeologa teamo organizita de la universitato kunlaboris kun mez-aziaj arkeologoj por fari grandskalan esploron pri protektado kaj ordigo de kulturaj restaĵoj en Uzbekio kaj disvolvi arkeologiajn projektojn en Turkmenio.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# KPĈ-membroj atingas 98.04 milionojn
+
+**Published:** 2023-07-07
+
+**URL:** http://esperanto.china.org.cn/2023-07/07/content_91563419.htm
+
+**Categories:** Socia Vivo
+
+La plej novaj statistikoj de la Komunista Partio de Ĉinio (KPĈ) montras, ke ĝis la fino de 2022 la totala nombro de KPĈ-anoj atingis 98.04 milionojn, je 1.33 milionoj pli multe ol tiu de la pasinta jaro. Ekzistas 5.07 milionoj da KPĈ-
+
+bazoj
+
+, je 129 mil pli multe ol tiu de la pasinta jaro. Post jarcenta strebado, KPĈ fariĝis pli forta kaj vigla, la organiza sistemo fariĝis pli strikta kaj ĝia fundamento pli firma.
+
+La nombro de KPĈ-anoj konstante kreskas, kaj la totala nombro pliiĝis je 1.4% ol tiu en la pasinta jaro. La strukturo de la membraro estis pli optimumigita. Ĝis la fino de 2022, estis 29.3 milionoj da virinaj partianoj, okupante 29.9% de la totala, je 0.5% pli multe ol tiu en la pasinta jaro; 7.45 milionoj da membroj el minoritataj etnoj, okupante 7.6% de la totala kaj je 0.1% pli multe. Laboristoj kaj kamparanoj daŭre estas la ĉefaj membroj de KPĈ, okupante 33.3%.
+
+"La Komunista Partio de Ĉinio ĉiam konsideras fari novajn kaj pli grandajn kontribuojn al la homaro kiel sian mision," tion diris ĝenerala sekretario de KPĈ Xi Jinping. De la ĉina fervoja teknologio helpanta la afrikan disvolvadon ĝis efektivigado de la iniciato "La Zono kaj Vojo" liganta diversajn landojn; de la tutmonda disvolva iniciato ĝis la koncepto pri la homara komunumo de komuna estonteco... La Komunista Partio de Ĉinio neniam devigas aliajn landojn "kopii" la ĉinajn farojn, sed kreas pli da ŝancoj por la mondo per disvolvado kaj dividas siajn spertojn akiritajn en esplorado pri homa socio.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Pacifiko estus "kloako" de nuklea poluaĵo
+
+**Published:** 2023-07-07
+
+**URL:** http://esperanto.china.org.cn/2023-07/07/content_91667925.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+En la gazetara konferenco okazinta en la 6-a de julio, proparolanto de la Ministerio de Eksteraj Aferoj de Ĉinio Wang Wenbin respondis demandon pri enmarigo de nuklepoluita akvo de Japanio. La demando estis: Laŭinforme, la Internacia Atom-Energia Agentejo publikigis sintezan taksraporton pri la traktado de la nuklepoluita akvo en Fukushima, Japanio, opiniante, ke la projekto de Japanio, ellasi la akvon en maron, ĝenerale konformas al la internacia sekureca normo, kaj la agentejo faros longtempan kontrolon pri la ellasado de la akvo. Kiel tion Ĉinio komentas?
+
+Wang Wenbin diris, ke Ĉinio rimarkis la sintezan taksraporton publikigitan de la Internacia Atom-Energia Agentejo pri la japana projekto ellasi la nuklepoluitan akvon en maron. Laŭ scio, tiu ĉi raporto ne plene spegulas la opiniojn de ĉiuj fakuloj, kiuj partoprenis en la taksa laboro, kaj cetere, la konkludo estas ne akceptita de ĉiuj taksintoj. Ĉinio bedaŭras la raporton tiel haste prezentitan de la agentejo.
+
+Ĉinio opinias, la raporto ne povas fariĝi de "amuleto" kaj "paspermeso" de Japanio, kiu pretas ellasi la akvon maren. Ĉinio rimarkis la esprimon de Rafael Mariano Grossi, ĝenerala direktoro de IAEA, ke la agentejo, invitite de la japana registaro, faru revizion kaj takson pri la akvoellaso, sed tio absolute ne estas ĝiro por Japanio.
+
+Japanio, en konsidero pri sia ekonomia kosto, ignorante la maltrankvilon kaj oponon de la internacia komunumo, obstine decidis enmarigi la nuklepoluitan akvon. Pacifiko do estos "kloako" de nuklea poluaĵo.
+
+Ĉinio ree urĝas, ke Japanio ĉesigu la planon fluigi la malpurigitan akvon en maron, anstataŭe traktu ĝin en pli scienca, sekura kaj travidebla maniero. Se Japanio agas obstine, ĝi devos porti ĉian eblan sekvon. Ĉinio postulas, ke Japanio kunlaboru kun la Internacia Atom-Energia Agentejo kaj kiel eble plej frue starigu internacian mekanismon, en kiu ĉiuj priaj partioj havus rajton partopreni.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉu vi ne sentas pli kaj pli fortan varmecon de nia Tero? Ĉinio multe laboras por bremsi tion!
+
+**Published:** 2023-07-10
+
+**URL:** http://esperanto.china.org.cn/2023-07/10/content_91332747.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Ĉu vi sentas, ke la Tero estas pli kaj pli varma? Ekde junio alttemperatura vetero multfoje okazis en multaj partoj de norda Ĉinio, kaj en iuj lokoj la temperaturo superis 40 gradojn. Ankaŭ Nord-ameriko kaj Eŭropo spertas altajn temperaturojn, kaj multaj lokoj en Teksaso de Usono atingis 46 gradojn, la urbo Prado de Sevilo en Hispanio atingis 51 gradojn... Laŭ la raporto pri la stato de monda klimato en 2022, publikigita de la Monda Organizo pri Meteologio (MOM), pro la rekorda nivelo de forcej-efikaj gasoj, la tero, oceanoj kaj atmosfero ŝanĝiĝis: En 2022, ĉe la Alpoj, la neĝkovritaj montoj unuafoje spertis senneĝan someron dum degela sezono; la glacia areo de Antarkto falis al 1.92 milionoj da kvadrataj kilometroj; konstanta sekeco en Orienta Afriko, rekorda pluvokvanto en Pakistano kaj varmegoj en multaj eŭropaj landoj influas dekojn da milionoj da homoj... Pritrakti klimat-ŝanĝiĝon fariĝis komuna defio alfrontata de la tuta homaro.
+
+Fronte al varmego kaj ekstrema vetero, "karbon-redukto" fariĝis ŝlosila tasko.
+
+La 21-an de septembro 2021, ĉina prezidanto Xi Jinping anoncis en la 76-a sesio de Ĝenerala Asembleo de Unuiĝintaj Nacioj, ke Ĉinio klopodos por atingi karbonan pinton en 2030 kaj karbonan neŭtraligon en 2060. Dum la pasinta jardeko, kadre de la iniciato konstrui la homaran komunumon de komuna estonteco, Ĉinio jam starigis la plej grandan sistemon de produktado kaj konsumado de pura energio. La instalita kapacito de ĉina renovigebla elektroproduktado okupas trionon de la mondo. Lastajare, la instalita kapacito de tutmonda renovigebla elektroproduktado kreskis je 300 milionoj da kilovattoj, el kiuj la kresko de Ĉinio atingis 150 milionojn da kilovattoj.
+
+Samtempe Ĉinio helpas subevoluajn landojn kaj regionojn aplikadi verdan energion kaj antaŭenigas mondan energian verd-transformiĝon. Ĉinio aktive antaŭenpuŝas la mondan intertraktadon pri klimatŝanĝiĝo kaj la subskribon, validiĝon kaj efektivigon de la pariza interkonsento. La klopodoj de Ĉinio ankaŭ estas vaste agnoskitaj de la internacia komunumo. Siddharth Chatterjee, kunordiganto de Unuiĝintaj Nacioj en Ĉinio, diris: "La karbonpint-atinga kaj karbonneŭtraliga plano anoncita de prezidanto Xi Jinping eble estas unu el la plej gravaj agoj efektivigataj de Ĉinio." "Ĉinio havas la povon, grandajn datumojn, teknikojn, novigon kaj profesi-scian subtenon por akceli la realigon de karbonpinta atingo. Kaj samtempe, estas ankaŭ tre grave antaŭenigi la karboneŭtralon per ĉiuflankaj kaj transkampaj partnerecoj."
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉina reprezentanto esprimis seriozan pozicion pri japana plano ellasi nuklepoluitan akvon en maron
+
+**Published:** 2023-07-11
+
+**URL:** http://esperanto.china.org.cn/2023-07/11/content_91906477.htm
+
+**Categories:** Socia Vivo
+
+La 4-an de julio, en la 53-a sesio de la Homrajta Konsilio de Unuiĝintaj Nacioj ĉina reprezentanto rimarkigis, ke Japanio perforte plenumas la planon ellasi la nuklepoluitan akvon en maron, ĝi, por eviti ekonomian koston, elektis ellason de la malpurigita akvo en maron. Tio estas transigi la danĝeron de nuklea poluado al la tuta homaro. La ago rezultigos seriozajn problemojn de la mara medio kaj publika sano mondskale. La internacia komunumo devas sin atentigi pri tio.
+
+La ĉina reprezentanto akcentis, ke Japanio agas kontraŭ la internacia justeco kaj respondeco kaj kontraŭ internaciaj leĝoj, kiel Konvencio de Unuiĝintaj Nacioj pri la Leĝo de la Marokaj Konvencio por la Prevento de Mara Poluado per Ŝutado de Forĵetaĵoj kaj Aliaj Materialoj. Ĉinio urĝas, ke Japanio ĉesigu la planon ellasi la nuklee poluitan akvon en maron, traktu la aferon per scienca, sekureca kaj travidebla maniero, kiel eble plej frue starigi internacian kontrolsistemon por longa tempo, en kiu ĉiuj priaj partioj, inkluzive de Japanio, rajtus partopreni.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉinio denove urĝas Japanion ĉesigi la planon enmarigi nuklepoluitan akvon
+
+**Published:** 2023-07-12
+
+**URL:** http://esperanto.china.org.cn/2023-07/12/content_92030435.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La 10-an de julio Ĉinio denove urĝis Japanion ĉesigi sian planon verŝi nuklepoluitan akvon en la oceanon en la iranta 53-a sesio de la Homrajta Konsilio de la Unuiĝintaj Nacioj (UN).
+
+La Homrajta Konsilio de UN adoptis la rezulton de la Universala Perioda Reekzameno de Japanio en la diskuto pri la rezulto. Ĉina diplomato Shi Qi reasertis, ke Ĉinio urĝas Japanion ĉesigi la planon enmarigi nuklepoluitan akvon.
+
+Shi Qi urĝis Japanion trakti la aferon en scienc-bazita, sekura kaj travidebla maniero, kaj kunlabori kun la Internacia Atom-Energia Agentejo (IAEA) por starigi longtempan internacian monitoradan mekanismon kun aliĝo de la japanaj najbaroj kaj aliaj koncernantoj kiel eble plej frue.
+
+La diplomato atentigis, ke konsidere pri ekonomiaj kostoj, Japanio ignoris la zorgojn kaj oponojn de la internacia komunumo, kaj la kontinua eligo de milionoj da tunoj da nuklepoluita akvo el Fukushima en la maron en la venontaj 30 jaroj. Japanio traktas Pacifikon kiel "kloakon".
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Eldoniĝis Esperanta versio de la libro Rakontoj pri la Silka Vojo kun Koloraj Bildoj
+
+**Published:** 2023-07-13
+
+**URL:** http://esperanto.china.org.cn/2023-07/13/content_92172102.htm
+
+**Categories:** E
+
+La 2-an de julio en la urbo Suzhou okazis librolanĉo de la Esperanta versio de la libro Rakontoj pri la Silka Vojo kun Koloraj Bildoj. Pli ol 50 homoj, inkluzive de vicprezidantoj de Ĉina Esperanto-Ligo Wang Hanping kaj Cao Shengqiang, partoprenis en la evento.
+
+Zhang Changsheng, vicprezidanto de Jiangsu-a Esperanto-Asocio, Song Lili, prezidanto de Suzhou-a Esperanto-Asocio, kaj Sun Mingxiao, reprezentanto de la tradukteamo de la libro, rakontis la tradukadon kaj eldonadon de la libro.
+
+La ĉina versio de tiu libro estis eldonita en 2016. Kun pli ol 200 delikataj mandesegnitaj ilustraĵoj, la libro prezentas la historion de la Silka Vojo daŭrantan pli ol 5 000 jarojn. Ĝi rakontas pli ol 70 historiajn rakontojn, enkondukas 33 heredaĵejojn, 77 nemateriajn kulturheredaĵojn kaj la programojn kadre de la iniciato "La Zono kaj Vojo".
+
+La aŭtoro de la libro Zhu Lirong, direktoro de Suzhou-a Scienca Populariga Centro, celas per sia libro diskonigi la silkan vojon kaj ĉarmon de la ĉina kulturo.
+
+Redaktoro: Zhao Wenqi
+
+El Popola Chinio
+
+
+---
+
+# Infanoj ĝuas somerajn feriojn
+
+**Published:** 2023-07-14
+
+**URL:** http://esperanto.china.org.cn/2023-07/14/content_92297057.htm
+
+**Categories:** Socia Vivo
+
+En someraj ferioj, infanoj partoprenas en diversaj programoj por akiri pli da scioj kaj ekzerci sin.
+
+Geknaboj kaptas fiŝojn en rizkampo, Danzhai-gubernio, Mjaŭ-a kaj Dong-a Aŭtonoma Gubernio de Guizhou-provinco, sudokcidenta Ĉinio.
+
+Infanoj ludas manpilkon en infanĝardeno de Huzhou-urbo de Zhejiang-provinco, sudorienta Ĉinio.
+
+Bazlernejanoj spertas ombroludon, Linyi-urbo de Shandong-provinco, orienta Ĉinio.
+
+Knabinoj faras florkorbojn, Renshou-gubernio de Sichuan-provinco, sudokcidenta Ĉinio.
+
+Infanoj ludas futbalon en konkurso okazigita de bazlernejo de Tengzhou-urbo de Shandong-provinco.
+
+Knabinoj lernas baleton, Bozhou-urbo de Anhui-provinco, suda Ĉinio.
+
+La knabo legas libron en librejo de Kaifeng-urbo de Henan-provinco, centra Ĉinio.
+
+Infanoj lernas fari figuretojn per faruno, Zaozhuang-urbo de Shandong-provinco.
+
+Infanoj ludas ukulelon en bazlernejo, Anyang-urbo de Henan-provinco.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Malalt-karbonemisia Somera Universiado indikas estontan vivmanieron
+
+**Published:** 2023-07-17
+
+**URL:** http://esperanto.china.org.cn/2023-07/17/content_92289574.htm
+
+**Categories:** Socia Vivo
+
+Lastatempe, la spertejo pri mediamika 31-a Somera Universiado malfermiĝis al la publiko. Urbanoj kaj turistoj estas altiritaj de la talismano de la universiado kaj la instalaĵoj pri trafiko, sporthalo kaj energikonsumo kun malalta karbondioksida emisio de la universiado.
+
+Sub la diskonigo de rilataj laborantoj, ĝuante la interesajn interagajn programojn, la publiko praktikas la malaltkarbonemisian koncepton de la universiado. La spertejo ankaŭ provizas al vizitantoj memservajn spektadojn, ekzemple AI-robota babilado pri universiadaj scioj, AR-scena sperto de sporthaloj kaj tiel plu.
+
+La sporthaloj de la universiado estas konstruitaj laŭ integra, malmuntebla kaj reuzebla maniero, kiu povas havigi pli da efikoj en limigita spaco, kaj realigi recikladon de multaj scenoj, evitante energi-malŝparon kaj redukti kostojn.
+
+Kun la celo "atingi karbonan pinton kaj karbonan neŭtraligon", verdeca gastigo aŭ mediamika gastigo fariĝis misio de la urbo Chengdu. Strikta praktiko videblas en sporthala konstruado, transportado kaj eventoservoj. La novkonstruitaj sportejoj havas la du-stelan normon de verdaj konstruaĵoj, kiuj plene utiligas teknikojn maksimumigi malaltan emision, energian ŝparadon kaj mediprotektajn efikojn. La reutiligaj sporthaloj estis novigitaj laŭ mediamikaj postuloj por optimumigi naturan ventoladon kaj lumakiron. Samtempe Chengdu uzos 1 340 novenergiajn busojn kaj pli ol 1 000 novenergiajn aŭtojn kiel servoveturilojn por sportistoj, teknikaj oficistoj kaj amaskomunikiloj. Novenergiaj veturiloj okupas 90% de la totala nombro de veturiloj de la universiada vilaĝo ĝis la sportejoj, kaj ĉiuj veturiloj servantaj en la vilaĝo estas novenergiaj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉu vi scias, ke en Ĉinio frapi akvomelonon povas esti profesio?
+
+**Published:** 2023-07-17
+
+**URL:** http://esperanto.china.org.cn/2023-07/17/content_92290162.htm
+
+**Categories:** Socia Vivo
+
+En somermezo, akvomelonoj arde forkonsumiĝas. Zhang Linghui, melonfrapisto ĉe la kooperativo Pangnongxing en Daxing-distrikto, Pekino, tiel komencas sian ĉiutagan laboron: lokaj kamparanoj alportas ĉarojn da ĵusplukitaj akvomelonoj, ŝi tuj prenas unu en la liva mano kaj milde frapas kelkfoje per la dekstra montfingro, sekve, post peso, tuj ĵetis ĝin al sia kolego por gradigi... La tuta procezo postulas nur kvin aŭ ses sekundojn, rapide kaj orde.
+
+Danke al la unikaj naturaj kondiĉoj, Panggezhuang de Pekino havas historion de pli ol 600 jaroj por akvomelona plantado. Hodiaŭ lokaj akvomelonoj estas ne nur vendataj al ĉirkaŭaj urboj, sed ankaŭ vaste konataj en suda Ĉinio. La disvolviĝo de la akvomelona industrio ankaŭ ekhavis novajn postulojn por pli bona kvalito, kaj la nova profesio "melonfrapisto" naskiĝis.
+
+Zhang Linghui, naskita en 1998, forlasis sian klient-servan laboron en sia hejmloko kaj venis al la distrikto kun siaj familianoj. Ŝi uzis nur du monatojn por fariĝi sendependa "melonfrapisto". "Lerni kiel frapi melonojn komenciĝas de observado al pesilo. Kiam la akvomelono estas pesita, vi devas aŭskulti la frapadon de majstro, kaj mem provi la sonon de la frapata akvomelono. Ĉi tio estas laboro bazita sur spertado. Ju pli multe oni frapas, des pli precize oni distingas." Zhang Linghui diris: "Kiam mi trafas nekvalifikan melonon, mi tranĉos ĝin por vidi, kia ĝi estas interne, kaj poste manĝos ĝin. Mi povas diri, ke ĉi tiu laboro permesas min libere frandi akvomelonojn!"
+
+La aspekto kaj sono de akvomelonoj je malsamaj maturecoj estas malsamaj: "La normo de bona akvomelono estas ĝia matureco. Oni devas certigi, ke ĝi ne estas kruda aŭ malplena en la manoj de konsumantoj. La sono de bona akvomelono estas malalta, iom malklara sed tre laŭta, vi povas senti tremecon de la melono kiam vi frapas ĝin en la mano. La sono de nematura melono estas relative klara, kaj ĝia frapa sento similas tiun de ŝtono."
+
+Kun rapida disvolviĝo de freŝa podetala vendado, pli kaj pli da agrikulturaj produktoj povas esti vendataj al pli foraj lokoj per interreto, sed la kvalito de produktoj ne tuŝeblaj estas iom maltrankviliga por aĉetontoj. Ĉi-flanke la retkomercaj platformoj havas relative detalajn postulojn por la grandeco, dolĉeco kaj matureco de akvomelonoj. "La laboro de la melonfrapisto ludas grandan rolon por la efikeco de akvomelona kvalitkontrolo kaj preciza administrado." Zhang Dong, respondeculo de la kooperativo, diris: "Nia teamo de melonfrapistoj plenumas nur la taskon frapi melonojn ĉiutage. Dum la pinta periodo, ĉiu frapisto povas frapi averaĝe 7 000 melonojn tage, kaj la erarkvanto estas sub 5%. Kompare kun tradiciaj kanaloj, la var-revena indico kaj perdokvoto multe reduktiĝis."
+
+Multaj lokaj akvomelonaj kooperativoj komencis krei siajn proprajn markojn kaj vendi ilin tutlanden per vivelsendoj. La tuta procezo, de frapado ĝis pakado de melonoj, estas klare videbla de interretaj aĉetantoj, la rolo de melonfrapisto helpas ilin senti la kvaliton.
+
+La pliiĝo en akvomelona vendo kaj kvalito ankaŭ plibonigas la plant-nivelon de la loko kaj tiele multigas la enspezon de kamparanoj. Zhang Dong diris: "En la pasinteco, kamparanoj plantis melonojn laŭvole. La akvomelonoj havis neegalajn grandecojn, kaj vendkanaloj kaj enspezo ne estis stabilaj. Nun, ni liveras profesian gvidadon al la kooperativo, kaj subskribas kontraktojn kun kamparanoj, ke ili portu bonajn akvomelonojn al ni. Tiel, la kanalo kaj kvalito estas garantiitaj, kaj ili povas pli multe gajni je milojn da juanoj ol antaŭe."
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Aŭskulteblas plej belaj muzikoj en Azi-pacifika Muzik-festivalo
+
+**Published:** 2023-07-18
+
+**URL:** http://esperanto.china.org.cn/2023-07/18/content_92705719.htm
+
+**Categories:** Socia Vivo
+
+En la 15-a kaj la 16-a de julio la Azi-pacifika Muzik-festivalo estis okazigita de la Azi-pacifika Centro de la Ĉina Internacia Komunika Grupo en Taipusi, Xilinhaote, la Interna Mongolio. Tie oni ĝuis belajn vesperojn, rigardis desegnaĵojn de flugrobotoj, rokmuzikon, tipajn mongolajn manĝaĵojn kaj vinon. La diversaj elementoj estigis belajn pejzaĝojn.
+
+Redaktoro: Jiang Limin
+
+El Popola Chinio
+
+
+---
+
+# Van Gogh en ŝanhaja muzeo
+
+**Published:** 2023-07-20
+
+**URL:** http://esperanto.china.org.cn/2023-07/20/content_92819935.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+De la 12-a de majo ĝis la 10-a de septembro la Monda Ekspozicia Muzeo en Ŝanhajo okazigas noktajn programojn en ĉiu vendredo, sabato, dimanĉo kaj festaj ferioj. La ekspozicio "Vivanta Van Gogh: La spertoj" estas malfermita al la publiko ankaŭ nokte, prezentante preskaŭ 3 mil verkojn, manuskriptojn kaj leterojn de la artisto.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Muzeo de Imperiestra Palaco de Pekino lanĉis multlingvan retejon
+
+**Published:** 2023-07-20
+
+**URL:** http://esperanto.china.org.cn/2023-07/20/content_93273462.htm
+
+**Categories:** Socia Vivo
+
+La 19-an de julio, la antaŭa anglalingva retejo de la Muzeo de Imperiestra Palaco de Pekino renoviĝis kiel multlingva retejo. Subtenata de la profesiaj tradukistoj de la Ĉina Internacia Komunika Grupo (administranto de la Ĉina Esperanto-Ligo), la retejo (https://intl.dpm.org.cn) funkcias en 6 lingvoj, la angla, la franca, la rusa, la japana, la hispana kaj la ĉina, por kontentigi bezonojn de diverslandaj vizitantoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Shaanxi: Protekto kaj heredo de nemateriaj kulturaj heredaĵoj
+
+**Published:** 2023-07-21
+
+**URL:** http://esperanto.china.org.cn/2023-07/21/content_92843765.htm
+
+**Categories:** Socia Vivo
+
+En la lastaj jaroj la nemateriaj kulturaj heredaĵoj de Shaanxi disvolviĝis multe, tio ne nur alportis buntajn prezentadojn al lokanoj, sed ankaŭ prezentis sian belecon al la tuta lando kaj la mondo. Ĝis aprilo de 2023, Shaanxi havas 4 heredaĵojn trovitajn en la listo de nemateriaj kulturaj heredaĵoj de UNESKO, 91 landajn nemateriajn kulturajn heredaĵojn kaj 766 provincajn nemateriajn kulturajn heredaĵojn.
+
+Opero Huayin Laoqiang
+
+Ŝnurpupoj de Heyang
+
+Hu Xinmin, majstro de nemateria kultura heredaĵo fengxiang-a argila skulptaĵo
+
+Ansai-a tamburdanco
+
+Kiel provinco de kelkmiljara historio, Shaanxi havas diversajn nemateriajn kulturajn heredaĵojn kun propraj trajtoj. Shaanxi rigardas la konstruadon de ĉi ĉeftemaj kvartaloj, urbetoj kaj vilaĝoj kiel tre gravan turisman aferon. Kaj oni jam starigis pli ol 1 200 eksponejojn, specialajn urbetojn kaj heredajn institutojn. "Ni devas pli precize kaj efike antaŭenpuŝi la industriigon, normigon kaj surscenejigon de nemateria kultura heredaĵo, ke la heredaĵoj eniru la vivon de ordinaruloj kaj esti ŝatata de pli da homoj." Tion diris respondeculo de shaanxi-a departemento pri kulturo kaj turismo.
+
+En la lastaj jaroj, la nemateriaj kulturaj heredaĵoj kiel Qin-opero, popolkanta arto, kaj loka tamburdanco multfoje estis vidataj de la tuta lando tra vivelsendoj kaj filmetoj. Ĝis majo ĉi-jare, 11.26 milionoj da filmetoj pri tio ricevis 1.2 miliardojn da ŝatoj de Douyin-uzantoj, kaj pli ol 570 mil vivelsendoj kreis la rekordon de entute 31.85 milionojn da horoj da rigardado. En la pasintaj tri jaroj, 226 nemateriaj kulturaj heredaĵoj en pli ol 350 retbutikoj en Taobao, JD.com kaj Pinduoduo gajnis monsumon per jara vendo je pli ol 220 milionoj da juanoj. Grandnombro da kultur-turismaj projektoj estis lanĉitaj, kiuj antaŭenigas la altkvalitan disvolviĝon de la turisma industrio.
+
+Shaanxi plene ludas sian rolon laŭ sia historia kaj kultura valoro, ekzemple, miljara ĉefurbo kaj deirpunkto de la antikva Silka Vojo, la provinco profundigas kulturajn interŝanĝojn kun la landoj kaj regionoj laŭlonge de "La Zono kaj Vojo". Estontece, Shaanxi daŭre liberigos la ĉarmon de sia tradicia kulturo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Talismano de 31-a Somera Universiado estas ŝatata
+
+**Published:** 2023-07-21
+
+**URL:** http://esperanto.china.org.cn/2023-07/21/content_93245833.htm
+
+**Categories:** Socia Vivo
+
+Baldaŭ okazos la 31-a Somera Universiado en la urbo Chengdu, kaj lastatempe ekfunkciis aro da licencitaj butikoj de la sportkunveno. La produktoj, precipe tiuj pri la talismano de la universiado, estas vasteŝatataj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Antikva urbo Zhengding altiras turistojn
+
+**Published:** 2023-07-24
+
+**URL:** http://esperanto.china.org.cn/2023-07/24/content_93245111.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+La gubernio Zhengding en la provinco Hebei estas konata antikva urbo. En la lastaj jaroj, Zhengding vigle efektivigis la restaŭran projekton, pere de riĉaj historiaj kaj kulturaj restaĵoj, kaj antaŭenigis disvolviĝon de kultura turismo. De januaro ĝis junio de 2023, la gubernio ricevis 7.94 milionojn da vizitoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Rokfirma volo — Mia impreso pri seminario de E-legogrupo
+
+**Published:** 2023-07-24
+
+**URL:** http://esperanto.china.org.cn/2023-07/24/content_93288339.htm
+
+**Categories:** E
+
+De la 13a ĝis la 16a de julio okazis la seminario de E-legogrupo de ĉinaj esperantistoj aktivaj en Elementa Lernejo Baiyangshujie, Taiyuan-urbo, Shanxi-provinco. En la seminario 16 partoprenantoj vigle kaj entuziasme interŝanĝis siajn spertojn kaj legmanierojn, ankaŭ pri verkado kaj planoj. Inter la partoprenantoj estas ne nur veteranaj kaj profesiaj esperantistoj, sed ankaŭ 5 junaj E-instruistoj de la lernejo Baiyangshujie. Mi, kiel longtempa zorganto pri E-instruado en lernejoj, iam havis la dubon, ke ĉu junaj instruistoj povas heredi nian daŭripovan agadon aŭ transdoni nian noblan torĉon al novaj generacioj? Lernejestro Jado (Wei Yubin), elstara esperantisto premiita de UEA, forigis mian dubon per lia respondo.
+
+Post klopodado dum pli ol dudek jaroj, Esperantaj kulturo kaj etoso estas firme konstruitaj en la lernejo, samkiel la rokego staranta en la kampuso de la lernejo, kiu estas monolita rokego. La fronto de la rokego ĉe la pordego de la lernejo aspektas majstra kaj superbela, kaj sur ĝia dorso estas gravurita lerneja himno. Esperantaj sloganoj, bildoj kaj proverboj montriĝas ne nur ĉe la pordego, sed ankaŭ en klasĉambroj, oficejoj, sportejo, kunvenejoj, kaj en la oficejo de la lernejestro. Ĉie kaj ĉiam en la kampuso oni povas vidi kaj sperti Esperantan atmosferon, al kiu ne mankas kontribuo kaj diligenteco de Jado. Jado anoncis, ke en la fino de la kuranta jaro la Salono de Laŭlum estos ornamita kaj ekspoziciita, kaj oni ceremoniigos la salonon eternan en esperantujo. La informo estas miriga kaj emociiga en la koroj de ĉiuj partoprenantoj.
+
+Respondo, kiu forte skuis min, venas el buŝoj kaj koroj de junaj instruistinoj. Ili eklernis nian lingvon influite de la Esperanta etoso en la kampuso kaj de la vortoj kaj konduto de Jado. Dum la lernado ili pli kaj pli bone komprenas la idealon kaj noblan celon de Esperanto. En siaj koroj kaj animoj ili jam starigis E-rokegon senŝanceliĝan kaj nedetrueblan. Ili diligente kaj entuziasme praktikas E-aktivadojn laŭ la vortoj kaj konduto de Jado. Kaj ili certe klopodas kaj klopodos por nia afero ĉie kaj ĉiam samkiel ilia estro Jado. Nia movado brilos en estonteco. Nia torĉo estos transdonita. Nia afero havos novan generacion...
+
+Esperanto en la Elementa Lernejo Baiyangshujie estas samkiel rokfirma volo de ĉiuj instruistoj kaj administrantoj. Ni ĉiuj fieras kaj aplaŭdas tiun sukcesan atingon!
+
+Raportita de Zhang Changsheng (Longarko)
+
+El Popola Chinio
+
+
+---
+
+# Inaŭguriĝis Festivalo de Ĉevalkurado de Yushu en Qinghai
+
+**Published:** 2023-07-27
+
+**URL:** http://esperanto.china.org.cn/2023-07/27/content_95300003.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+En la Hipodromo de Yushu en la provinco Qinghai de Ĉinio, inaŭguriĝis Festivalo de Ĉevalkurado kaj la 2-a Festivalo pri Ekologia kaj Kultura Turismo de Sanjiangyuan en la 25-a de julio. Dum la festivalo, mirindaj programeroj kiel etnaj kantoj kaj dancoj, tradiciaj ĉevalvetkuroj kaj kulturaj prezentadoj estos okazigitaj por montri la unikan kulturon kaj etnan viglecon de la loko.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Daŭras 21-a Harbina Internacia Biera Festivalo
+
+**Published:** 2023-07-27
+
+**URL:** http://esperanto.china.org.cn/2023-07/27/content_95303080.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La 21-a Harbina Internacia Biera Festivalo daŭras en la Monda Parko de Glacio kaj Neĝo en Harbino, nordorienta Ĉinio. Ĉi-jara festivalo starigis bierajn budojn, primanĝaĵan straton, ekspozicion de lokaj manĝaĵoj, ekologian tendum-areon kaj interagan ludejon, kiuj alportas ĝojigajn spertojn al vizitantoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# "Budha haloo" aperis sur Taibai-monto
+
+**Published:** 2023-07-28
+
+**URL:** http://esperanto.china.org.cn/2023-07/28/content_95303662.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Lastatempe, multfoje turistoj kaptis per fotilo la aperon de "budha haloo" sur Taibai-monto, Shaanxi-provinco de Ĉinio. Videblas homfiguro brilanta en la ĉielarka haloo, altirante la atenton de homoj. Sur la monto, pro specialaj geokondiĉoj, abunda vaporo kaj sunumo, oni povas pli ofte vidi tian mirindaĵon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kafo el Yunnan mildigas malriĉecon
+
+**Published:** 2023-07-31
+
+**URL:** http://esperanto.china.org.cn/2023-07/31/content_95301047.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+La kafplantado en Yunnan-provinco, sudokcidenta Ĉinio, povas esti spurita al la jaro 1892. Franca misiisto alportis kafsemojn kaj sukcese plantis ilin en iu valo en Binchuan-gubernio. Ĝis nun, pli ol 30 kafoplantoj el tiuj kafsemoj ankoraŭ floras kaj fruktas.
+
+Grandskala kafplantado en Yunnan komenciĝis meze de la 1950-aj jaroj. Ĝis la fino de 1997, la kafa areo de la provinco atingis 7 800 hektarojn. Hodiaŭ la plantej-areo de la provinco okupas 70% de la landa, kaj kafa produktkvanto korespondas al 83% de la tutlanda. Yunnan-a kafo jam fariĝis la ĉefa en Ĉinio.
+
+La okcidenta kaj suda partoj de Yunnan-provinco situas inter 15 gradoj de norda latitudo kaj la Tropiko de Kankro. Plejparto de la areo de la provinco estas je alteco inter 1 000 kaj 2 000 metroj super marnivelo. Pro tiuj unikaj kondiĉoj, loka kafo havas fortan guston, sed ne estas amara, ĝia odoro estas forta, sed ne frapa, kaj ĝia postgusto estas iomete frukteca. La arabia kafo (Coffea arabica) el Yunnan estas taksita kiel unuaklasa produkto fare de la Internacia Kaf-organizo, ĝia kvalito similas al tiu de la plej bonkvalita arabia kafo el Kolombio.
+
+Per diversaj prilaboradoj, kafo de Yunnan iom post iom iras eksterlanden kaj disvastiĝas tra la lando, kaj estas ĝuata de kafamantoj tra la tuta mondo. Tiel Yunnan iras sur unika vojo al mildigo de malriĉeco. La normigo kaj industriigo de kafo helpis lokanojn de ĉiuj etnoj kreskigi sian enspezon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Sperto de ĉina kulturo dum 31-a Somera Universiado
+
+**Published:** 2023-07-31
+
+**URL:** http://esperanto.china.org.cn/2023-07/31/content_97637189.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Dum la 31-a Somera Universiado, ĉiutage okazas 56 programoj pri nemateriaj kulturaj heredaĵoj kaj tradiciaj kulturaj spertadoj en la interaga centro de la vilaĝo, por sportistoj de la universiado.
+
+La programoj inkluzivas papertranĉadon, Shu-brodarton, ombroludon, novjarajn bildojn, bambuan teksadon kaj aliajn, venitajn el la tuta provinco Sichuan.
+
+Laŭ antaŭkalkulo, la centro eble ricevos pli ol 10 mil vizitojn. La spertoj pri nemateriaj kulturaj heredaĵoj riĉigos la vivon de la sportistoj kaj profundigos ilian konon pri la ĉina kulturo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉina delegacio provizore okupas la unuan vicon en 31-a Somera Universiado
+
+**Published:** 2023-07-31
+
+**URL:** http://esperanto.china.org.cn/2023-07/31/content_97638140.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La ĉina delegacio por la 31-a Somera Universiado gajnis 9 orajn medalojn en la 30-a de julio. En la du tagoj post la inaŭguro de la universiado, ili gajnis 13 orajn, 4 arĝentajn kaj 3 bronzojn medalojn, provizore viciĝas en la unua pozicio kaj en la ormedala rango kaj en la medalnombra rango. Japanio (9 oraj), la Korea Respubliko (8 oraj), kaj Barato (5 oraj) okupas la 2-an, la 3-an kaj la 4-an vicon en la ormedala listo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Tianjin: Monde unua saĝa kaj nul-karbon-ellasa doko
+
+**Published:** 2023-08-01
+
+**URL:** http://esperanto.china.org.cn/2023-08/01/content_95278556.htm
+
+**Categories:** Socia Vivo
+
+Kiel la unua saĝa doko sen karbon-ellaso, Tianjin-a haveno havas la sistemon kun ŝarĝ- kaj malŝarĝa ekipaĵo, horizontal-transporta ekipaĵo kaj produktad-helpa ekipaĵo funkciigitaj per elektro, kaj kun 100% energikonsumo el "lum-vent-energistoko". Tianjin-a haveno plene prenas la energirimedojn de vento kaj suno ĉe la haveno, kaj konstruis distribuitajn fotovoltaajn kaj ventoenergiajn projektojn.
+
+Nun, la instalita kapacito de ventoenergio kaj fotovoltaa elektroproduktado jam atingis 42.55 MW, kaj la jara verda elektroproduktado estas je ĉirkaŭ 90 milionoj da kilovathoroj; la jara karbon-ellaso povas esti reduktita je ĉirkaŭ 75 000 tunoj. Samtempe, la haveno uzas la teknikon por monitoradi energion, kio reduktas la elektrokonsumon je 17% kompare kun tiu de ordinaraj aŭtomataj dokoj, ĝi estas la unua "nul-karbon-ellasa" kadre de kaj produktado kaj konsumado de elektro.
+
+La teknikoj kiel 5G kaj grandaj datumaroj multe pli efikas sur la laboroj sur la doko. Tie vere realiĝis AI-bazita horizontala transporta administrado, super-L4 senŝofora veturado, "5G + Beidou" integra sistemo kaj tiel plu, kun ĉiuflanka integriĝo de nula karbon-ellaso dum la tuta procezo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Surloke svatis arĝentmedala premiito al ormedala premiito
+
+**Published:** 2023-08-01
+
+**URL:** http://esperanto.china.org.cn/2023-08/01/content_97639260.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Liang Jie, membro de la ĉina delagacio al la 31-a Somera Universiado, ĉampioniĝis en la virina individua poomsae-konkurso de taekvondo. Kiam la premidonado finiĝis, ŝia kolego Hu Mingda, gajninto de arĝentaj medaloj en kolektiva kaj individua poomsae-konkursoj, kuris al la budo kaj svatis. Kia romantika afero! Ili brakumis unu la alian antaŭ ĉiuj ĉeestantoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Atletoj kaj oficialuloj laŭdas instalaĵojn kaj servojn en Chengdu
+
+**Published:** 2023-08-01
+
+**URL:** http://esperanto.china.org.cn/2023-08/01/content_97639978.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+"Mirinda" estas vorto tre ofte aŭdata nuntempe en la urbo Chengdu de Sichuan-provinco, kiu gastigas ĉi-jaran Someran Universiadon.
+
+Sportistoj kaj oficialuloj partoprenantaj en la dujara somera sporta evento, kiu malfermiĝis en la 28a de julio, diris, ke ili estas profunde impresitaj de la instalaĵoj por la ludoj en la provinca ĉefurbo, kaj substrekis, ke Chengdu altigis la nivelon de la instalaĵoj, fariĝante modelo por ontaj gastigantoj.
+
+"La organiza komitato de la ludoj konsideris rekomendojn de ĉiuj flankoj kaj faris sincerajn klopodojn por inkluzivi ilin en la preparlaborojn, kio starigis perfektan scenejon por ke atletoj brilu," diris Leonz Eder, portempa prezidanto de la Internacia Universitata Sporta Federacio (FISU), dum intervjuo kun
+
+China Daily
+
+.
+
+Entute 6 500 atletoj el 113 landoj kaj regionoj konkuras en 269 konkursoj tra 18 sportoj en la universiado, kiuj daŭros ĝis la 8-a de aŭgusto. Dek tri novaj ejoj estis konstruitaj por la konkursoj, dum 36 ekzistantaj estis ĝisdatigitaj kaj renovigitaj por akomodiĝi al internaciaj normoj.
+
+Atletoj eĥis la agantan prezidanton de FISU kaj diris, ke ili ankaŭ estas kortuŝitaj de la varma bonvenigo spertita de ili.
+
+Elavenil Valarivan el Barato, kiu en la 29a de julio gajnis ormedalon en la virina konkurso pri 10-metra pafado per aerfusilo en Chengdu-a Lernejo pri Sporta Pafado, diris, ke la konkursejo kaj ĝiaj servoj estas bonegaj. "Kion ili faris ĉi tie estas tiel bona, mi volas diri, multe pli bona ol multaj el la lokoj, kie mi konkuris antaŭe... Mi estas vere feliĉa pro tio, ke mi estas en Chengdu," ŝi diris.
+
+Brazila basketbalisto Caio De Souza Pacheco diris, ke la glata organizado de la evento helpas lin koncentriĝi pri lia sporto. "Mi estas tre feliĉa pro tio, ke mi estas ĉi tie. Ni estas tre ekscititaj... Kion oni faris en Chengdu, en Ĉinio, estas mirinde," diris Pacheco.
+
+Jonathan Larsen, trejnisto de la germana badmintona teamo, diris, ke ĉiuj sportistoj ricevis varman bonvenigon en la Gimnazio de la Sporta Centro Shuangliu. "La ejo aspektas absolute mirinda. Kaj ni antaŭĝojas konkuri en ĝi," diris Larsen. La badmintonejo, kun teretaĝa areo de 14 626 kvadrataj metroj, entenas 14 kortojn kaj areon por ke atletoj prepariĝu por la ludo.
+
+Sofus Rasmussen, estro de la norvega delegacio, diris, ke li estas tre impresita, kiel la aferoj estas organizitaj. "De la momento, kiam ni alvenis, ni estis tiel bone prizorgataj... Aferoj estis pritraktitaj tre efike. Mi pensas, ke tiu ĉi organiza komitato estigis normon vere altan por la venonta komitato." Rasmussen diris, ke la malferma ceremonio estis tiel grandioza, ke ĝi estis la plej diskutata temo inter atletoj kaj oficialuloj dum la semajnfino.
+
+"Ĝi estis nekredebla kaj tute malsimila al (iu ajn ceremonio) kiun mi iam ĉeestis antaŭe. Mi atendis, ke ĝi estus sensacia, sed ne sur tiu nivelo. Kaj la spektantaro estis mirindaj. La atletoj estis tiel kortuŝitaj. Por ĉi tiuj junuloj, ĝi estis io, kion ili neniam forgesos," li aldonis.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: China Daily
+
+El Popola Chinio
+
+
+---
+
+# Inaŭguriĝis 108-a UK en Torino!
+
+**Published:** 2023-08-01
+
+**URL:** http://esperanto.china.org.cn/2023-08/01/content_97641849.htm
+
+**Categories:** E
+
+La 30-an de julio, laŭ la loka tempo, inaŭguriĝis en la Politeknika Universitato de Torino, Italio, la 108-a Universala Kongreso de Esperanto (UK). Ĝis la 31-a de julio aliĝis al UK 1 287 esperantistoj el 69 landoj kaj regionoj.
+
+Kunfotiĝo
+
+En la inaŭguro, sinsekve faris parolojn la reprezentantoj de Unesko, Eŭropa Unio, registaroj kaj kulturaj institucioj de Piemonto kaj Torino, reprezentantoj de fakaj Esperanto-organizoj, kaj reprezentantoj de regionaj Esperanto-organizoj.
+
+En la inaŭguro
+
+En la inaŭguro oni laŭtlegis mesaĝon de la mondfama kantisto Andrea Bocelli, kiu fieris esti elektita kiel honora komitatano de la UK. Li diris en la mesaĝo, ke de sia piano-instruisto li lernis bazajn sciojn de Esperanto. Kvankam li poste forgesis la lingvon, tamen li ankoraŭ havas belajn memorojn pri ĝi.
+
+Prezidanto de Universala Esperanto-Asocio Duncan Charters
+
+Duncan Charters, prezidanto de Universala Esperanto-Asocio, prezidis la inaŭguron. Li bonvenigis la partoprenantojn el la tuta mondo kaj diris, ke espereble la partoprenantoj ĝuos la mirindan tempon unikan al ĉiuj esperantistoj en la venonta semajno, ili multe profitos je kulturaj interŝanĝoj, akademiaj esploroj, diskonigo kaj disvastigo kaj prezentoj de atingoj.
+
+Parolas reprezentantoj de fakaj asocioj.
+
+Kunfotiĝas la ĉina delegacio al UK kun Duncan Charters.
+
+Al la inaŭguro ĉeestis ĉina delegacio, el Ĉina Esperanto-Ligo, kun 12 membroj, formita de Azi-Pacifika Centro de Ĉina Internacia Komunika Grupo, Centra Akademio pri Belartoj de Ĉinio, Ĉina Fonduso pri Protektado de Kultura Heredaĵo kaj Zaozhuang-a Universitato.
+
+Chen Wenge, direktoro de Azi-Pacifika Centro de Ĉina Internacia Komunika Grupo kaj vicprezidanto de Ĉina Esperanto-Ligo, donacas la libron Iniciato "La Zono kaj Vojo" al tanzania kultura konsilisto.
+
+En la kongresejo, Tanzania Esperanto-Asocio, organizanto de la 109-a UK en 2024, sendis delegacion por fari diskonigon. Chen Wenge, direktoro de Azi-Pacifika Centro de Ĉina Internacia Komunika Grupo kaj vicprezidanto de Ĉina Esperanto-Ligo, kiel estro de la ĉina delegacio ricevis intervjuon de tanzania amaskomunikilo. Li diris, ke la amikeco inter Ĉinio kaj Tanzanio havas longan historion, kaj li esperas, ke la unua UK okazonta en Afriko estos sukcesa kaj akiros kunlaborajn fruktojn por realigi pli vastajn kulturajn kaj komercajn interŝanĝojn, kiuj antaŭenigos la disvolviĝon de "La Zono kaj Vojo" celante kungajnojn.
+
+Posttagmeze de la 29-a de julio, Universala Esperanto-Asocio okazigis komitatan kunvenon. En la kunveno ĉina esperantisto Gong Xiaofeng estis elektita kiel estrarano. Profesoro Gong Xiaofeng instruis en Nanchang-Universitato antaŭ emeritiĝo. Ŝi estis ankaŭ vicprezidanto de la Internacia Esperanto-Instruista Asocio (ILEI) kaj respondeculo de la Instruista Laborfako de Ĉina Esperanto-Ligo. En la sama kunveno, Renato Corsetti estis elektita kiel honora prezidanto de la asocio, kaj Katalin Kováts, Anna Löwenstein kaj Privas Tchikpe honoraj membroj de la asocio.
+
+Raportis Jiang Limin kaj Zhao Wenqi
+
+El Popola Chinio
+
+
+---
+
+# La kreskiĝinta domo
+
+**Published:** 2023-08-02
+
+**URL:** http://esperanto.china.org.cn/2023-08/02/content_95949794.htm
+
+**Categories:** Socia Vivo
+
+Striktaj sanitaraj postuloj de landaj registaroj, altkostaj flugbiletoj, maloportunaj itineroj, kvaranteno, nukleacida testado, inter aliaj aferoj, igis internaciajn vojaĝojn aparte malfacilaj dum la pasintaj tri jaroj. Nuntempe situacio renormaliĝas kaj kreskas la nombro de homoj vojaĝantaj eksterlande.
+
+La verda domo en la foto estas mia iama loĝejo en Brazilo.
+
+En la flughavenoj, proceduroj por vojaĝi estis esence samaj kiel tiuj de antaŭ kelkaj jaroj, la nura diferenco estas tio, ke en Ĉinio necesas plenumi retan formularon okaze de alveno aŭ foriro, sed la proceduro estas rapida kaj simpla.
+
+La ĵus okazinta vojaĝo, en junio kaj julio 2023, estis la unua post la forpaso de mia patrino, sekve mi okupiĝis pri nekutimaj taskoj, ekzemple kontroli dokumentojn, fotojn kaj familiajn heredaĵojn postlasitajn de ŝi. Dum plenumado de tiuj taskoj, historio de mia familio riveliĝis iom post iom: mi trovis detalojn kaj materiajn pruvojn de pluraj rakontoj, kiujn mi aŭdis de mia avino dum mia infaneco, kaj rememoris multajn agrablajn momentojn de la pasinteco.
+
+Inter la memoraĵoj de mia infaneco, aparte forta estas tiu de la domo plena de homoj: parencoj kutimis veni al mia hejmo en festotagoj, aparte en Kristnasko, Novjaro kaj Karnavalo. La domo estis malgranda por tiom da homoj, kaj multaj el ili dormis sur matracoj metitaj surplanke en ĉambroj kaj koridoro. En tiaj okazoj mia avino kutimis kuiri per grandaj potoj, kaj foje ne estis sufiĉaj sidlokoj por tiom da homoj ĉe la granda manĝotablo, sekve kelkaj bezonis manĝi en alia ĉambro aŭ atendi iom da tempo.
+
+Olepentraĵo verkita de mia patrino, kiun mi kunportis al Pekino
+
+Laŭ tempopaso, maljunaj parencoj mortis kaj iliaj gefiloj kaj genepoj sekvis propran vojon en la vivo. Kiam mi transloĝiĝis al la urbo Campinas por studi en universitato, jam estis malmultaj kaj maloftaj la gastoj en la hejmo de mia familio, kaj la tablo antaŭe malgranda por tiom da homo fariĝis grandega por nur tri aŭ kvar homoj, nombro kiu poste eĉ pli reduktiĝis ĝis nulo.
+
+Same la domo iom post iom fariĝis tre granda por tiom da homoj, tiel ke post mia transloĝiĝo al Ĉinio, mi ne nur konservis mian dormoĉambron en la hejmo de miaj gepatroj, sed ankaŭ ekuzis alian ĉambron por gardi miajn librojn kaj aliajn personajn posedaĵojn.
+
+Kaj subite mi troviĝis tute sola en la domo, kiu ĉi-foje ŝajnis ja tiel granda kiel mi neniam antaŭe povus imagi. Grandeco estas relativa koncepto. Mi faris donacojn al muzeoj kaj biblioteko kaj apartigis por mi kion mi bezonas kunporti al Ĉinio.
+
+Mi adiaŭis mian iaman hejmon kun sento de plenumita misio. Tio estis la fino de grava ĉapitro de mia vivo, kaj mi revenis al Ĉinio por ekverki la sekvan.
+
+Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ĉina Tago en 108-a UK, Italio
+
+**Published:** 2023-08-02
+
+**URL:** http://esperanto.china.org.cn/2023-08/02/content_97715500.htm
+
+**Categories:** E
+
+Posttagmeze de la 30-a de julio, laŭ la loka tempo, la ĉina delegacio por la 108-a Universala Kongreso de Esperanto (UK) okazigis la programon Ĉina Tago. La programo estis gvidita de la Universala Esperanto-Asocio (UEA) kaj Ĉina Internacia Komunika Grupo, gastigita de Ĉina Esperanto-Ligo, Azi-Pacifika Centro de la grupo, Fremdlingva Eldonejo, kaj subtenita de la Centra Akademio pri Belartoj de Ĉinio, Ĉina Fonduso pri Protektado de Kultura Heredaĵo kaj Zaozhuang-a Universitato. Al la programo sendis salutmesaĝon Liu Kan, ĝenerala konsulo de Ĉinio en Milano de Italio. Al la programo partoprenis pli ol 80 personoj, inkluzive de Duncan Charters, prezidanto de UEA, Chen Wenge, vicprezidanto de Ĉina Esperanto-Ligo, So Jinsu, estrarano de Universala Esperanto-Asocio kaj prezidanto de Korea Esperanto-Asocio kaj Renato Corsetti, eksprezidanto de UEA.
+
+La programo inkludas tri ekspoziciojn "10 jaroj: 'La Zono kaj Vojo'", "Ĉinaj etnoj tra lensoj" kaj "Ĉinaj ideogramoj kaj moderna desegno", kaj diskonigo pri ĉina E-movado, Esperantigo de UNESKO-Kuriero, 10-jariĝo de Esperanta Muzeo en Zaozhuang-a Universitato kaj libroj eldonitaj de Fremdlingva Eldonejo.
+
+Duncan Charters en la programo
+
+En sia salutparolo, Duncan Charters diris, ke Ĉina Esperanto-Ligo estas la plej forta landa E-asocio, kaj multe laboras por kulturaj interŝanĝoj per Esperanto, ĝiaj laboroj estas nepraj por UEA. Li dankis kaj esperis, ke la ĉina registaro povos daŭre subteni la Esperantan movadon kaj fari siajn kontribuojn por la prospero de nia afero, kune kun UEA.
+
+Liu Kan diris en sia salutmesaĝo, ke lastatempe Ĉinio kaj Italio okazigis diversnivelajn kaj diversformajn interagojn, la programo Ĉina Tago rakontas ĉinajn rakontojn kaj tiujn pri komuna disvolviĝo de la lando kaj la mondo, kio malfermas plurkoloran fenestron por ĉeestantoj kaj la itala popolo. Li esperis, ke partoprenantoj povos kune kontribui por kultura diverseco kaj civilizacia interkompreno.
+
+So Jinsu, estrarano de UEA kaj prezidanto de Korea Esperanto-Asocio
+
+Chen Wenge, vicprezidanto de Ĉina Esperanto-Ligo
+
+Chen Wenge diris, ke UK estas speciala platformo por reciproka lernado, interkompreno kaj internacia kunlaboro. Li esperis, ke tra la programo niaj samideanoj povos vidi verajn rakontojn pri komuna disvolviĝo de Ĉinio kaj la landoj en kunlaboroj kadre de "La Zono kaj Vojo", senti la intereson de interinfluo kaj interlernado de ĉina kaj fremdlandaj kulturoj kaj aŭdi la belajn melodiojn akiritajn dum la harmonia kunesto de malsamaj etnoj en Ĉinio.
+
+Sekve Lü Pinjing, vicestro de Centra Akademio pri Belartoj de Ĉinio, kaj Wang Chong, direktoro de Ĉina Fonduso pri Protektado de Kultura Heredaĵo, respektive diskonigis pri la konceptoj de la ekspozicioj en la programo. Ragnar Baldursson, eksa konsilisto de la islanda ambasadorejo en Ĉinio, sendis salumesaĝon al la programo, en kio li alte taksis la ekspozicion "10 jaroj: 'La Zono kaj Vojo'" kaj diris, ke la ĉina iniciato "La Zono kaj Vojo" plene prezentas la zorgon de Ĉinio pri paca disvolviĝo de la tuta homaro.
+
+Chen Wenge, Duncan Charters, So Jinsu, Renato Corsetti, Lü Pinjing kaj Wang Chong malfermas la ekspoziciojn.
+
+Chen Ji, ĝenerala sekretario de Ĉina Esperanto-Ligo, diskonigis la laborojn de la ligo en lastaj jaroj, precipe la lingvonivelon kaj kunlaborojn montratajn dum la esperantigo de UNESKO-Kuriero. Renato Corsetti, reprezentante la teamon de volontul-tradukistoj por la esperantigo, alte taksis la kontribuojn de la ligo por la eldonado kaj esperantigo, kaj dankis la ĉinan registaron pro ĝia subteno al E-movado. Li Muhai, vicprezidanto de Zaozhuang-a Universitato, diskonigis la daŭran evoluigon de la 10-jariĝinta muzeo. Li diris, ke la universitato daŭrigos la subtenadon al nia afero, la muzeo protektos la konservaĵojn per tekniko kaj subtenos E-kulturon per amzorgo.
+
+Chen Wenge faras salutparolon al la teamo, formita de volontuloj el pli ol 10 landoj, kaj donas al ili atestilojn kaj memoraĵojn.
+
+Renato Corsetti faras parolon.
+
+La partoprenantoj diris, ke tra la mirindaj bildoj de la ekspozicio, ili pli profunde konas la ĉinan kulturon kaj ĉinajn kontribuojn por la mondo. Ili esperis, ke tiaj ekspozicioj povos esti daŭrigitaj, alportonte novajn pensmanierojn kaj modelojn.
+
+Chen Wenge estas intervjuita de tanzania amaskomunikilo.
+
+La 31-an de julio la dua plej granda ĵurnalo en Italio La Repubblica faris raporton pri la programo.
+
+El Popola Chinio
+
+
+---
+
+# Universiado en Chengdu kaj atingoj de sporto en Ĉinio
+
+**Published:** 2023-08-03
+
+**URL:** http://esperanto.china.org.cn/2023-08/03/content_97740279.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Nokte de la 20-a de julio, mi estis en la internacia flughaveno Cumbica en Brazilo, atendanta en vico por ekspedi mian bagaĝon al Ĉinio. Antaŭ mi estis aro da atletoj, ĉiuj en novaj uniformoj de brazila teamo, kun la emblemo de CBDU (Brazila Konfederacio pri Universitataj Sportoj). Tiu granda delegitaro de junaj atletoj el malsamaj sportoj respondecis pri granda elcento de la tuta aro da pasaĝeroj en la aviadilo kiu kunportis nin al Adis-Abebo, ĉefurbo de Etiopio. Post tiu 12-hora flugo ni disiĝis: la atletoj iris al Chengdu kaj mi al Pekino.
+
+Ĉina delegitaro salutas la publikon en la malferma ceremonio de ĉijara universiado en Chengdu.
+
+Dum la vojaĝo, plejparto de la atletoj bone dormis, kelkaj restis vekaj spektante filmojn, kaj mi aparte memoras pri basketbalisto kun longegaj kruroj, tre longaj por komforte akomodiĝi inter la seĝoj.
+
+La entuziasmo de tiuj brazilaj atletoj certe ne estis malpli granda ol tiu de atletoj el aliaj landoj venintaj al Chengdu por la universiado. En Adis-Abebo, atendante mian flugon, mi imagis kiom multe tiuj atletoj estus impresitaj de la disvolviĝo de Ĉinio.
+
+Chengdu estas bela kaj moderna urbo, kiun mi vizitis en 2021. Tie mi vizitis la bazon pri bredado de grandaj pandoj; gustumis la mondfamajn pladojn de sichuan-a kuirarto, unu el la ok ĉefaj regionaj kuirartoj de Ĉinio; kaj spektis prezentaĵon de Sichuan-a Opero, unu el la plej famaj stiloj de tradicia ĉina opero. Ne for de Chengdu oni povas viziti vilaĝojn de etnoj kaj lokojn kun aparta historia graveco, ekzemple la antikva irigacia sistemo Dujiangyan kaj la arkeologiejo Sanxingdui.
+
+La 20-an de julio, brazilaj atletoj atendis en vico por ekspedi bagaĝon kaj ekflugi al Chengdu.
+
+Sed ni fokusiĝu sur sporto en tiu artikolo. Ĉinio jam gastigis multajn gravajn internaciajn sportkonkursojn kaj ĉiam provizis servojn kaj strukturon altnivelajn por tiuj eventoj. Plie, multaj landoj emas konstrui kaj reformi stadionojn por grandegaj internaciaj sportaj eventoj, ĉefe Olimpikoj, sed nur kelkaj emas fari la samon kiam temas pri evento malpli atentata, kiel universiado. La investo de Ĉinio en konstruado kaj reformado de sportejo uzataj por ĉijara universiado montras ne nur, ke la lando alte taksas universitatajn sportojn, sed ankaŭ evidentigas la laŭdindan laboron de la ĉina registaro por popularigi sporton kaj sanigan vivstilon.
+
+En tiu ĉi jarcento, Brazilo gastigis la Tut-Amerikajn Ludojn en 2007, la Futbalan Mondpokalon en 2014, kaj la Somerajn Olimpikojn kaj Paralimpikojn en 2016. Komentoj pri tiuj eventoj en amaskomunikiloj kaj sociaj retejoj ofte priskribis la registarajn investojn faritajn por tiuj eventoj kiel malŝparo da mono. Ĉu pravaj aŭ ne, tiuj komentoj eĥas similajn komentojn en multaj aliaj landoj kiuj gastigis tiajn eventojn. Kial? La respondo estas simpla: abundas ekzemploj de stadionoj kaj aliaj strukturoj konstruitaj por granda sporta evento, kiuj poste estis simple forlasitaj aŭ detruitaj, sen alporti avantaĝojn por la popolo.
+
+En Ĉinio, male, plejparto de homoj vidas tiujn grandajn eventojn ne nur kiel ilo por montri al la mondo la kulturon kaj la multajn atingojn de Ĉinio, sed ankaŭ kiel io, kio alportos pluan disvolviĝon al la gastigurbo, el kiu profitas ankaŭ la popolo. Veninte al Pekino, mi konstatis, ke plejparto de la infrastrukturo konstruita por la Someraj Olimpikoj kaj Paralimpikoj 2008 ne nur estas konservataj kaj daŭre gastigas sportajn eventojn, sed ankaŭ multaj el ili fariĝis turismejoj kaj sportejoj. En kelkaj el tiuj lokoj, ordinaraj homoj informiĝas pri iu sporto kaj povas ĝin lerni kaj praktiki. En la lasta vintro, multaj homoj en Ĉinio profitis la infrastrukturon de la skiejoj konstruitaj por la Vintraj Olimpikoj kaj Paralimpikoj 2022 por praktiki vintrajn sportojn.
+
+Loĝejoj konstruitaj por gastigi atletojn dum universiado en Chengdu
+
+Tiel funkcias planado de sportaj eventoj en Ĉinio: oni ne rigardas nur la eventon, sed ankaŭ la postulojn kaj mankojn surloke, por disvolvi ampleksan projekton uzante la eventon kiel simbolon. Antaŭ kaj dum la ludoj, kreiĝas etoso favora por stimuli homojn praktiki sportojn kaj diversaj aktivaĵoj pri diskonigo kaj stimulado pri sportoj ampleksigas la efikon de tiu entuziasmo. Post la ludoj, lokaj homoj havas pliajn oportunojn por lerni kaj praktiki sportojn, kaj kiu povas antaŭvidi, ĉu inter ili estas iu, kiu fariĝos pintnivela atleto de Ĉinio en la estonteco? Ju pli da homoj havas ŝancon praktiki iun sporton, des pli multaj talentuloj estos malkovritaj.
+
+Aldone al ĉio jam dirite, la entuziasmo de ĉinoj pri sportoj ankaŭ estas bona por la landa ekonomio, ĉar kreskas jaron post jaro la elspezoj de ĉinoj pri sportoj: homoj aĉetas pli da sportaj ekipaĵoj, aliĝas al pagendaj trejnoj kaj pagas iom da mono por uzi sportejon. Tiuj elspezoj kreas postenojn, stimulas produktadon kaj vigligas provizadon de sport-rilataj servoj.
+
+Per alpreno de saĝaj kaj ampleksaj politikoj pri sporto, kunligitaj kun tiuj pri aliaj sektoroj, Ĉinio sukcesas gastigi plurajn altnivelajn internaciajn sportajn eventojn kaj diversmaniere profiti de ili.
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Kulturaj spertoj de sportistoj en 31-a Somera Universiado
+
+**Published:** 2023-08-03
+
+**URL:** http://esperanto.china.org.cn/2023-08/03/content_98083517.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Kiam nokto falis kaj la sportkonkursoj finiĝis, la vigla atmosfero moviĝis de sportejo al la vilaĝo de la universiado. Male ol la arda konkurenca etoso de la konkursoj, la kulturaj spertoj estas kaj interesaj kaj distraj.
+
+La butiko en la vilaĝo estas bona loko por ke la sportistoj malstreĉiĝu. Antaŭ la budo plena de ĉinaj kulturaĵoj, oni atente rigardas, elektas kaj spertas.
+
+Ĉe la angulo pri ĉinlingva lernado, itala sportisto skribis sian nomon en la ĉina.
+
+La novaj spertoj permesas al sportistoj malstreĉiĝi.
+
+Jen junularo. Jen la chengdu-a universiado.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉinaj trajtoj en Ĉina Tago de 108-a UK
+
+**Published:** 2023-08-04
+
+**URL:** http://esperanto.china.org.cn/2023-08/04/content_98469119.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Posttagmeze de la 30-a de julio okazis la programo Ĉina Tago en la 108-a Universala Kongreso de Esperanto (UK). La programo estis gvidita de la Universala Esperanto-Asocio (UEA) kaj Ĉina Internacia Komunika Grupo (ĈIKG). Tio inkludas tri ekspoziciojn "10 jaroj: 'La Zono kaj Vojo'", "Ĉinaj etnoj tra lensoj" kaj "Ĉinaj ideogramoj kaj moderna desegno", kaj diskonigo pri ĉina E-movado, Esperantigo de UNESKO-Kuriero, 10-jariĝo de Esperanta Muzeo en Zaozhuang-a Universitato kaj libroj eldonitaj de Fremdlingva Eldonejo. En sia salutparolo, Duncan Charters diris, ke Ĉina Esperanto-Ligo estas la plej forta landa E-asocio, kaj multe laboras por kulturaj interŝanĝoj per Esperanto, ĝiaj laboroj estas nepraj por UEA.
+
+Redaktoro: Sheng Min
+
+El Popola Chinio
+
+
+---
+
+# Zhuozhou-urbo trafis en inundon
+
+**Published:** 2023-08-04
+
+**URL:** http://esperanto.china.org.cn/2023-08/04/content_98473200.htm
+
+**Categories:** Socia Vivo
+
+Ekde la 29-a de julio, la regiono de la urbegoj Pekino kaj Tianjin kaj la provinco Hebei estis atakita de forta pluvo, kaj la urbo Zhuozhou de Hebei estis severe detruita de inundo kaŭzita de la pluvego. De la 8-a horo de la 29-a de julio ĝis la 11-a horo de la 1-a de aŭgusto, la averaĝa precipitaĵo en Zhuozhou estas 355.1 milimetroj, kaj la precipitaĵoj en multaj urbetoj kaj distriktoj sub Zhuozhou superis 300 milimetrojn. Savtrupoj el la tuta lando kolektiĝis en Zhuozhou kaj faris savadon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Neforgesebla beleco de 31-a Somera Universiado
+
+**Published:** 2023-08-07
+
+**URL:** http://esperanto.china.org.cn/2023-08/07/content_98467423.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Sekvante la procezon de la 31-a Somera Universiado, pli kaj pli multaj mirindaj bildoj de junaj sportistoj estis kaptitaj de lensoj. Plonĝo, gimnastiko, naĝado kaj aliaj sportoj vigligas la junecon kaj entuziasmon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kiel 5G efikos sur niaj vivoj?
+
+**Published:** 2023-08-08
+
+**URL:** http://esperanto.china.org.cn/2023-08/08/content_98477817.htm
+
+**Categories:** Socia Vivo
+
+Jam de pluraj jaroj 5G-a interreto kaj rilataj teknikoj estas realo, sed ankoraŭ malmultaj homoj konscias pri ĝiaj eblaj aplikoj kaj kapabloj. Por konsciigi homojn pri tiu temo, la ĉina teknologia firmao Huawei estigis 5G-spertejon en Pekino, kie vizitantoj povas vidi kaj sperti plurajn malsamajn aplikojn de 5G-a interreto.
+
+Per 5G-tekniko homoj en Pekino povas realtempe kontroli kameraon instalitan ĉe Huangpu-rivero en Ŝanhajo.
+
+Pli komforta endoskopio: post engluti kapsulon entenanta kameraon, kuracisto en ajna loko - eĉ eksterlande! - povas realtempe vidi la internaĵojn de paciento.
+
+Diversaj aparatoj por sanekzamenoj povas esti realtempe kontrolataj per komputilo el fora loko - eĉ eksterlande!
+
+Saĝaj sensiloj ligital al 5G-a interreto povas altigi la nivelon de komforto kaj sekureco de via hejmo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Eric Saintrond: La universiado en Chengdu sciigas la mondon pri vera Ĉinio
+
+**Published:** 2023-08-08
+
+**URL:** http://esperanto.china.org.cn/2023-08/08/content_99987160.htm
+
+**Categories:** Socia Vivo
+
+La 5-an de aŭgusto la ĝenerala sekretario de Internacia Federacio de Universitata Sporto Eric Saintrond akceptis intervjuon kaj alte taksis la organizadon kaj garantion de la 31-a Somera Universiado en Chengdu. Li multe laŭdis la stadionojn, organizadon de matĉoj, servon de volontuloj kaj aparte menciis, ke nur 13 el 49 sportejoj de la universiado en Chengdu estis nove konstruitaj kaj la aliaj 36 estas reformitaj konstruaĵoj. Eric diris, ke Chengdu faris mirindan laboron, kaj inter multaj solenaj sportkonkursoj laŭ lia sperto, ĉi tiu konkurso estas la plej bona en la mondo. Li diris, ke Ĉinio estas progresinta lando, ekzemple la televidprogramoj havas mirindajn nivelojn. Chengdu estas verda urbo de estonteco kaj li amas Chengdu kaj Ĉinion.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Chengdu estas bela urbo en la okuloj de fremdlandanoj por 31-a Somera Universiado
+
+**Published:** 2023-08-08
+
+**URL:** http://esperanto.china.org.cn/2023-08/08/content_99987887.htm
+
+**Categories:** Socia Vivo
+
+Elavenil Valarivan, barata sportistino naskita en 1999, diris, ke ŝi unuafoje venis al Chengdu kaj tio estas ŝia tria vizito al Ĉinio. Post la konkursoj ŝi vizitos la bazon de grandaj pandoj.
+
+Pedro Consoli, brazila raportisto de la ĵurnalista grupo por la universiado, unuafoje venis al Ĉinio. Li diris, ke Chengdu estas tre bela urbo, pli verda ol li imagis.
+
+Slovaka akvopilkisto Kovacik Peter Jan diris, ke li ŝatas la manĝaĵon kaj kulturon de Chengdu, kiuj donis al li bonan impreson. Parolante pri la malferma ceremonio okazinta la 28-an de julio, li diris, ke li estis surloke kaj sentis, ke ĉio estas bela. "La plej impona afero estis la torĉ-stafetado, ekbruligo de fajro kaj la artfajraĵoj, kiuj estis tre tre mirindaj! Ĉio ĉi profunde impresis min."
+
+Portugala tenisisto Ribeiro diris, ke la konkurso estis tre malfacila, sed feliĉe la spektantoj akompanis ŝin trapasi la malfacilan tempon. Ŝi venis la unuan fojon al Chengdu, kaj ŝi ne sciis multon pri la urbo, sed la malferma ceremonio donis profundan impreson al ŝi. Ŝi uzis plurfoje la vorton "mirinda" por priskribi tion. Ŝi vere sentis la junan viglecon de la urbo Chengdu.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Fermiĝis 31-a Somera Universiado
+
+**Published:** 2023-08-09
+
+**URL:** http://esperanto.china.org.cn/2023-08/09/content_100444159.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Vespere de la 8-a de aŭgusto fermiĝis la 31-a Somera Universiado en Chengdu-urbo, Sichuan-provinco, Ĉinio.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Usonaj universitatoj kaj ĉina retkomerco
+
+**Published:** 2023-08-09
+
+**URL:** http://esperanto.china.org.cn/2023-08/09/content_99998504.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Lastatempe studentoj el usonaj universitatoj mendis specialan
+
+huoguo
+
+-n en Chengdu, Sichuan, Ĉinio. Ili skanis du-dimensian kodon per poŝtelefono, kaj post nelonge liveristo alportis materialojn kaj manĝilojn abonitajn de ili.
+
+Ili gustumis diversajn pladojn kaj flaris la fortan aromon de la varmega poto. Post ĝissata manĝado, ili fariĝis vivelsendistoj kaj vidis la potencon de ĉina retkomerco per ilia rezulto de pli ol 3 000 mendoj en du horoj.
+
+Ĝis la fino de 2022, la nombro de uzantoj de eksped-servo de ĉiutagaj necesaĵoj en Ĉinio atingis 521 milionojn, kaj
+
+huoguo
+
+estas unu el la distingaj specoj de manĝaĵoj. La ekonomia disvolviĝo alportis grandan oportunon al homoj.
+
+Redaktoro: Sheng Min
+
+El Popola Chinio
+
+
+---
+
+# Nuda , Kjara surprizas Esperantan muzikan scenejon!
+
+**Published:** 2023-08-10
+
+**URL:** http://esperanto.china.org.cn/2023-08/10/content_99994115.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+En 2019, la itala muzikistino Kjara (Chiara Raggi) debutis en la Esperanta muzika scenejo per sia unua albumo
+
+Blua Horizonto
+
+. Kvankam la pandemio de KOVIM-19 malfaciligis okazigon de ĉeestaj koncertoj, tamen Kjara plurfoje sin prezentis en retaj kongresoj, ĉiam akompanata de sia gitaro, kiu faras mirindan duopon kun ŝia bela voĉo.
+
+Post tiom da jaroj (kaj pandemio), Kjara refoje surprizas Esperantujon, ĉi-foje per la bitalbumeto
+
+Nuda
+
+. La nomo ne povus esti pli trafa: anstataŭ gitaro, Kjara ĉi-foje estas akompanata de la piano de Simone Migani, kaj por ŝi, muziki sen gitaro estas kvazaŭ muziki nuda. Por Kjara, tiu ĉi albumo pruvas, ke ŝi trapasis tiun defion kaj ampleksigis la horizonton de sia muziko. Por ni, la aŭskultantoj, la dialogo de Kjara kun la piano estas unu el la plej agrablaj novaĵoj en Esperanta muzika scenejo lastatempe.
+
+Kun la piano, la muziko gajnis aranĝon tute alian ol tiu de la pasinta albumo, kun sono pli milda kaj trankviliga. Sen gitaro, Kjara fokusiĝis sur sia voĉo kaj eluzis la tutan povon de ĝi.
+
+Tiu Ĉi Tempo
+
+estas la unua kanto de la bitalbumeto. En ĝi la voĉo de Kjara dancas inter flustro kaj krio laŭ la melodio de la piano, miksante sentojn de ĝojo kaj malĝojo, aflikto kaj trankvilo. La teksto temas pri la ŝancoj alportataj de la vivo al ni kaj la graveco plene ĝui la vivon, ĉar tiu ĉi tempo estas la nura kiun ni havas.
+
+Sekve venas
+
+Nombru Ĉion
+
+, kun bela, trankviliga kaj esperplena melodio. Ĝia teksto instigas homojn rigardi la vivon el pozitiva angulo. La flustra voĉo de Kjara kontraste kun la akuta sono de la piano kunkreas gajan senton favoran por ke oni nombru la bonajn aferojn de ĉiutaga vivo por tiel sentu sin pli feliĉa.
+
+Sablo Venta
+
+estas kanto inspirita de ŝia naskiĝurbo Rimini, kie sablo kaj foje vento miksiĝas, kreante kaoson. Per poezia rakonto pri tiu rilato inter sablo kaj vento, Kjara kreis tekston aparte elstaran kaj kun profunda enhavo por pripensado. La melodio evoluas de io simpla kaj tediga al io pli kompleksa kaj bela, akompanante la tekston: la turmentoj kaj malkomfortoj estas spicaĵoj kiuj donas guston al la vivo.
+
+La albumo finas per nov-aranĝita versio de la plej konata kanto de Kjara:
+
+Mozaiko
+
+. En ĝi, piano kaj Kjara majstre dialogas, kaj ambaŭ muzikistoj plene montras sian talenton. La albumo finiĝas lasante la aŭskultanto kun la deziro refoje aŭskulti ĝin.
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de la kantoj kaj aĉeti tiun ĉi bitalbumeton:
+
+https://www.vinilkosmo-mp3.com/eo/kanzono-tradicia-progresiva/kjara/3-nuda.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe
+
+https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# La estonteco de fervojo en Ĉinio
+
+**Published:** 2023-08-11
+
+**URL:** http://esperanto.china.org.cn/2023-08/11/content_100831570.htm
+
+**Categories:** Socia Vivo
+
+Kiam oni parolas pri ĉina fervojo, la unua bildo kiu venas al la kapoj de homoj estas tiu de altrapida trajno. Dum la lastaj jardekoj, ĉina fervoja reto ne nur multobliĝis, sed ankaŭ trajnvojaĝoj inter ĉinaj urboj fariĝis pli komfortaj kaj rapidaj. Ankaŭ enurbaj vojaĝoj fariĝis pli konvenaj rezulte de la rapida kresko de metroo en ĉinaj urbegoj.
+
+Studento el Pakistano spertas trajnsimulilon.
+
+Eksterlandanoj venintaj al Ĉinio povas pensi, ke kadre de fervoja transporto ĉinoj jam vivas en la estonteco, sed inter ĉinoj la sento ne nepre estas la sama. Unue, la populacio de Ĉinio superas unu miliardon da homoj kun kreskanta averaĝa enspezo kaj emo vojaĝi pli ofte. Due, ankaŭ oficvojaĝoj fariĝas pli oftaj rezulte de la ekonomia disvolviĝo de la lando, dum pli kaj pli da homoj loĝas for de la laborejo kaj dependas de metroo. En la skalo de Ĉinio, etaj ŝanĝoj en kutimoj de homoj povas krei grandegajn postulojn pri plibonigo de kapablo, rapideco kaj efikeco de transportoj.
+
+Konstruado de novaj fervojoj kaj flughavenoj ja pli faciligas la vojaĝadon inter urboj, kaj novaj metrolinioj ja mildigas la problemojn de enurba transporto. Sed ĉu tiuj solvoj sufiĉos por la estonteco? Certe ne! Kreskigi la nombron de trajstacioj kaj flughavenoj en urbegoj ja povas mildigi urĝajn problemojn, sed laŭ longtempa perspektivo la sistemo pri pasaĝertransporto iam saturiĝos. Same la konstruado de pliaj metrolinioj ne alportos definitivan solvon por cirkulado de homoj ene de urbo. Laŭ longtempa perspektivo, la tuta sistemo devas fariĝi pli efika, kaj por tio necesas investi en teknologio.
+
+Trafik-Kontrola Teknologi-Kompanio Limigita estas alt-teknika firmao en la distrikto Fengtai de Pekino, kie fakuloj esploras novajn teknikojn por pasaĝertransporto en la estonteco. Dum vizito al la firmao, oni sentas sin impresita pri tiom da interesaj kaj kreivaj projektoj.
+
+Fakulo klarigas pri la novaj teknikoj disvolvataj por fervojo.
+
+Unu grava punkto estas la atendotempo kaj minimuma distanco inter trajnoj por eviti kolizion. Ju pli da trajnolinioj povas akcepti, des pli da pasaĝeroj ĝi povos transporti. Nunaj teknologioj signife reduktis la atendon inter unu trajno kaj la sekva kaj plibonigis la sekurecon de surrelaj transportiloj. Nuntempe oni esploras aplikon de novaj teknologioj, kiel 5G-a interreto kaj artefarita intelekto, por plialtigi la efikon de fervoja reto.
+
+Tre bona ekzemplo de tiu apliko estas projekto disvolviĝata por la rapida metrolinio kiu ligas la urbon Pekino al la Ĉefurba Flughaveno. Nuntempe, la trajno iras de la urbo al flughavena terminalo 3, sekve al terminalo 2, kaj el tie revenas al la urbo. Laŭplane, en la estonteco la trajno disiĝos dum voje, kun kelkaj vagonoj survoje al terminalo 2 kaj aliaj al terminalo 3. Rezulte de tiu ŝanĝo, la ir-revena vojaĝo fariĝos pli rapida kaj malpli longa por ĉiuj pasaĝeroj. Dum la vojaĝo, tamen, vi devos certiĝi, ke vi estas en la ĝusta vagono.
+
+Kiel malsamaj vagonoj povos sekvi malsamajn vojojn? Kiel vagonaro povas dumvoje disiĝi en plurajn, aŭ kiel du aŭ pliaj povas kuniĝi por fariĝi unu pli granda? Vagonoj estos kunligitaj per ligiloj ne fizikaj, sed elektronikaj, kaj ĉiu vagono estos sendependa. Precizega regado de la rapideco de ĉiu vagono tenos la tutan vagonaron kune, kaj kiam estos necese apartigi vagonojn, sufiĉos ŝanĝi la rapidecon de tiuj vagonoj apartigotaj.
+
+Sensiloj kapablas detekti obstaklojn sur la vojo kaj haltigi la trajnojn por eviti akcidenton.
+
+Tiu tekniko malfermas aliajn eblecojn. Ekzemple, esploristoj disvolvas saĝan modelon de metroo en kiu ĉiu vagono sekvas malsaman itineron laŭlonge de la vojo, kunligante dumvoje kun aliaj vagonoj el malsamaj lokoj. Per tiu sistemo, pasaĝero povas alveni pli rapide al sia celloko sen ŝanĝi linion dumvoje. Sekva paŝo estos uzi saĝan regadsistemon bazitan sur neŭraj retoj por realtempe modifi la itineron de ĉiu vagono kun la celo optimumigi la efikecon de la reto.
+
+Alia tekniko esplorata temas pri kajutŝanĝeblaj trajnoj. La baza koncepto estas disvolvi kajutojn facile apartigeblajn de la cetera parto de vagono. Tiel oni povus laŭbezone alĝustigi la kvanton da seĝoj, litoj, restoracioj ktp en pasaĝertrajnoj, kaj ankaŭ facile adapti kargotrajnojn laŭ realtempa bezono.
+
+Ankaŭ gravega estas la sekureco de fervojoj: sensiloj en la trajnoj kaj ĉe la reloj kapablas detekti obstaklojn kaj aŭtomate reagi por eviti akcidenton. Ene de trajno, saĝaj kameraoj povas, interalie, identigi minacojn al sekureco de pasaĝeroj kaj informi gardiston. Dum la pandemio de KOVIM-19, specialaj kameraoj en la pekina metroo sukcese kontrolis la korpan temperaturon de pasaĝeroj por redukti la riskon de amasinfektado. En pekina metroo estas malpermesate manĝi kaj trinki, sed kelkaj homoj malobservas tiun regulon kiam ne estas gardisto en la vagono. Ili ne scias, ke saĝa kamerao kapablas rimarki kion ili faras. Ĉiam estu zorgema pri la reguloj de publika transporto, ili ekzistas por eviti akcidentojn kaj malagrablaĵojn.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Lize SOHO en Pekino: mirinda arkitektura verko de Zaha Hadid
+
+**Published:** 2023-08-11
+
+**URL:** http://esperanto.china.org.cn/2023-08/11/content_98466010.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Lize SOHO estas 207-metr-alta oficeja turo en financ-negoca distrikto Lize de Pekino, Ĉinio. Ĝi estas verko de la fama arkitekto Zaha Hadid kaj ŝia kolego Patrik Schumacher, inaŭgurita en 2019. Aparte distinga trajto de tiu konstruaĵo estas la atrio en ĝia centro, tordita je 45 gradoj por ebligi la eniron de sunlumo al ĉiuj etaĝoj de la konstruaĵo. La du duonoj de la turo estas kunligitaj de strukturaj ringoj sur ĉiu etaĝo, kvar pontoj kaj duoble izolita vitra fasado.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Sen Timo , Kajto aperigis sian naŭan Esperanto-albumon!
+
+**Published:** 2023-08-14
+
+**URL:** http://esperanto.china.org.cn/2023-08/14/content_101342215.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** E
+
+La 3-an de aŭgusto aperis Sen Timo, la naŭa albumo de la grupo Kajto, kiu de 25 jaroj muzikas en Esperanto. La nomo de la albumo evidente rilatas al la samnoma kantvideo kaj manifesto – lanĉita la 21-an de septembro 2020, Tago de Paco – iniciatita de Kajto kaj realigita kunlabore kun dekoj da Esperantaj muzikistoj tra la mondo en 2020. Ja Sen Timo estas la lasta trako de tiu ĉi albumo. Ĝi temas pri la rajto de ĉiu infano ludi sen timo.
+
+Rigardante al kio okazis en la mondo dum la jaroj post la lanĉo de la manifesto, oni konstatas, ke homoj daŭre mortas pro militoj kaj kreskas internacia tensio, sekve subteni pacon kaj la rajton de infanoj senti sin sekuraj por ludi kaj ĝui la vivon fariĝas grava temo por muzikalbumo.
+
+Por antaŭenigi la mesaĝon de la "Sen-Timo"-Manifesto – "En paco ludi - sen timo kuregi, salti, danci kaj kanti... estas la rajto de ĉiu infano!!!" – Kajto invitis plurajn gastmuzikistojn el malsamaj landoj, kaj aparte menciinda estas la partopreno de studentoj de la lernejo La Grande Ourse (La Granda Ursino) de La Chaux-de-Fonds en Svislando, kiuj ne nur kantas, sed ankaŭ mem verkis la tekstojn de kvar kantoj.
+
+La tekstoj de la kantoj en tiu ĉi albumo emfazas valorojn kiel paco, amo kaj frateco inter la homoj, instigas homojn havi pozitivan sintenon pri la vivo. Ankaŭ melodioj estas kutime gajaj kaj alportas bonajn sentojn al la koroj de la aŭskultantoj. Ĝuste tiujn sentojn ni bezonas por kunkonstrui belan kaj pacan estontecon por la homaro.
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de ĉiu kanto kaj aĉeti tiun ĉi bitalbumeton:
+
+https://www.vinilkosmo-mp3.com/eo/kanzono-tradicia-progresiva/kajto-115/9-sen-timo.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe
+
+https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Porcelanaĵoj en Domego de Princo Gong en Pekino
+
+**Published:** 2023-08-15
+
+**URL:** http://esperanto.china.org.cn/2023-08/15/content_102624708.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Ekspozicio pri porcelanaĵoj de Ming-dinastio (1368-1644) elfositaj ĉe la imperia porcelan-fabriko en Jingdezhen, Guangxi-provinco, estas malfermita al la publiko ĉe la iama Domego de Princo Gong en Pekino. La ekspozicio alprenas la kvar sezonojn ĉe la Domego de Princo Gong kiel fonon kaj prezentas 99 porcelanaĵojn, kiuj havas florojn kiel temon. La ekspozicio estas vizitebla en la unua kultur-relikva eksponejo en la Domego de Princo Gong.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: Global Times
+
+El Popola Chinio
+
+
+---
+
+# Refunkcias malnovaj vagonoj de pekina metroo
+
+**Published:** 2023-08-16
+
+**URL:** http://esperanto.china.org.cn/2023-08/16/content_103464979.htm
+
+**Categories:** Socia Vivo
+
+Ekde la 8-a de aŭgusto, la kompanio Pekina Metroo (angle Beijing Subway) ekfunkciis sur la 1-a linio trajnon kun malnovaj vagonoj. La trajno veturas de 14:00 ĝis 15:00 en labortagoj en la sekcio inter la stacioj Gucheng kaj Fuxingmen. Oni reaperigas per glumarkoj kaj kelkaj instalaĵoj la aspekton de tipaj vagonoj en la 60-aj jaroj de la pasinta jarcento. La tipaj trajtoj inkludas la horizontalajn sidlokojn, verdan koloron kaj malnovan liniomapon, kaj alportas al pasaĝeroj vetursperton de pasinta memoro.
+
+Pekina metroa trafiko kreskas dum la disvolvo de la urbo. La kompanio celas rakonti la historion de la veturiloj kaj la metrotrafiko per la trajno, tiel la pasaĝeroj povos havi pli riĉan sperton dum veturado, scii la progreson, ŝanĝojn de metroa teknologio kaj vidi la rapidecon de metroa disvolviĝo, kaj kune rerigardi la memorojn pri la tempopaso de subtera trafiko sub la ĉefurbo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Inaŭguriĝis 11-a Artsemajno de Ĉinio, Sud-Azio kaj Sudorienta Azio
+
+**Published:** 2023-08-16
+
+**URL:** http://esperanto.china.org.cn/2023-08/16/content_103465971.htm
+
+**Categories:** Socia Vivo
+
+La 15-an de aŭgusto inaŭguriĝis la 11-a Artsemajno de Ĉinio, Sud-Azio kaj Sudorienta Azio en Kunming de Yunnan-provinco, sudokcidenta Ĉinio. Kiel grava parto de la 7-a Ĉin-Sudazia Ekspozicio kaj la 27-a Kunming-a Foiro pri Importaj kaj Eksportaj Varoj, la artsemajno celas, per la riĉaj artprezentadoj kaj kulturaj interŝanĝoj, prezenti la fruktojn de kulturaj interŝanĝoj inter la provinco Yunnan kaj la sudaziaj kaj sudorientaj aziaj landoj, konstrui platformon por tiaj interŝanĝoj por plifortigi reciprokan komprenon, kaj antaŭenigi profundajn kunlaborojn inter Ĉinio kaj la landoj. La temo de ĉi-jara artsemajno estas "kunkonstrui 'La Zonon kaj Vojon', rendevui en Yunnan", kaj semajno daŭros ĝis la 20-a de aŭgusto.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Inaŭguriĝis 7-a Ĉin-Sudazia Ekspozicio
+
+**Published:** 2023-08-17
+
+**URL:** http://esperanto.china.org.cn/2023-08/17/content_103843678.htm
+
+**Categories:** Socia Vivo
+
+La 16-an de aŭgusto inaŭguriĝis la 7-a Ĉin-Sudazia Ekspozicio en Kunming-urbo, Yunnan-provinco en sudokcidenta Ĉinio. Dum la 5-taga ekspozicio, invititoj el 85 landoj, regionoj kaj internaciaj organizoj, kaj ankaŭ pli ol 30 000 partoprenantoj retaj kaj eksterretaj ĉeestas la ekspozicion kun la temo "unueco kaj kunlaboro por komuna disvolviĝo".
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping faris gravan instrukcion pri kontraŭinunda laboro kaj savado
+
+**Published:** 2023-08-18
+
+**URL:** http://esperanto.china.org.cn/2023-08/18/content_103924407.htm
+
+**Categories:** Socia Vivo
+
+Lastatempe ĉina prezidanto Xi Jinping faris gravan instrukcion pri kontraŭinunda laboro kaj savado. Li diris, ke lastajn tagojn pro la tajfuno Doksuri ekstreme pluvegis en norda Ĉinio kaj aliaj lokoj, kio kaŭzis inundon, akvosaturitan geologian katastrofon, kaj en Pekino, Hebei-provinco kaj aliaj lokoj aperis mortoj kaj vundoj.
+
+Xi Jinping postulis, ke diversaj lokoj plenforte serĉu kaj savu perditojn, bone kuracu vunditojn kaj konsolu familianojn de viktimoj, maksimume reduktu nombron de mortintoj kaj vunditoj, ke oni konvene aranĝu suferantojn, intense riparu damaĝitajn infrastrukturojn de trafiko, komuniko kaj elektro por kiel eble plej frue rekomenci normalan ordon de la vivo kaj laboro.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Konstanta Komitato de Politika Buroo de Centra Komitato de KPĈ okazigis kontraŭinundan kunvenon
+
+**Published:** 2023-08-18
+
+**URL:** http://esperanto.china.org.cn/2023-08/18/content_104367682.htm
+
+**Categories:** Socia Vivo
+
+La Konstanta Komitato de la Politika Buroo de la Centra Komitato de la Komunista Partio de Ĉinio (KPĈ) okazigis kunvenon la 17-an de aŭgusto por aranĝi laborojn kontraŭinundan kaj rekonstruan. Xi Jinping, ĝenerala sekretario de la Centra Komitato de KPĈ, prezidis la kunvenon kaj faris gravan parolon.
+
+La kunveno montris, ke nun estas grava periodo por la laboroj. Sub la gvido de la Centra Komitato de la partio, kun Xi Jinping kiel kerno, partiaj komitatoj kaj lokaj registaroj je ĉiuj niveloj bone organizis kaj efektivigis la laborojn. La oficejo kontraŭ inundo kaj sekego de Ĉinio kaj diversaj departementoj kaj organizoj kunagis, helpataj de la armeo, landaj entreprenoj kaj sociaj organizoj, kaj unuigante la popolanojn, akiris sukceson.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉina prezidanto vizitos Sud-Afrikon
+
+**Published:** 2023-08-18
+
+**URL:** http://esperanto.china.org.cn/2023-08/18/content_104400794.htm
+
+**Categories:** Socia Vivo
+
+Laŭ invito de prezidento de Sud-Afriko Cyril Ramaphosa, ĉina prezidanto Xi Jinping ĉeestos la 15-an Pintkunvenon de BRICS-landoj en Johanesburgo, Sud-Afriko, de la 21-a ĝis la 24-a de aŭgusto, kaj faros ŝtatan viziton al Sud-Afriko.
+
+Dum sia restado en Sud-Afriko, Xi Jinping ankaŭ kunprezidos ĉin-afrikan dialogon de gvidantoj kun Cyril Ramaphosa.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Shulan de Jilin: Rekonstruo daŭras
+
+**Published:** 2023-08-20
+
+**URL:** http://esperanto.china.org.cn/2023-08/20/content_104368828.htm
+
+**Categories:** Socia Vivo
+
+Antaŭ nelonge en la urbo Shulan de la provinco Jilin, nordorienta Ĉinio, estis forta pluvo kaj inundo. Loka registaro tuj okazigis savadon kaj rekonstruadon. Nun produktado kaj ordinara vivo renormaliĝase en tiu loko.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hejmeniĝis ĉiuj homoj traslokigitaj pro inundo en Tianjin
+
+**Published:** 2023-08-20
+
+**URL:** http://esperanto.china.org.cn/2023-08/20/content_104369719.htm
+
+**Categories:** Socia Vivo
+
+La 17-an de aŭgusto, la lasta grupo de 15 011 translokigitaj homoj revenis al siaj vilaĝoj en Wuqing-distrikto de Tianjin, kio signifas la hejmeniĝon de ĉiuj translokigitaj vilaĝanoj -- entute pli ol 35 000 homoj. Ili devis forlasi sian hejmon pro minaco de lastatempa inundo. Nuntempe jam renormaliĝis provizado de elektro, akvo kaj gaso en tiuj vilaĝoj, kaj la loka registaro taksas la damaĝon kaj prizorgas rekonstruadon de damaĝitaj instalaĵoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Nokta Jinjiang-rivero
+
+**Published:** 2023-08-21
+
+**URL:** http://esperanto.china.org.cn/2023-08/21/content_103468905.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La mergiĝeca kultur-turisma programo "nokta vojaĝo sur Jinjiang-rivero" kondukas turistojn navadi en la 3 000-jara historio laŭ Jinjiang-rivero en Chengdu-urbo, Sichuan-provinco, sudokcidenta Ĉinio. La programo lanĉis multajn specialajn projektojn titolitajn "ŝipadi +", kiel "ŝipadi + manĝaĵo", "ŝipadi + opero", "ŝipadi + studvojaĝo", "ŝipadi + sporto" ktp, kaj per ili oni kreas turismajn markojn de studado, sporto kaj aliaj. Estontece, oni faros riĉajn aranĝojn por diversaj temoj de doko al doko, ligante turismajn liniojn sur 10-kilometr-longa river-sekcio por ke la turistoj ĝuu la urban etoson en abundaj spertoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Johanesburgo pretas por pintkunveno de BRICS
+
+**Published:** 2023-08-21
+
+**URL:** http://esperanto.china.org.cn/2023-08/21/content_104399994.htm
+
+**Categories:** Socia Vivo
+
+La 15-a pintkunveno de BRICS-landoj okazos en Johanesburgo, Sud-Afriko. Nun, Johanesburgo jam estas preta por la kunveno.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping respondis al universitatanoj de Konfucea Instituto en Durbana Universitato pri Teknologio
+
+**Published:** 2023-08-21
+
+**URL:** http://esperanto.china.org.cn/2023-08/21/content_105655271.htm
+
+**Categories:** Socia Vivo
+
+Lastatempe ĉina prezidanto Xi Jinping letere respondis al universitatanoj de la Konfucea Instituto en la Durbana Universitato pri Teknologio, Sud-Afriko, kuraĝigante ilin bone lerni la ĉinan lingvon kaj kontribui por heredi kaj disvolvi la dulandan amikecon kaj kunlaboron.
+
+En majo 2013, kiam Xi Jinping faris viziton al Sud-Afriko, li vidatestis la subskribon de la du flankoj, Ĉinio kaj Sud-Afriko, por fondi la Konfucean Instituton en la universitato. Lastatempe, kvindek universitatanoj de la Konfucea Instituto kunverkis leteron al Xi Jinping, rakontante sian sperton kaj rezulton el la lernado de la ĉina lingvo, dankante Xi Jinping kaj la ĉinan registaron pro ties helpo al ili, kaj entuziasme atendas, ke prezidanto Xi refoje vizitu Sud-Afrikon.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Rekonstruado de lokoj trafitaj de inundo en Ĉinio
+
+**Published:** 2023-08-21
+
+**URL:** http://esperanto.china.org.cn/2023-08/21/content_105655733.htm
+
+**Categories:** Socia Vivo
+
+Komence de aŭgusto, rekonstrua laboro estas realigita en regionoj trafitaj de pluvegoj en Ĉinio, inkluzive de partoj de la urbo Pekino kaj de la provincoj Hebei, Jilin kaj Heilongjiang. Lokaj homoj iom post iom revenas al ordinara vivo kaj ankaŭ negocoj renormaliĝas.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: Global Times
+
+El Popola Chinio
+
+
+---
+
+# Rezolucio de la 108a Universala Kongreso de Esperanto en Torino, Italio
+
+**Published:** 2023-08-21
+
+**URL:** http://esperanto.china.org.cn/2023-08/21/content_105699353.htm
+
+**Categories:** E
+
+La 1 318 partoprenantoj de la 108a Universala Kongreso de Esperanto, kunveninte en Torino, Italio, inter la 29a de julio kaj la 5a de aŭgusto 2023, traktis la temon "Enmigrado – kunfluo de homaj valoroj". La partoprenantoj, alvojaĝintaj el 69 diversaj landoj, ne nur diskutis la temon, sed spertis kaj vivis ĝin: ĉar ĉiuj partoprenantoj parolas la internacian lingvon Esperanto, neniaj lingvaj baroj malhelpis interkomunikadon kaj efektive, konforme al la kongresa temo, la homaj valoroj de ĉiuj ĉeestantoj kunfluis – en harmonia etoso.
+
+Multaj esperantistoj raportis pri propraj spertoj kiel migrantoj. Ili emfazis, ke la scio de la lingvo Esperanto ja helpas por ricevi subtenon en la komenco de nova vivo, sed esenca estas la lernado de la nacia lingvo de la koncerna lando, por povi integriĝi en la socion.
+
+Tio validas por ĉiuj migrantoj – ĉu ili libervole elektis translokiĝi al alia lando aŭ ĉu ili devis fuĝi el sia hejmlando pro milito, mizero aŭ persekuto.
+
+Sekve, la kongresaj partoprenantoj notis jene:
+
+La civila socio en la gastiganta urbo Torino donas modelan ekzemplon por la integriĝo de migrantoj kaj precipe rifuĝantoj en la socion.
+
+Kun zorgo la kongresanoj konstatas, ke la nombro da rifuĝantoj en la mondo en la pasinta jaro unuafoje superis la ciferon de 100 milionoj. Ni avertas, ke pro la klimatŝanĝiĝo pli kaj pli da homoj estos devigataj forlasi sian hejmon.
+
+Ni alvokas ĉiujn ŝtatojn de la mondo ĉesigi la kaŭzojn de malvolonta migrado kaj ni subtenas la klopodojn de Unuiĝintaj Nacioj kaj de la aliaj superŝtataj organizoj mildigi, se ne solvi la problemojn.
+
+Ni apelacias al la ŝtatoj, kien venas rifuĝantoj, akcepti ilin kaj doni al ili ĉiun subtenon por povi establi memstaran, liberan vivon. Ni estas konvinkitaj ke migrado fine rezultigas pli riĉan kulturon kaj pli bonstatan socion en tiuj ŝtatoj mem. Ni agnoskas la historian valoron de migrado – migrado estas bazo por la evoluo de la homaro.
+
+Ni apelacias al ĉiuj ŝtatoj garantii al migrantoj povi vivi sen lingva diskriminacio kaj sen ajna alia diskriminacio, alivorte: ni apelacias al ĉiuj ŝtatoj sekvi la Universalan Deklaracion de Homaj Rajtoj proklamitan en la jaro 1948.
+
+Nun, en la jaro de la 75a datreveno de la akcepto de la Deklaracio de Homaj Rajtoj, ni konstatas kun zorgo ke tiuj rajtoj ne estas respektataj en multaj partoj de la mondo.
+
+Tial ni estas solidaraj kun rifuĝantoj kaj ni emfazas, ke la Homaj Rajtoj estas universalaj rajtoj kiuj validas por ĉiu individuo tutmonde, ankaŭ por migrantoj.
+
+Torino, Italio, 5 aŭgusto 2023
+
+(el UEA)
+
+El Popola Chinio
+
+
+---
+
+# Alessandra Madella: Estonte, Ĉinio certe ludos gravan rolon
+
+**Published:** 2023-08-21
+
+**URL:** http://esperanto.china.org.cn/2023-08/21/content_105771415.htm
+
+**Categories:** E
+
+En la okdekaj jaroj de lasta jarcento mi lernis Esperanton en kurso de Dennis Keefe en kastelo Grezijono. Estis tre bela sperto konatiĝi kun multe da homoj de malsamaj landoj, paroli, manĝi, ekskursi kaj ludi kune. De tiam komenciĝis en mia vivo longdaŭraj amikecoj kun multe da alilandanoj kaj precipe azianoj. Dank' al Esperanto mi eĉ povis instrui dum multe da jaroj en Ĉinio, en Kunming kaj nun en Zaozhuang. Kvankam la kovima pandemio dum iom da tempo igis renkontiĝojn pli malfacilaj, mi ĝojas, ke la tri ĉi-someraj kongresoj de Esperanto en Italio estis tre sukcesaj kaj multe da aziaj samideanoj sukcesis veni al Italio por ili.
+
+Partoprenis en la Universala Kongreso de Torino pli ol 1 300 homoj kaj pli ol 400 ĉeestis la kunkongreson de TEJO (Tutmonda Esperantista Junulara Organizo) kaj ILEI (Internacia Ligo de Esperantistaj Instruistoj) en Linjano Orsabla (Lignano Sabbiadoro), mara urbeto proksime de Venecio. Ĉiuj kongresoj havis tre riĉan programon, en kiu interalie Ĉinio ludis gravan rolon. Jam en la Movada Foiro de la UK sin prezentis Ĉina Esperanto-Ligo kaj Zaozhuang-Universitato, kiu havas kvar-jaran Esperanto-fakon rekonatan de la ĉina registaro. La vicprezidanto de la universitato mem ĉeestis kaj invitis la partoprenantojn viziti la universitaton kaj ĝian Esperanto-Muzeon. Dum la solena malfermo oni anoncis la elekton de profesorino Gong Xiaofeng (Arko) en la estraron de UEA kaj sekvis al tio la tiel dirita "Ĉina Tago" kun prelegoj de la vicprezidanto de Ĉina Esperanto-Ligo kaj de Zaozhuang-Universitato. Prelegoj de gravuloj kaj artistoj de aliaj universitatoj enkondukis interesan artan ekspozicion pri ĉinaj ideogramoj. La multnombra publiko estis interesata kaj multe ĝuis pri la anonco, ke multaj el tiuj gravuloj dezirus lerni Esperanton. Ankaŭ en la kongreso de ILEI en Linjano Ĉinio ludis tre gravan rolon, interalie dank' al la prezentado de filmoj pri etnoj de Yunnan-provinco respektive fare de la reĝisora paro Duan Jike kaj Zhang Di kaj de reĝisorinoj Zhang Nanxi kaj Tang Jingchuan. Lin Lisa de la grupo de Tianjin prelegis pri teo en ĉina historio kaj sia projekto "Teo, Amo kaj la Mondo". Belis ankaŭ la prelegoj de Yu Jianchao pri Laŭlum kaj de Arko pri la instruado de Esperanto en ĉinaj lernejoj de la historia vidpunkto. Arko ankaŭ donis la honoran prelegon de la simpozio de ILEI, pri la tipoj kaj spertoj de instruado ekster lerneja medio en la ĉina historio. De la praktika vidpunkto, en la kongreso de TEJO eblis ankaŭ vizitadi popularan kurson de ĉigong-o.
+
++ "La Silka Vojo" de MA-GA Filmoj (Max Garcia kaj mi): precipe pri ujguroj en Xinjiang
+
+Tiuj buntaj programeroj pri Ĉinio estis certe tre interesaj por mi, kiu multe ŝatas la diversajn aspektojn de la granda lando kaj esperas, ke la kono pri ĝia kulturo povos pli kaj pli disvastigi por akiri pacajn interrilatojn en la mondo. Estis ankaŭ bele vidi tiel reliefita la laboron de multaj ĉinaj samideanoj, institucioj kaj komunikiloj pri Esperanto-instruado.
+
+Estonte, mi pensas, ke Ĉinio certe ludos gravan rolon. Multe da homoj vidas ĝin kiel lulilon de ebla renesanco de la Esperanto-movado tutmonde kaj spektas kun granda intereso la sperton de Zaozhuang kaj de aliaj lokoj, kie Esperanto estas sukcese instruata. Kiel substrekis la nova honora prezidanto de UEA, Renato Corsetti, estus ankaŭ grave, ke Ĉinio subtenu la Esperantan disvolvon de aliaj landoj laŭ la Silka Vojo, kiu certe povus helpi grandan kreskon de interkultura komunikado, paco kaj prospero en la regiono.
+
+El Popola Chinio
+
+
+---
+
+# Libo de Guizhou, turismejo ĵus eniĝinta en tempo de grandrapida fervojo
+
+**Published:** 2023-08-22
+
+**URL:** http://esperanto.china.org.cn/2023-08/22/content_103470113.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Lastatempe multe kreskis la nombro de turistoj al la turismejo Xiaoqikong de la provinco Guizhou, sudokcidenta Ĉinio. Ĉiuj departementoj de la turismejo kunlaboras por servi vizitantojn je ĉiutage pli ol 62 000 homfojoj. Dank' al la ekfunkcio de la sekcio Guiyang-Libo de la grandrapida fervojo inter Guiyang kaj Nanning komence de aŭgusto, Libo, konata kiel "smeraldo sur la tero", eniĝis en sian tempon de grandrapida fervojo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Brazilo festis Nacian Tagon de Ĉina Enmigrado
+
+**Published:** 2023-08-22
+
+**URL:** http://esperanto.china.org.cn/2023-08/22/content_106098932.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Pluraj aktivaĵoj markis la celebradon de Nacia Tago de Ĉina Enmigrado en Brazilo, kiun oni festas la 15-an de aŭgusto. En tiu dato oni ankaŭ festis la 49-jariĝon de estigo de diplomatiaj rilatoj inter Brazilo kaj Ĉinio.
+
+La 17-an de aŭgusto, brazila parlamento okazigis eventon en Braziljo, ĉefurbo de la lando, memore al la dato, kun ĉeesto de reprezentantoj de la ĉina komunumo kaj de la ĉina ambasadorejo en Brazilo.
+
+En sia parolo, la prezidento de brazila parlamento, Arthur Lira, substrekis la kontribuojn de ĉinaj enmigrintoj al socia kaj ekonomia disvolvado de Brazilo, kaj laŭdis la amikajn interŝanĝojn kaj la strategian partnerecon inter ambaŭ landoj.
+
+Siavice, Jin Hongjun, ministro-konsilanto de ĉina ambasadorejo en Brazilo, taksis la eventon "tre grava por la ĉina komunumo". Li menciis la vojaĝon de brazila prezidento Lula al Ĉinio en aprilo ĉi-jare kaj deklaris, ke ambaŭ landoj klopodas por efektivigi la interkonsentojn tiam atingitaj inter prezidantoj Lula kaj Xi Jinping en pluraj areoj.
+
+Pedro Murilo Ortega Terra, nome de la Ministerio pri Eksteraj Rilatoj de Brazilo, diris, ke venontjare Brazilo kaj Ĉinio kune festos la 50-jariĝon de la estigo de diplomatiaj rilatoj kaj la 20-jariĝon de la fondiĝo de la Komitato Brazilo-Ĉinio pri Altnivela Kunordigo kaj Kunlaboro.
+
+En la urbo San-Paŭlo okazis la premidona ceremonio de la konkurso pri desegno "De Enmigrado al Nuna Tempo: Interŝanĝoj kaj Kultura Integriĝo Inter Brazilo kaj Ĉinio", pri la amikeco kaj interŝanĝoj pli kaj pli intensaj inter ambaŭ landoj. La konkurson partoprenis studentoj el 396 brazilaj lernejoj.
+
+En la urbo Rio-de-Ĵanejro oni ankaŭ festis la Tagon de Amikeco Inter Ĉinio kaj Rio-de-Ĵanejro, per ceremonio en la Ŝtata Konsilantaro de la subŝtato Rio-de-Ĵanejrio, kiu substrekis la kontribuojn de institucioj kaj individuoj por pragmata kunlaboro inter ambaŭ flankoj, inkluzive de la asocioj de ĉinoj, Instituto Konfuceo kaj la brazila oficejo de Ĉina Amaskomunika Grupo.
+
+La unua oficiala alveno de ĉinaj enmigrintoj al Brazilo okazis la 15-an de aŭgusto 1900. Pro tio, en 2018, brazila registaro deklaris la 15-an de aŭgusto kiel Nacia Tago de Ĉina Enmigrado. Nuntempe vivas en Brazilo pli ol 300 mil ĉinoj.
+
+Redaktis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# "Ho mia amo similas al ruĝa rozo kiu floras en junio..."
+
+**Published:** 2023-08-22
+
+**URL:** http://esperanto.china.org.cn/2023-08/22/content_106173391.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Robert Burns naskiĝis en Skotlando en 1759 kaj vivis nur 37 jarojn. Malgraŭ sia mallonga vivo, li lasis grandegan heredaĵon de poezio kaj kantoj, kiuj havis kaj ankoraŭ havas la potencon surprizi, amuzi kaj moviĝi ĝis la kerno. Do, ni kune legu lian poemon
+
+Ruĝa, ruĝa rozo
+
+!
+
+(el Mojosa Mondo)
+
+Redaktoro: Sheng Min
+
+El Popola Chinio
+
+
+---
+
+# Akvofalo Huangguoshu altiras turistojn
+
+**Published:** 2023-08-23
+
+**URL:** http://esperanto.china.org.cn/2023-08/23/content_103912324.htm
+
+**Categories:** Vojaĝo tra Ĉinio
+
+De somermezo ĝis fruaŭtuno, la turismejo de akvofalo Huangguoshu en la urbo Anshun, la provinco Guizhou de sudokcidenta Ĉinio, eniris la plej spektindan periodon. La granda akvofalo kun majesteco altiras multajn turistojn.
+
+Redaktoro: Xie Ruifeng
+
+Mojosa Ĉinio
+
+El Popola Chinio
+
+
+---
+
+# Arta Vespero inaŭgurita en Pekino
+
+**Published:** 2023-08-23
+
+**URL:** http://esperanto.china.org.cn/2023-08/23/content_106100155.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 18-an de aŭgusto la evento "Arta Vespero" estis inaŭgurita en la Jarmila Monumento de Pekino. Vizitantoj povas ĝui kvar specialajn ekspoziciojn, nomitaj "Ĉiela vivo en Parizo: Mondvojaĝa ekspozicio", "La lumo de antikva romia civilizo", "Unu arbo, unu mondo" kaj "Celloko: Marso". Aldone, estas ekspozicio pri tradiciaj ĉinaj manartaĵoj, akompanataj de bazaro pri folklora arto kaj metiartoj kun partopreno de artistoj kaj metiistoj el malsamaj lokoj de Ĉinio.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: Global Times
+
+El Popola Chinio
+
+
+---
+
+# Japanio verŝos 270 milionojn da tunoj da nuklepoluita akvo en maron en venontaj 60 jaroj
+
+**Published:** 2023-08-24
+
+**URL:** http://esperanto.china.org.cn/2023-08/24/content_107002545.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Malgraŭ la opozicioj de ĉiuj partioj, la 24-an de aŭgusto, la japana registaro oficiale komencos verŝi la nuklepoluitan akvon el Fukuŝimo en la maron.
+
+La Federacio de Mediprotektaj Movadoj de Daejeon estas unu el la plej grandaj mediprotektaj organizoj en la Korea Respubliko. Ĝi estis establita en 1993 kaj kunigas 54 lokajn organizojn de la lando. En majo la federacio faris publikan opinienketon al 1 000 homoj aĝaj je pli ol 18 jaroj. La rezulto montras, ke 85.4% de la enketitoj oponas la enmarigon de la nuklepoluita akvo; 79% diris, ke la anonco de la japana registaro pri sekureco de tia akvo ne estas kredinda, kaj 72% diris, ke ili malmultigos konsumadon de akvaj produktoj post komenco de la enmarigo.
+
+En la lastaj tagoj, fiŝkaptistoj tra la tuta lando multfoje okazigis grandskalajn manifestaciojn por esprimi sian fortan kontraŭstaron al la ago de Japanio. Koreaj amaskomunikiloj raportis, ke post kiam Japanio komencos fari tion, la fiŝkapta industrio de la Korea Respubliko estos rekte damaĝita, iuj homoj jam komencis konservi salon, kaj samtempe disvastiĝas la kampanjo "ne manĝi fiŝon".
+
+"Ĉu nuklepoluita akvo estas vere sekureca? Mi ne kredas!"
+
+Kiel ĝenerala sekretario de la federacio, Lee Kyung-ho ne nur aktive partoprenis en tutlanda komuna agado kontraŭ la enmariga ago, sed ankaŭ multfoje lanĉis lokajn komunajn kampanjojn en Daejeon. Kvankam la japana registaro plurfoje deklaris, ke nuklepoluita akvo post "traktado" estas sekura, tamen la pruvoj donitaj de ĝi ne povas konvinki Lee Kyung-ho, kio estas unu el la gravaj kialoj, kial li persisteme oponas la enmarigon.
+
+"ALPS estas la mallongigo de Altnivela Likvaĵa Proceza Sistemo (angle: Advanced Liquid Processing System), ellaborita de japana kompanio Toshiba por 'trakti' tian akvon. Kvankam ĝi estas prezentata kiel plurnuklidforiga ekipaĵo, tamen ĝia rekta traduko signifas nur'altnivela akvopuriga sistemo', ne taŭga por nukleida forigo." Lee Kyung-ho diris, ke sen mencii la fakton, ke la efiko kaj stabileco de ALPS estas pridubita de la internacia komunumo, eĉ post ALPS-a traktado, ankoraŭ restas radioaktivaj substancoj, kiuj ne povas esti forigitaj el la nuklepoluita akvo.
+
+"Se la absoluta sekureco de akvaj produktoj poluitaj de radioaktivaj substancoj ne povas esti garantiita, Japanio ne devas enmarigi ilin." Lee Kyung-ho diris: "Se tio estas onidiro, ke nuklepoluita akvo estas nesekura, do mi estu disvastiganto de tia onidiro."
+
+La federacio organizas kolektivon ĉe maro en Pusano, kaj formas la vortojn "SOS" ĉe la strando kontraŭ la enmarigo fare de Japanio.
+
+"Mi batalos por miaj du infanoj"
+
+Laŭ nuna plano, la enmarigo de la nuklepoluita akvo de Fukuŝima daŭros almenaŭ 30 jarojn. Tamen Lee Kyung-ho malkaŝis, ke la reala tempo de tia ellasado estos multe pli longa ol 30 jaroj. "Japanio verŝos 270 milionojn da tunoj da nuklepoluita akvo en maron en venontaj 60 jaroj." Alivorte, enmarigi nuklepoluitan akvon estas decido, kiu influos plurajn generaciojn.
+
+"Kiam radioaktivaj substancoj estos verŝitaj en maron, tre verŝajne ili estos sorbitaj de homa korpo tra bioakumulaj efikoj, kaj radioaktivaj substancoj estas senkoloraj kaj senodoraj, do ni ne povas rekte scii, ĉu ni estas jam surradiitaj, cetere ekzistas ankaŭ latenta periodo. Fakte, post kiam la substanco estos sorbita de homa korpo, la damaĝo al homoj povas daŭri cent jarojn." Lee Kyung-ho atentigis, ke danĝera grado de radioaktivaj substancoj varias de persono al persono, precipe por infanoj kun aktiva ĉela divido, ĝi estos pli danĝera, laŭ spertuloj, la risko por feto eĉ sesobliĝos.
+
+"Mi estas patro de du infanoj, kaj mi batalos por ili," Lee Kyung-ho diris.
+
+Raportis Wang Yunyue
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Tekulturo en "La Zono kaj Vojo"
+
+**Published:** 2023-08-25
+
+**URL:** http://esperanto.china.org.cn/2023-08/25/content_106677259.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Teo originis de Ĉinio kaj nun ĝi estas populara en la tuta mondo. En Ĉinio, antaŭ preskaŭ 5 000 jaroj, homoj trovis tearbojn kaj ekuzis teon en ĉiutaga vivo. En la periodo de Militantaj Regnoj (475-221 a.K.) estis noto pri senvenenigo per teo.
+
+Ekde Han-dinastio (206 a.K.- 220), la Silka Vojo estas ne nur vojo por komerco, sed ankaŭ por kultura interŝanĝo. De antikvaj tempoj ĝis nun, teo kaj tekulturo estas unu el la gravaj simboloj de la Silka Vojo.
+
+En Ming-dinastio (1368-1644), la vojaĝoj de Zheng He antaŭenigis la disvastiĝon de tekulturo al Sudorienta Azio kaj Orienta Afriko. Zheng He vizitis Tajlandon, Singapuron, Malajzion, Baraton, Sri-Lankon, Kenjon kaj aliajn lokojn, kiuj nun estas areoj de te-plantado kaj tekulturo.
+
+En la moderna epoko, teo fariĝis ĉiutage konsumata de okcidentanoj. Ĉina eksportado de teo superis tiun de silko, kaj teo fariĝis la plej grava varo en ĉin-okcidenta komerco.
+
+En novembro 2022, ĉina tradicia te-fararto eniĝis en la liston de nemateriaj kulturaj heredaĵoj de UNESKO. Hodiaŭ, la kutimo gustumi teon jam disvastiĝis el Ĉinio al la tuta mondo, kaj riĉa tekulturo ekzistas en multaj landoj. Laŭ multaj fremdlandaj amikoj, teoestas ne nur tutmonda trinkaĵo, sed ankaŭ "ĉina nomkarto", kiu prezentas historion kaj kulturon de la lando.
+
+Redaktoro: Sheng Min
+
+El Popola Chinio
+
+
+---
+
+# Ekspozicio pri 800-jara Fahua-turo inaŭgurita en Ŝanhajo
+
+**Published:** 2023-08-30
+
+**URL:** http://esperanto.china.org.cn/2023-08/30/content_109916487.htm
+
+**Categories:** Socia Vivo
+
+Ekspozicio pri la historio kaj elfositaj antikvaĵoj de Fahua-turo estis inaŭgurita ĉi-semajne en la muzeo Jiading de Ŝanhajo. La ekspozicio, kune kungastigata de la muzeo Jiading kaj Shanghai-a Muzeo, prezentas 80 arojn da kulturaj antikvaĵoj elfositaj en la turo, kiel jadaĵoj, ceramikaĵoj, porcelanaĵoj, antikvaj libroj, pentraĵoj kaj kaligrafiaĵoj. Situanta en la antaŭurba Jiading-distrikto de Shanghai, Fahua-turo estis origine konstruita dum la periodo de imperiestro Kaixi de Suda Song-dinastio (1127-1279). En tiu epoko, Ŝanhajo estis grava havenurbo sur la antikva Mara Silka Vojo, kaj ŝipanaroj rigardis la turon kiel ĉefa marko de la loko.
+
+Tradukis: Rafael Henrique Zerbetto
+
+Fonto: Global Times
+
+El Popola Chinio
+
+
+---
+
+# Kial iuj okcidentaj landoj trankviliĝis pri ellaso de nuklepoluita akvo de Japanio?
+
+**Published:** 2023-08-31
+
+**URL:** http://esperanto.china.org.cn/2023-08/31/content_110354410.htm
+
+**Categories:** Socia Vivo
+
+Pasis pli ol unu semajno post la ellaso de la nuklepoluita akvo en la maron el Fukushima. Ne ĉesis oponoj el Filipinoj, Indonezio, Sud-Afriko, Peruo, Ĉinio, Sud-Koreio kaj la internacia komunumo, sed iuj okcidentaj landoj montris neglektemon.
+
+Post kiam la Internacia Atom-Energia Agentejo (IAEA) publikigis raporton, la usona ŝtata departemento esprimis bonvenon per deklaro kaj okcidentaj politikistoj estis silentaj pri la ellaso de Japanio. Okcidentaj amaskomunikiloj multe raportis pri asertoj de Japanio kaj IAEA, sed malmulte raportis la oponon el aliaj landoj. Iuj el ili, kiel BBC, en sia artikolo preskaŭ tute citis vortojn de Japanio kaj IAEA. En ĝia videa raporto, raportisto eĉ prezentis "fiŝmanĝon" kaj diris, ke estas tre sekuraj por homa sano la fiŝoj kaptitaj el akvoj proksimaj al Fukushima. Iuj amaskomunikiloj, kvankam "objektive" citis voĉojn el diversaj flankoj, tamen evitis ŝlosilajn demandojn, inkluzive de damaĝoj de la ellasita nuklepoluita akvo al la medio, sendependeco kaj reprezenteco de la specimenoj akiritaj de IAEA, falsfabrikita historio de la Tokia Elektroenergia Kompanio, ktp.
+
+Kial tiuj okcidentaj landoj estas tiom trankvilaj pri la ellaso de nuklepoluita akvo? Tio rilatas al ilia "malhela historio" kaj privata strategia celo. Ekzemple, Usono iam faris 67 nukleajn eksperimentojn en la insularo Marshall en la 40aj kaj 50aj jaroj de la pasinta jarcento. Usono eĉ rekte ĵetis 130 tunojn da nuklepoluita grundo de la nuklea eksperimentejo en Nevado en la insularon. Estas facile kompreni, kial Usono faris nenion por haltigi Japanion ellasi la nuklepoluitan akvon en la maron, ĉar ĝi mem estas unu el la kreintoj de mara nuklepoluado.
+
+Cetere, Usono uzis nuklean sekurecon por interŝanĝo de interesoj. Post la nuklea akcidento en Fukushima, Japanio kaj Usono atingis kunlaboran interkonsenton pri kuna traktado de nuklea akcidento kaj postkatastrofa rekonstruado. Ambaŭ rigardas la nuklean akcidenton kiel "oportunon" por solidigi la aliancan rilaton. Ili neniel zorgas pri pago de aliaj landoj por tiu plano. Tia ago estas sekvata de la partneroj de Usono.
+
+Pacifiko estas la komuna hejmo de la homaro, ne nuklea rubujo. La japana registaro devas aŭskulti justan voĉon de ĉiuj partioj, tuj ĉesi ellasi nuklepoluitan akvon. Tiuj silentaj okcidentaj landoj ne devas agi kiel komplicoj de tiu plano.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Nuklepoluita akvo ellasita en maron minacas oceanan medion kaj homan sanon
+
+**Published:** 2023-08-31
+
+**URL:** http://esperanto.china.org.cn/2023-08/31/content_110355207.htm
+
+**Categories:** Socia Vivo
+
+Lastatempe la japana registaro trude komencis ellasi la nuklepoluitan akvon de Fukushima en maron, tio vekis fortan proteston kaj kontraŭstaron ĉe la internacia komunumo. Shaun Burnie, veterana fakulo de la japana oficejo de la internacia organizo Greenpeace, diris, ke tio sufiĉas por pruvi, ke Japanio ne antaŭvice konsideris la medion kaj homajn rajtojn, kaj ke por siaj atomcentralaj interesoj Japanio elektis polui la marojn anstataŭ trakti la malpuran akvon per pli mediamika maniero.
+
+Historie, Japanio iam suferis de atombomba atako, kaj sekve japana artisto kreis la aliformitan monstran figuron "Godzilla", sugestante, ke la homoj estu viglatentaj pri nuklea katastrofo. Sed nun Japanio verŝas tian akvon en oceanon, minacante la oceanan medion kaj homan sanon. Tiu faro de Japanio komplete malkaŝas la esencon, ke la registaro de Japanio, por siaj interesoj, ignoras tiujn de la internacia komunumo.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Entuziasmuloj pri ĉinaj tradiciaj vestaĵoj en Luoyi
+
+**Published:** 2023-09-01
+
+**URL:** http://esperanto.china.org.cn/2023-09/01/content_109401857.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Entuziasmuloj pri tradiciaj ĉinaj vestaĵoj estas facile troveblaj en la antikva urbo Luoyi en Luoyang de la provinco Henan, centra Ĉinio. Ili venas por sperti la lokan kulturon. La antikva urbo Luoyi fariĝis populara turismejo, kiu allogas multajn vizitantojn ĉiutage. Kun pluraj interagaj aktivaĵoj kaj vigla etoso, la urbo provizas al vizitantoj senegalan oportunon por ke turistoj plene spertu tradiciajn vestaĵojn kaj lokan kulturon.
+
+Tradukis: Rafael Henrique Zerbetto
+
+Fonto: Global Times
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Kiaj estis sportludoj en antikva Ĉinio?
+
+**Published:** 2023-09-01
+
+**URL:** http://esperanto.china.org.cn/2023-09/01/content_109412578.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Alvenas la malfermo de la Hangzhou-aj Aziaj Ludoj, iliaj maskotoj estis estigitaj el ses antikvaj pentraĵoj en la Ĉina Sport-muzeo. Jen ni kune spertu la sportan stilon de antikvaj ĉinoj!
+
+En antikva Ĉinio, arkpafado estis ne nur grava rimedo por milito, sed ankaŭ maniero de memkultivado, ĝentileco kaj eleganteco. Sekve, arkpafado fariĝis socia aktivaĵo dum gastigado.
+
+Kiel futbalo, kun historio de pli ol 2 000 jaroj, ĉina cuju estis oficiale agnoskita de FIFA en 2004 kiel la origino de monda futbalo.
+
+Ĉina rajdkonkurso havas longan historion. Antaŭ mil jaroj, de nobeloj ĝis ordinaruloj, viroj kaj virinoj, aĝuloj kaj infanoj, ĉiuj ŝatis rajdadon.
+
+Kiel unu el la plej malnovaj ludoj en Ĉinio, vejĉi-ludo havas profundajn implicojn.
+
+La kutimo de drakboata konkurso dum la Drakboata Festo en antikveco jam populariĝis kiel popolamasa sporto.
+
+Kiel antikvaj ĉinaj infanoj sin ekzercis pri luktoarto? La brodaĵo montras la "sportan kleriĝon" de antikvaj ĉinaj infanoj.
+
+Laŭ informoj, dum la Hangzhou-aj Aziaj Ludoj, la Ĉina Sporta Muzeo okazigos ekspozicion en la muzeo de la ludoj. Multaj raraj antikvaj restaĵoj pri sportoj de Ĉinio aldonos pli da kulturaj interesoj al la Hangzhou-aj Aziaj Ludoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Antikvaj restaĵoj sur Suda Silka Vojo
+
+**Published:** 2023-09-04
+
+**URL:** http://esperanto.china.org.cn/2023-09/04/content_109917336.htm
+
+**Categories:** Socia Vivo
+
+Antaŭ pli ol 4 mil jaroj, el Sichuan de Ĉinio etendiĝas pasejoj al la regionoj de Birmo kaj Barato. Historiistoj nomas ilin "Suda Silka Vojo". Sur unu el ili, oni povas vidi antikvajn restaĵojn kiel vojeto, ŝtuparo kaj hoteloj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Mentoreca programo por maŝinistoj de Ĉinio kaj Indonezio
+
+**Published:** 2023-09-07
+
+**URL:** http://esperanto.china.org.cn/2023-09/07/content_112294600.htm
+
+**Categories:** Socia Vivo
+
+Mu Zhen estas unu el la 55 ĉinaj altrapidtrajnaj maŝinistoj nuntempe laborantaj en trejnado de indoneziaj maŝinistoj por ĝakart-bandunga altrapida fervojo en Indonezio. Mu estas maŝinisto kun preskaŭ 30-jara sperto en sia fako, kaj atingis la rapidecon de 385 kilometroj hore dum testado de Ĝakart-Bandunga altrapida fervojo. Tiu 142-kilometra altrapida fervojo estas konstruita laŭ ĉinaj teknologioj kaj normoj adaptitaj al geografiaj kaj klimataj trajtoj de Indonezio. Mentoreca programo estis kreita por ke ĉinaj maŝinistoj kunhavigu sciojn kaj spertojn kun siaj indoneziaj kolegoj.
+
+Tradukis: Rafael Henrique Zerbetto
+
+Fonto: CGTN
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Volontuloj trejniĝas por Hangzhou-aj Aziaj Ludoj
+
+**Published:** 2023-09-07
+
+**URL:** http://esperanto.china.org.cn/2023-09/07/content_113365778.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 5-an de septembro okazis trejnado al volontuloj el la kvartaloj de Huzhou-urbo, Zhejiang-provinco, orienta Ĉinio, por Hangzhou-aj Aziaj Ludoj. La volontuloj inkludas gejunulojn, iamajn armeanojn, socilaborantojn kaj ordinarajn loĝantojn, ili ricevas la trejnadon pri fremdaj lingvoj, urĝa savado, handikapa helpado kaj tiel plu.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Multe kontribuas pezmaŝina firmao en Taiyuan, Shanxi
+
+**Published:** 2023-09-11
+
+**URL:** http://esperanto.china.org.cn/2023-09/11/content_113386403.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Fondita en 1950, Taiyuan-a Pezmaŝinara Grupo (Kompanio Limigita) estas la unua firmao pri fabrikado de pezaj maŝinoj sendepende planita kaj konstruita de Ĉinio. Dum la pli ol 70 jaroj depost ĝia fondiĝo, la firmao produktis pli ol 40 mil arojn da maŝinoj, el pli ol 3000 malsamaj tipoj, por ŝlosilaj konstruprojektoj en Ĉinio. La firmao disvolvis pionirajn teknikojn en Ĉinio kaj la mondo, kaj alportis gravajn kontribuojn al la konstruado, reformado kaj disvolvado de Ĉinio.
+
+Pezaj maŝinoj disvolvitaj de la kompanio
+
+Radoj kaj aliaj aparatoj disvolvitaj de la kompanio por la altrapida trajno Fuxing
+
+Verkis kaj fotis: Rafael Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# BAK Giwan: Ĉu Esperanto estas facila por koreoj?
+
+**Published:** 2023-09-11
+
+**URL:** http://esperanto.china.org.cn/2023-09/11/content_113869293.htm
+
+**Categories:** Lernado kaj Forumo
+
+En la Korea Respubliko ĉiuj gvidantoj de Esperanto-kurso diras ĉe la komenco de la kurso, ke Esperanto estas tre facila. Kaj vere ĝi estas tre facila por ni koreoj kompare kun aliaj fremdaj lingvoj. Tia fenomeno povas esti preskaŭ sama por ĉiuj nacioj en la mondo. Sed estas ankaŭ vero, ke Esperanto havas malfacilajn punktojn por ni koreoj. Kiel lingvisto, mi povas diri, ke ĉiuj lingvoj en la mondo havas du tute malajn vizaĝojn, unu vizaĝon tre facilan, kaj la alian tre malfacilan. Ĉiuj lingvoj estas tute facilaj por denaskaj parolantoj, kaj samtempe ili estas tute malfacilaj por aliaj.
+
+Se lingvo estas tia, kia do estas la situacio de Esperanto? Preskaŭ ĉiuj esperantistoj estas ne denaskaj parolantoj de la lingvo. Ĉu do Esperanto estas malfacila lingvo por ĉiuj? Jes, ĝi estas malfacila lingvo por ĉiuj. Sed ĝi estas malfacila nur kompare kun la gepatra lingvo. Se ni komparas ĝin kun aliaj fremdaj lingvoj, ĝi estas multe pli facila.
+
+La aserto, ke Esperanto estas facila lingvo, estas vero en tiu senco. Jen mi parolos, je kiuj punktoj Esperanto estas facila aŭ malfacila por koreoj. Mi parolos ĉefe en kvar partoj, nome fonologio, morfologio, sintakso kaj semantiko.
+
+1. Fonologie
+
+Fonologie Esperanto estas relative facila por koreoj. Precipe la 5 vokaloj estas tute facile prononceblaj. Sed ankaŭ ekzistas konsonantoj, kiuj estas tre malfacilaj por koreoj.
+
+(1) Nombro de vokaloj
+
+Kvin simplaj vokaloj de Esperanto estas tute facile prononceblaj, kaj la nombro 5 estas tre bona por lingvo, kiu volas esti internacia helplingvo. Korea lingvo havas 10 simplajn kaj 12 duoblajn vokalojn, kaj tial koreoj povas tre facile prononci la 5 vokalojn de Esperanto.
+
+(2) Sinsekvaj konsonantoj
+
+Korea lingvo ne konas la ĉenon de sinsekvaj konsonantoj en unu silabo. La baza silabostrukturo de la korea estas KVK. Kaj tie "V" (vokalo) ĉiam devas esti unu, kaj "K" (konsonanto) devas esti de nulo ĝis unu. Sed en skribado oni povas meti du konsonantajn literojn ĉe la dua "K" (ĉe la silabolasta segmento). Kaj ĉe ties prononco tamen unu konsonanto estas aŭ muta aŭ transiranta al la posta silabo. Ekzemple koreoj ne povas facile prononci la 3-silaban vorton "stomako". Ili metas po unu vokalon post ĉiu konsonanto, kaj faras ĝin 4-silaba. Tial la vorto prononciĝas simile al "sɨtomako". (Koreoj kutime metas la vokalon /ɨ/ tiuokaze.) Sed bonaj parolantoj de Esperanto ne misfaras tiamaniere.
+
+En la skribado tamen oni devas sekvi la regulon de la korea ortografio, kaj do devas enmeti la vokalan literon en tiu okazo. Tia fenomeno ĉiam okazas inter du konsonantoj, ekzemple la vorto "Esperanto" prononciĝas simile al "esɨperanto" kaj "ekzameno" al "ekɨzameno". Sed eĉ en tiu okazo oni ne metas la vokalon /ɨ/ post la konsonantoj /l/, /m/ kaj /n/. (Ekzemploj : elpreni [el-pɨ-re-ni], dommastrino [dom-masɨ-tɨ-ri-no], kunkrii [kun-kɨ-ri-i])
+
+(3) Malfacilaj fonemoj
+
+Koreoj malfacile prononcas la fonemojn /c f ĥ ĵ v z/. La fonemoj ne troviĝas en la korea. Ili emas prononci /f/ kiel /p/, /v/ kiel /b/ kaj /ĵ/ kaj /z/ kiel /ĝ/. Kaj ili prononcas /c/[ts] kiel [tʃh], ĉar la fonemo /c/ ne ekzistas en la korea, kaj la plej simila fonemo al ĝi estas /tʃh/ en la korea. Kaj la fonemo /ĥ/ estas malfacila ne nur al koreoj sed ankaŭ al multaj esperantistoj en la mondo.
+
+(4) Duonvokaloj kaj silabolimo
+
+Iuj esperantologoj diras, ke la fonemo /j/ de Esperanto estas simpla konsonanto, kaj tial la kunaĵo "jo" ne estas diftongo. Sekve ili diras, ke la silabolimo de la vorto "panjo" kuŝas inter "n" kaj "j", t.e. "pan-jo". Sed koreoj rigardas la kunaĵon "jo" kiel diftongon, kaj ni metas la silabolimon inter "a" kaj "n", t.e. "pa-njo". Tio signifas, ke koreoj rigardas la esperantan fonemon /j/ kiel duonvokalo. Mi pensas, ke la rigardo de koreoj estas pli bona kaj logika ol la aserto de iuj esperantologoj. Se la fonemo /j/ estas nur simpla konsonanto, la kunaĵo "aj", "ej" kaj "oj" ne devas esti diftongoj. Sed en PIV ili estas rigardataj kiel diftongoj, same kiel "aŭ" kaj "eŭ".
+
+Kaj iuj opinias, ke la kunaĵo "dz" kaj "nj" estas apartaj memstaraj fonemoj. Sed koreaj esperantistoj ne povas kompreni ilian opinion. Sur kio bazas tia opinio? Laŭ la fundamenta gramatiko de Esperanto, la kunaĵoj havas respektive 2 fonemojn, ĉar ĉiu litero reprezentas unu sonon kaj unu sono skribiĝas per unu litero. Kaj tial la silabolimo de la vorto "edzo" kuŝas inter "d" kaj "z", t.e. "ed-zo".
+
+2. Morfologie
+
+Morfologio estas la plej grava parto de korealingva gramatiko, ĉar la korea estas aglutina lingvo, kiu transdonas lingvajn informojn ĉefe per morfologiaj rimedoj. Ĉe tiu punkto la situacio de Esperanto estas simila kiel en la korea.
+
+(1) Aglutineco
+
+Oni diras, ke aglutineco de Esperanto estas la vera geniaĵo de Zamenhof. Ankaŭ mi pensas tiel. Vere la aglutineco ĉe morfologio estas multe pli facila kaj sistema gramatika metodo ol kunfandeco. Ĝuste danke al tiu trajto de Esperanto koreoj povas facile aliri al ĝi.
+
+(2) Afiksoj
+
+Afiksoj estas vere granda donaco de Zamenhof speciale por koreaj Esperanto-lernantoj. Danke al ili koreoj tre facile konkeras la vortoprovizon de Esperanto. Se Esperanto ne havus tiel produktivan afiksosistemon, koreoj devus konfesi, ke ankaŭ Esperanto estas unu el la malfacilaj fremdlingvoj. Kiel korea esperantisto, mi elkore dankas doktoron Zamenhof, kiu inventis tiel produktivajn afiksojn.
+
+Iam mi legis, ke iuj eŭropaj esperantistoj tute malkontentas pri la ekzisto de la prefikso"mal-". Kia mirindaĵo kaj kia absurdaĵo! Kial ili pensas, ke ĝi estas maloportuna? Danke al la prefikso "mal-" koreaj esperantistoj povas preskaŭ duonigi la nombron de la memorendaj vortoj de Esperanto.
+
+Unu bedaŭrinda afero estas, ke lastatempe pli kaj pli multiĝas neologismoj en Esperanto, kiujn ni povas anstataŭigi per la prefikso "mal-". Ekzemple iuj ekuzas la vorton "olda" anstataŭ "maljuna" kaj "ĉipa" anstataŭ "malmultekosta". Mi esperas, ke eŭropaj esperantistoj havu la afablecon kompreni la malfacilon de koreaj kaj ne-eŭropaj esperantistoj. Tiaj neologismoj vere malfaciligas Esperanton al multaj homoj en la mondo. Sed tre ĝojiga afero estas, ke lastatempe la grupo "la bona lingvo" multe laboras por moderigi kaj pli-esperantecigi la neologismojn sub la gvido de d-ro Renato Corsetti.
+
+Ne nur pri la prefikso "mal-", sed ankaŭ pri ĝenerala vortofarado mi povas diri la samon. Kial ni ne povas akcepti la vortojn "antaŭfikso" kaj "malantaŭfikso" anstataŭ "prefikso" kaj "sufikso", kaj la vortojn "ovorto, avorto, evorto, ivorto" anstataŭ "substantivo, adjektivo, adverbo, verbo"?
+
+(3) Difino de vorto
+
+En korea lingvo ovorto (substantivo) ne havas finaĵon. Ĝi estas memstara radiko-vorto. Ĝi ne bezonas aldonan finaĵon por esti vorto. Sed en Esperanto ĉiu radiko devas preni parolelementan finaĵon por esti vorto. Tio estas granda diferenco inter la du lingvoj. Sed ankaŭ en la korea ekzistas radikoj, kiuj nepre devas preni finaĵon por esti vortoj, same kiel en Esperanto. Ili estas verboj kaj adjektivoj. Sed iliaj finaĵoj ne estas parolelementaj finaĵoj sed konjugaciaj finaĵoj.
+
+En korea lingvo parolelemento decidiĝas jam ĉe la stato de radiko. Ni povas bone scii, al kiu parolelemento atribuiĝas ĉiu radiko. Sed en Esperanto ni ne povas scii, al kiu parolelemento atribuiĝos la radiko, se ĝi ne prenas la parolelementan finaĵon. Ekzemple la radiko "ir-" donas al ni neniom da informo pri parolelemento. Nur post kiam ĝi prenas la finaĵon "-i", ni povas diri, ke ĝi estas verbo. Sed se ĝi prenas la finaĵon "-o", ni devas diri, ke ĝi estas substantivo.
+
+Tio estas duone facila kaj duone malfacila fenomeno por koreaj esperantistoj. En korea lingvo "ir-" estas verbo, kaj "iro" estas ne substantivo, sed "substantiva formo" de verbo. Kaj tial ĉe la Esperanta vorto "konstruo" koreaj esperantistoj povas imagi nur "konstruadon", sed ne "konstruaĵon". Kaj ĉe la vorto "belo", ili ne povas elpensi la konceptojn "belulo" kaj "belaĵo". Ili povas elpensi nur "belecon".
+
+Mi pensas, ke ne nur koreoj sed ankaŭ ĉiuj homoj de Esperantujo devas bone kompreni tion. Ekzemple kiel ni povas kompreni la esprimon "Li patris 10 infanojn"? Ĉu ĝi signifas "Li estis patro de 10 infaonoj"? Aŭ ĉu ĝi signifas "Li servis aŭ laboris kiel patro por 10 infanoj"? Koreoj emas preni la unuan interpreton. Mi ne scias, kiun emas preni eŭropaj esperantistoj. Tio povas montri la diferencon de vivkoncepto.
+
+(4) Verbigo de adjektivoj
+
+En korea lingvo verboj kaj adjektivoj ambaŭ povas rekte uziĝi kiel predikato. Kaj tial la esprimoj "La floro belas" aŭ "La knabo bonas" estas bone komprenataj kaj tute kutimaj al koreaj esperantistoj. Kaj tiu verba uzo de adjektivecaj radikoj estas tre oportuna afero por koreoj. Sed reale multaj koreoj ne parolas tiel en Esperanto, ĉar ili jam alkutimiĝis al la gramatiko de angla lingvo, kiu ne permesas tian uzon de adjektivoj.
+
+(5) Numeralo
+
+Ankaŭ numeralo de Esperanto estas tre oportuna por koreoj. Korea numeralo havas dekuman sistemon, same kiel en Esperanto. Kaj ankaŭ la fakto, ke en Esperanto oni ne diras "unu dek" aŭ "unu cent", sed simple "dek" kaj "cent", tio estas tre oportuna afero por koreoj, ĉar ankaŭ en la korea oni diras tiel same.
+
+Sed tre malfacila afero por koreaj esperantistoj estas tio, ke en Esperanto oni metas 3 ciferojn inter komoj, kaj speciala nomo estas donita al ĉiu komo, t.e. mil, miliono ktp. En la korea oni metas 4 ciferojn inter komoj, kaj aparta nomo estas donita al ĉiu komo por faciligi kalkuladon, t.e. dekmil (koree "man"), centmiliono (koree "eok") ktp.
+
+Tio signifas, ke koreoj ripetas la numeralan esprimon post ĉiu 9 999, dum eŭropaj esperantistoj ripetas ĝin post ĉiu 999. Tio ankaŭ diras, ke la plej granda unuopa tutaĵo de korea nombro estas 10 000, dum tiu de la eŭropa estas 1 000.
+
+(6) Akordigo de nombro kaj kazo
+
+Oni diras, ke la nombro-akordigo de Esperanto inter substantivo kaj adjektivo estas tre bona trajto. Sed mi ne pensas tiel. En la korea oni ne faras tiel. Kvankam korea lingvo ne konas nombroakordigon inter substantivo kaj adjektivo, ni bone komprenas unu la alian tute senmalfacile. En Esperanto ni diras "belaj floroj", sed en la korea ni diras "bela floroj" aŭ "plurala bela floro". Kiu el ili estas pli logika?
+
+Multaj koreaj esperantistoj diras, ke la esprimo de Esperanto estas pli logika. Sed ĉu vere? Kio estas la bazo de tiu opinio? Ĉu oni diras, ke tio estas oportuna por trovi rilatajn substantivojn kaj adjektivojn? Se estas tiel, kial oni ne adoptas la saman leĝon por la rilato inter substantivo kaj adverbo aŭ inter substantivo kaj verbo? Kial oni ne diras "Multaj birdoj kantas-j bele-j"? La afero de nombroakordigo do ne estas afero de logiko, mi pensas. Ĝi estas nur regulo de Zamenhof. Mi dubas, ĉu ĝi vere faciligas Esperanton al multaj homoj en la mondo. Almenaŭ por koreoj ĝi ne estas tiel facila afero.
+
+Tute sama afero okazas ankaŭ ĉe akuzativo. Koreoj diras "Mi havas bela florojn" aŭ "Mi havas plurala bela floron". Ankaŭ ĉi tie, ĉu oni diras, ke la esprimo "Mi havas belajn florojn" estas pli logika ol la aliaj du esprimoj? Ne. Neniu povas diri tiel.
+
+Konklude mi opinias, ke la akordigo de nombro kaj kazo inter substantivo kaj adjektivo estas superflua gramatiko de Zamenhof (almenaŭ por koreoj).
+
+3. Sintakse
+
+Korea lingvo kaj Esperanto havas grandan diferencon je sintakso. Sintakso ne estas tiel grava en la korea gramatiko ol en la Esperanta. La plej granda diferenco inter ambaŭ sintaksoj estas la vortordo de la frazo. Oni diras, ke la vortordo de Esperanto estas libera. Sed tio estas nur teorio. Reale oni havas certan fiksitan ordon en la frazo. Se ni vidas kompleksajn frazojn, la diferenco de vortordoj estas des pli granda.
+
+(1) Vortordo
+
+Koreoj metas predikaton plej malantaŭe en la frazo, dum en Esperanto ĝi metiĝas tuj post la subjekto. Kaj koreoj tre ofte ne diras la subjekton mem. Ili subkomprenas ĝin. Laŭ mia opinio, tiu trajto de la korea devenas de la fakto, ke ĝi estas esence "lingvo por interparolo", ne por priskribo. Diversaj trajtoj de la korea devenas de tiu fakto, ekzemple la respondmaniero al demando (uzo de "jes" kaj "ne"), respektaj esprimoj, graveco de supersegmentaj fonemoj, ktp.
+
+(2) Fluo de penso
+
+Multaj lingvistoj diras, ke lingvo regas la penson de la parolanto, kaj ankaŭ inverse. Kaj ĉiuj homoj ja scias, ke la plej grava kaj esenca elemento en la frazo estas predikato. Ni, koreoj do metas la plej gravan elementon de la frazo ĉe la plej fina loko en la frazo. La distanco inter subjekto kaj predikato estas tre longa. Inter ilin koreoj povas enmeti diversajn frazelementojn. Eĉ povas okazi, ke la parolanto ne povas bone akordigi la subjekton kaj la predikaton pro la troa multeco de intermetitaj frazelementoj. Mi persone opinias, ke koreoj devas klopodi paroli kiel eble pli mallonge, ĉar se ne, ili eble forgesus, kiun predikaton ili devas uzi ĉe la fino de la frazo.
+
+Ĝuste pro tio se koreoj renkontas longan Esperanto-frazon kun subjunkcioj, ili sentas grandan malfacilon por kapti la sencon de la frazo. Ili emas traduki ĝin per unu korea frazo, kaj ankaŭ pensi unufraze. Tio estas tre malbona sinteno de koreaj esperantistoj. Ili devas distranĉi longan Esperanto-frazon en plurajn koreajn frazojn.
+
+Mi spertis en libroj, ke la frazoj de Zamenhof estas relative tre longaj kun diversaj subjunkcioj. Sed por mi ili estas sufiĉe klarsencaj kaj belsonaj, ĉar mi jam alkutimiĝis al la pensmaniero de la homoj, kiuj parolas tiamaniere. Sed multaj koreaj komencantoj de Esperanto plendas pri la komplikeco de liaj frazoj. Tio pruvas, ke la pensfluo de koreoj estas tute malsama ol tiu de eŭropanoj.
+
+Laŭ mia opinio, koreoj unue pensas pri objekto de la parolo, nome alparolato aŭ priparolataĵo, kaj due oni pensas pri diversaj akcesoraĵoj, nome tempo, loko, emocio, maniero ktp. Laste ili pensas pri predikato, pri sia ago. El tio ni povas paroli multe, sed jen mi diru nur unu aferon, ke ni, koreoj pli alte taksas aliajn homojn aŭ objektojn ol sin mem. La plej grava faktoro en korea lingvo, do en la penso de koreoj, estas ne la parolanto (ne si mem), sed la alparolato aŭ priparolataĵo, kaj de tio devenas la gramatikaĵoj de respekta parolmaniero kaj respondmaniero.
+
+(3) Kazoj (Akuzativo)
+
+En Esperanto oni esprimas kazojn per morfologia rimedo, kaj ĝi konas nur du kazojn ĉe ordinaraj substantivoj. Por esprimi akuzativon oni aldonas la akuzativan finaĵon "-n" ĉe substantivo (kaj ankaŭ ĉe adjektivo). Tio estas tre facila afero por koreoj, ĉar ankaŭ en la korea oni faras tiel same, aldonante akuzativan "postpozicion" ĉe substantivo (sed ne ĉe adjektivo).
+
+Unu diferenco estas tio, ke en Esperanto la nominativa finaĵo estas nulo, dum en la korea ĝi fonologie kaj morfologie ekzistas. Multaj lingvoj en la mondo esprimas kazojn sintakse per vortordo, sed ne per morfologie. Sed Esperanto kaj la korea estas sama je tiu punkto. Ĝi fakte donas grandan helpon al koreaj Esperantaj lernantoj. Ankaŭ en la korea la akuzativa postpozicio esprimas ne nur la objekton de la predikato, sed ankaŭ diversajn mezurojn kaj direkton.
+
+(4) Ĉefpropozicio kaj subpropozicio
+
+En Esperanto, kaj ankaŭ en multaj hindeŭropaj lingvoj, ĉefpropozicio venas antaŭ subpropozicio. Sed en la korea tute inverse. Koreoj diras la subpropozicion pli frue. Kaj jen ni povas denove vidi, ke en la korea pli grava estas la cirkonstanco de la interparola sceno ol la intenco de la parolanto.
+
+(5) Adverba predikativo
+
+Laŭ mi unu okulfrapa trajto de Esperanto estas la ekzisto de adverba predikativo. Kiam subjekto estas infinitivo aŭ propozicio, la predikativo estas adverbo. Tio estas malfacila gramatiko por koreaj esperantistoj, kiuj jam multe alkutimiĝis al la angla gramatiko.
+
+Mi persone estas kontraŭstara pri tiu gramatikaĵo de Esperanto. Mi ne scias, kial Zamenhof faris tiel. Li mem ne estis tiel ortodoksa je tiu gramatiko, ĉar ankaŭ li diris ekzemple: "La gazetoj ne trovas necesa eniĝi en tio; ni trovis necesa doni la sekvantan klarigon; mi trovas bona konigi la miraklojn...; ŝi opiniis nekonvena respondi pri tio."Li uzis adjektivon por infinitiva objektopredikativo.
+
+4. Semantike
+
+Semantiko estas unu el la lingvistikaj kampoj, kiuj ankoraŭ donas al ni grandan eblecon de plua studo. Kaj tial estas tre malfacile bone studi la diferencon kaj similecon inter la semantikoj de Esperanto kaj la korea. Sed ĉi tie mi ŝatus mencii kelkajn aferojn rilatajn al la pensmaniero de homoj.
+
+(1) Bazo de koncepto
+
+Koreaj esperantistoj havas grandan malfacilon ĉe la vortoj "fermi" kaj "malfermi". Ili tre ofte konfuziĝas inter ambaŭ vortoj, tute malaj. Koreoj pensas, ke la koncepto de "malfermo" estas pli baza. Kaj tial por ili estus tre bone, se la Esperanta vorto "fermi" havus la signifon de "malfermi", kaj el tiuvorto deriviĝus la koncepto de "fermi" en la formo "malfermi".
+
+Jen mi listigas kelkajn vortojn, kiujn koreoj emas miskompreni kaj misuzi pro la malsameco de baza koncepto.
+
+Esperanto       Korea koncepto
+
+drinki (ntr)       drinki (tr) (Li drinkis vinon.)
+
+droni                dronigi (Li dronis la keston en la akvon.)
+
+ekzerci             ekzerciĝi (Li diligente ekzercas.)
+
+fali                   faligi (Li falis la muron.)
+
+flugi                 flugi al (La birdo flugis al la ĉielo.)
+
+esti fluganta en (La birdo flugas en la ĉielo.)
+
+konfuzi            konfuziĝi (Li konfuzas ĉiam inter la du literoj.)
+
+manpremi       manpreni (Ili manprenis unu la alian.)
+
+necesi              bezoni (Mi necesas multan monon.)
+
+pendi              pendigi (Mi pendis ĉapon sur la muron.)
+
+esti pendanta (La ĉapo pendas ĉe la muro.)
+
+sidi                  sidiĝi (Li sidis sur la seĝon.)
+
+esti                 sidanta (Li sidas en la ĉambro.)
+
+stari                stariĝi (Li staris subite.)
+
+esti                 staranta (Li staras sur la podio.)
+
+turni               turniĝi (La tero turnas ĉirkaŭ la suno.)
+
+(2) Uzo de prepozicioj
+
+Korea lingvo ne havas prepoziciojn, sed t.n. postpoziciojn. Kaj tial la uzo de prepozicioj estas esence malfacila por koreoj. Sed la signifoj kaj funkcioj de Esperantaj prepozicioj kaj koreaj postpozicioj estas similaj. Tial koreoj emas uzi la prepoziciojn de Esperanto laŭ iliaj antaŭjuĝoj akiritaj tra la koreaj postpozicioj.
+
+Jen mi listigas Esperantajn esprimojn, kiujn koreoj ne facile komprenas kaj ofte misuzas. Kaj kune kun ili mi listigas ankaŭ la esprimojn ofte uzatajn de koreoj anstataŭe.
+
+Esperantaj esprimoj      Koreoj emas paroli
+
+-peti ion de iu                  -peti ion al iu
+
+-rabi ion al iu                   -rabi ion de iu
+
+-helpi al iu                       -helpi iun
+
+-pensi pri io                     -pensi ion
+
+-demandi iun                   -demandi al iu
+
+-danki iun                        -danki al iu
+
+-saluti iun                        -saluti al iu
+
+-reveni al (de ĉi tie)         -reiri al (de ĉi tie)
+
+Verkis d-ro BAK Giwan (korea profesoro ĉe E-Fako de Zaozhuang-a Universitato, Ĉinio)
+
+Redaktoro: Sheng Min
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Volontuloj de vilaĝo por sportistoj de Hangzhou-aj Aziaj Ludoj ricevis donac-sakojn
+
+**Published:** 2023-09-11
+
+**URL:** http://esperanto.china.org.cn/2023-09/11/content_113872916.htm
+
+**Categories:** Socia Vivo
+
+Kiel unu el la plej granda nekonkurseja loko, la vilaĝo por sportistoj de la Hangzhou-aj Aziaj Ludoj havas pezan taskon de akcepto kaj servo, kaj grandnombro da volontuloj estas bezonataj. Tie, pli ol 1 300 studentoj el la Hangzhou-a Universitato de Fremdlingvoj respondecas kiel volontuloj. Por doni prizorgon kaj kuraĝigon, la universitato pretigis sakojn por donaci al ili.
+
+Ene de la sako, estas bela kajero sur kiu volontuloj povas enskribi siajn rakontojn dum la servado. Pakaĵ-karto estas liverata por helpi ilin facile trovi siajn pakaĵojn, kaj harligilo por helpi junulinojn havigi al si en belan aspekton. Dingsheng-kukoj, unu en ruĝo kaj la alia en flavo, simbolas energion kaj kuraĝon de la volontuloj.
+
+Krome, estas skatolo kun sakoj da pulvorita teo kun diversaj gustoj por helpi volontulojn sin revigligi. Oni povas facile pretigi trinkaĵon por si mem.
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# Ĉina ĉefministro urĝis Italion liveri justan kaj nediskriminacian komercan medion por ĉinaj firmaoj
+
+**Published:** 2023-09-11
+
+**URL:** http://esperanto.china.org.cn/2023-09/11/content_115333605.htm
+
+**Categories:** Socia Vivo
+
+Ĉina ĉefministro Li Qiang en la 9-a de septembro renkontiĝis kun itala ĉefministrino Giorgia Meloni en la Pintkunveno de G20 en Nov-Delhio, Hindio. Li diris en la renkontiĝo, ke Italio provizos ĉinajn entreprenojn per egala, justa kaj nediskriminacia komerca medio por iliaj investo kaj negoco en la eŭropaj landoj.
+
+Li ankaŭ alvokis, ke ambaŭ flankoj daŭre pliigu duflankan komercon. Li diris, ke Ĉinio daŭre plivastigos merkatan eniropermeson por krei pli da oportunoj al italaj produktoj eniri en la ĉinan merkaton.
+
+Li montris, ke sanaj kaj stabilaj rilatoj inter Ĉinio kaj Italio konformas al komunaj interesoj de la du landoj kaj estas necesaj kondiĉoj por pli bona disvolvo de la du landoj.
+
+Meloni diris, ke kiel du anktivaj civilizacioj, Italio kaj Ĉinio ĝuas longtempajn kaj amikecajn interŝanĝojn. Ŝi aldonis, ke Italio volas plifortigi interŝanĝojn kaj dialogojn kun Ĉinio sub la duflanka framo por pluapaŝe profundigi kunlaborojn kun Ĉinio.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Premidona ceremonio de Orkidea Premio okazis en Pekino
+
+**Published:** 2023-09-11
+
+**URL:** http://esperanto.china.org.cn/2023-09/11/content_115334530.htm
+
+**Categories:** Socia Vivo
+
+La 8-an de septembro en Pekino okazis la unua premidona ceremonio de Orkidea Premio. La premio celas aktive efektivigi la tutmondan civilizacian iniciaton proponitan de ĉina prezidanto Xi Jinping, rekompenci la internaciajn amikojn, kiuj antaŭenigas la komunajn valorojn de la tuta homaro kaj faras elstarajn kontribuojn por antaŭenigi kulturajn interŝanĝojn kaj reciprokan lernadon inter ĉinaj kaj fremdaj civilizacioj. En la unua premidona ceremonio, 10 internaciaj amikoj gajnis ĝin.
+
+La premiitoj diris, ke hodiaŭ, kiam la vivoj de la tuta homaro estas kunligitaj, monda paco kaj homa progreso estas la komuna volo de la homaro. Profundigi interŝanĝojn kaj plifortigi interkomprenon estas la komunaj aspiroj de homoj. Estas urĝe kuraĝigi pli multajn kulturajn kurierojn antaŭenigi interŝanĝojn kaj reciprokan lernadon inter diversaj civilizacioj.
+
+La Orkidea Premio estas okazigita de la Ĉina Internacia Komunika Grupo kaj subtenata de la sekretariejo de la premio. Al la ceremonio ĉeestis pli ol 300 personoj el koncernaj registaraj departementoj, internaciaj organizoj, ambasadorejoj en Ĉinio, ĉinaj kaj eksterlandaj pensfabrikoj kaj reprezentantoj de amaskomunikiloj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Komenciĝis torĉ-stafetado de Hangzhou-aj Aziaj Ludoj
+
+**Published:** 2023-09-11
+
+**URL:** http://esperanto.china.org.cn/2023-09/11/content_115336592.htm
+
+**Categories:** Socia Vivo
+
+En la 8-a de septembro komenciĝis la torĉ-stafetado de Hangzhou-aj Aziaj Ludoj en la Parko Yongjin de Hangzhou.
+
+La torĉ-stafetado estas ne nur festeno de kulturo de Aziaj Ludoj, sed ankaŭ mirinda vojaĝo pri naturo kaj kulturo. Ĉirkaŭ la Okcidenta Lago estas multaj kulturaj vidindejoj, naturaj pejzaĝoj kaj novaj retfamaj vidindaĵoj.
+
+Sekve, la torĉ-stafetado estos okazigita en 11 distriktoj kaj urboj de la provinco Zhejiang. Pli ol 2 000 torĉoportantoj partoprenos en la procezon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping sendis kondolencan mesaĝon al reĝo Mohammed VI de Maroko pro forta tertremo
+
+**Published:** 2023-09-11
+
+**URL:** http://esperanto.china.org.cn/2023-09/11/content_115337822.htm
+
+**Categories:** Socia Vivo
+
+La 9-an de septembro ĉina prezidanto Xi Jinping sendis kondolencan mesaĝon al reĝo Mohammed VI de Maroko pro forta tertremo en Maroko.
+
+Xi Jinping diris, ke forta tertremo okazis en Maroko, kaŭzante grandan kaj seriozan vundon kaj morton de homoj kaj propraĵan perdon. Li, nome de la registaro kaj la popolo de Ĉinio, esprimas profundan funebron al viktimoj kaj kondolencon al iliaj familianoj kaj la popolanoj en la trafitaj regionoj. Li kredas, ke sub la gvidado de la reĝo Mohammed VI, la marokaj registaro kaj popolo povos venki la influon de la katastrofo kaj rekonstrui siajn hejmojn kiel eble plej baldaŭ.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Sunenergio aldonas brilon al la disvolviĝo de la provinco Shanxi
+
+**Published:** 2023-09-13
+
+**URL:** http://esperanto.china.org.cn/2023-09/13/content_115708556.htm
+
+**Categories:** Socia Vivo
+
+Fondita en 2013, Jinneng-a Pur-energia Kompanio Teknologia Limigita (Jinergy), subfirmao de Jinneng-a Holdinga Grupo, celas fariĝi la monde unua produktisto de sunpaneloj kaj la monde ĉefa liveranto de pura energio. Per daŭra teknologia novigo kaj simpligo de produktado, Jinergy fariĝis konkurenciva kaj nun havas klientojn en la tuta mondo, eksportante teknologion pri fabrikado de sunpanejoj kaj kontribuante por helpi la mondon atingi karbonan neŭtralecon. La fabriko de sunpaneloj de Jinneng-a kompanio en la urbo Taiyuan de Shanxi-provinco, Ĉinio, havas altgradan aŭtomatecon kaj konformas al la normoj de industrio 4.0. Maŝinoj faras plejparton de la laboro, dum homoj ĉefe monitoras la procezon kaj kontrolas la kvaliton de la fina produkto.
+
+Maŝinoj fabrikas sunpanelojn en la fabriko de Jinneng-a kompanio.
+
+Laboristo inspektas per kamerao surfacon de sunpanelo por kontroli ĝian kvaliton.
+
+Laboristo poluras surfacon de novfabrikita sunpanelo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Kiujn ideojn pri lunkuko-fabrikado vi preferas?
+
+**Published:** 2023-09-14
+
+**URL:** http://esperanto.china.org.cn/2023-09/14/content_116678659.htm
+
+**Author:** Gao Shuyuan
+
+**Categories:** Socia Vivo
+
+Populariĝas en Ĉinio kafo kun gusto de alkoholaĵo, kunlabora produkto de kaf-kompanio Ikcoffee kaj la alkoholaĵ-kompanio Moutai. Ĉe la alveno de la Aŭtunmeza Festo, komercistoj el aliaj kampoj partoprenas en la konkurso pri lunkuko-fabrikado. Dabaitu, konata pro ĝia bombono, okazigis sian unuan tutmondan lanĉ-ceremonion de lunkuko. GODIVA ellaboris ĉokoladan kukon. Restoracio Dadong publikigas lunkukon kun farĉo de nigra kaj blanka trufoj. Tiu serio, perŝanĝo de la propocio de nigra kaj blanka parto, prezentas al ni la formo-ŝanĝon de luno dum unu monato.
+
+La hotelo Éclat
+
+Hodiaǔ ni kune vizitu hotelon, kiu fabrikas ankaŭlunkuko. La hotelo Éclat en Chaoyang-distrikto de Pekino havas pli ol 400 artkolektaĵojn kaj estas konata pro sia unika ĉambrodesegno. Ĉi-foje ni kune trovu, kiel ili aldonas al ĝia lunkuko konservan valoron.
+
+Dany Lützel, ĝenerala administranto de la hotelo（meze）
+
+Laǔ Dany Lützel, ĝenerala administranto de la hotelo, estas malfacile venki per gusto en la ĉina lunkuka merkato kie jam estas sufiĉe diversaj gustoj. Ili do kunlaboras kun junaj artistoj kaj per tio aldonas al siaj produktoj artaĵan kaj kolektaĵan valorojn. Populariĝas en Ĉinio la dopaminmultigaj koloroj (oni kredas, ke ĝi havus funkcion estigi ĝojon). Do Eirdis Heiður Chen Ragnarsdóttir, ĉin-islanda artistino konata pro kreivo en la uzado de koloroj, estas elektita kiel la kunlaboranto.
+
+Eirdis Heiður Chen Ragnarsdóttir
+
+La inspiro de la kovrilo de la nova lunkuk-skatolo venas de la tradicia ĉina legendo pri Jada Kuniklo (kiu estas invitita al la paradizo pro ĝia helpo al iu maljunulo, kiu fakte estas la Jada Imperiestro -- la plej alta dio de taǔismo). En la pentraĵo kaŝas la sento de la artisto pri loĝado en la hotelo. Laǔ Eirdis, festo estas tradicie kune festata de la tuta familio, do la pentraĵo estas kreita por homoj en ĉiu generacio. Tiuj brilaj koloroj estas speciale elektitaj por krei varman kaj esperoplenan etoson. Kaj la kuniklo, ĉefrolo en la pentraĵo, estas la plej agrabla bildo, kiun ŝi iam kreis.
+
+Kune kun lunkukoj estas donacataj al konsumantoj aliaj pentraĵoj de la artisto. Tiuj pentraĵoj estas speciale subskribitaj kaj numeritaj. La artisto okazigis ekspoziciojn en multaj landoj kaj havas longdaŭran kunlaboron kun multaj markoj kiel Gucci, Arche kaj Burton. Tial la potencialo de la artistino plie valorigas sian pentraĵo.
+
+Krom la tradiciaj pekin-stila kaj kanton-stila lunkukoj, en la skatolo estas ankaŭ lunkukoj kun farĉoj de fruktoj, ekzemple frambo, verda vinbero, mango, citrono, pampelmuso, liĉio ktp.
+
+Kiajn kreivojn plej altiras vin, ĉu en gusto, aspekto aǔ pakaĵoj? La ideon de kiu kompanio vi preferas? Bonvolu doni al ni vian komento sube.
+
+Verkis: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# La tekniko pri lako de Pingyao
+
+**Published:** 2023-09-19
+
+**URL:** http://esperanto.china.org.cn/2023-09/19/content_116693203.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Kreita en Tang-dinastio, kaj plene floranta en la dinastioj Ming kaj Qing, la tekniko pri lako de Pingyao estas unu el la kvar plej gravaj lakoteknikoj en Ĉinio. Ĝi estas enmetita en la unua listo de nemateriaj kulturaj heredaĵoj en 2006 kaj eksportita al pli ol 40 landoj kaj regionoj en la 1970-aj kaj 1980-aj jaroj. La firmao Pingyao-a Tangdu-a Lak-kompanio Limigita rolas kiel naci-nivela bazo pri montrado de la tekniko. Kun produktoj gajnintaj orajn kaj arĝentajn premiojn en ekspozicioj, la kompanio fariĝis unu el la dek ĉefaj pri artoj kaj manartaĵoj de Ĉinio.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Vinagro, tipa produkto de Shanxi
+
+**Published:** 2023-09-20
+
+**URL:** http://esperanto.china.org.cn/2023-09/20/content_116693209.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La vinagrofabriko Donghu, situanta ĉe la numero 80 de la Suda Strato de la antikva urbeto Pingyao en la provinco Shanxi de Ĉinio, estas metiejo por maturigo de vinagro per tekniko listigita kiel nemateria kultura heredaĵo de Ĉinio. Nuntempe ĝi estas ankaŭ konata turismejo, kie turistoj povas ne nur lerni pri vinagrofarado, sed ankaŭ gustumi manĝetojn kaj pladojn kiuj havas vinagron kiel ingredienco. Tiel homoj lernas kaj pri la vinagrokulturo de Shanxi-provinco kaj pri la utilo de vinagro por homa sano kaj bonfarto.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Kiaj estas la inteligentaj instalaĵoj en sportista vilaĝo?
+
+**Published:** 2023-09-20
+
+**URL:** http://esperanto.china.org.cn/2023-09/20/content_116698237.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La sportista vilaĝo de Hangzhou-a Aziaj Ludoj estis malfermita la 16-an de septembro. Kiel la plej granda nekonkursa ejo de la Hangzhou-aj Aziaj Ludoj, la vilaĝo liveros 24-horan servadon por atletoj, teamaj oficistoj kaj amaskomunikiloj. Kiel ĝi prezentan sian econ "verdan, inteligentan, ŝpareman kaj civilizan" per interesaj instalaĵoj?
+
+Simuli la sonon de tajdo de Qiantang-rivero
+
+Promenante sur la komerca strato de la vilaĝo, oni povas aŭdi sonon de "tajdo". Ĉu en la vilaĝo videblas la tajdo de Qiantang-rivero?
+
+Fakte, la sono venas el la akvejo en la centro de la komerca strato, ondoj leviĝas de tempo al tempo, akompanataj de tiaj sonoj, kvazaŭ miniatura rivero aperigas tajdojn, kiel konata loka vidindaĵo.
+
+Kapablaj robothundoj
+
+La oranĝa roboto povas ludi pli ol 30 muzikaĵon kun malsamaj stiloj, kaj tri amindaj robothundoj dancas, akompanataj de la muziko por bonvenigi la atletojn.
+
+"Ĉiopovaj" robotoj
+
+En la vilaĝo, la robotoj ne nur akompanas homojn ludi kaj distri, sed ankaŭ ludas gravan rolon en ĉiutaga laboro.
+
+Ekzemple, roboto balaas sur la stratoj en la vilaĝo. Ĝi povas moviĝi aŭtomate kaj eviti ĝenojn. Pluraj plataj brosoj funkcias laŭvice, kaj la lokoj, kiujn ĝi preterpasas, povas esti purigitaj.
+
+Ekzistas ankaŭ moskitokapta roboto, ĝi imitas homan spiradon por kolekti karbondioksidon en la aero kaj influi la karbondioksidan densecon en sia korpo al la nivelo de tiu en homa korpo, igante moskitojn mistrafi kaj efike mortigi la moskitojn.
+
+Cifereca 3D-presado el ĉokolado
+
+En la centro de inteligenta sperto, cifereca 3D-presado estas ŝatata. Oni povas elekti ŝatatan ŝablonon aŭ formon, per 3D-preso aperigi ĉokoladajn urbajn limŝtonojn, kaj frandi.
+
+Eĉ glaciaĵkamiono povas veturi mem
+
+La inteligenta buso en la vilaĝo atingis L4-nivelan aŭtomatecon, kio ne postulas la intervenon de homo dum normala veturado.
+
+Ankaŭ glaciaĵkamiono havas L4-aŭtomatecon por provizi glaciaĵon en la vilaĝo. Kiam ĝi haltas, oni povas elekti la guston rekte tra la ekrano, sekve kamiona pordo malfermiĝos kaj oni povas elpreni sian glaciaĵon.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kultura Pejzaĝo de Antikva Te-arbaro de Jingmai-monto fariĝis monda kultura heredaĵo
+
+**Published:** 2023-09-20
+
+**URL:** http://esperanto.china.org.cn/2023-09/20/content_116698241.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+LastatempeKultura Pejzaĝode Antikva Te-arbaro de Jingmai-monto estis metita en la listo de monda kultura heredaĵo en la 45-a Monda Heredaĵa Konferenco de Unesko, okazinta en Riado, Saud-Arabio. Tio estas la unua monda kultura heredaĵo pri teo.
+
+La belega Jingmai-monto estas en la urbo Pu'er de Yunnan-provinco, Ĉinio.
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# La antikva urbeto Pingyao
+
+**Published:** 2023-09-21
+
+**URL:** http://esperanto.china.org.cn/2023-09/21/content_116693214.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La antikva urbeto Pingyao estis konstruita dum la periodo de reĝo Xuan de la dinastio Okcidenta Zhou, kun historio de pli ol 2 800 jaroj. Ĝi estis agnoskita de la Ŝtata Konsilio kiel Nacinivele Historia kaj Kultura Urbo en 1986; kaj aldonita al la Listo de Mondaj Heredaĵoj de Unesko, kun la temploj Shuanglin kaj Zhenguo, en 1997.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Varma etoso sur stratoj de Hangzhou
+
+**Published:** 2023-09-22
+
+**URL:** http://esperanto.china.org.cn/2023-09/22/content_116703335.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Hangzhou-aj Aziaj Ludoj daŭros de la 23-a de septembro ĝis la 8-a de oktobro. Sur la stratoj de la urbo Hangzhou, gastigurbo de la sportkonkurso, pompas koncernaj elementoj kiuj aperigas varman etoson.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Ĉina prezidanto ĉeestos malferman ceremonion de 19aj Aziaj Ludoj en Hangzhou
+
+**Published:** 2023-09-22
+
+**URL:** http://esperanto.china.org.cn/2023-09/22/content_116703350.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 21an de septembro, proparolanto de ĉina Ministerio pri Eksterlandaj Aferoj deklaris, ke en la 22a kaj la 23a de septembro ĉina prezidanto Xi Jinping ĉeestos la malferman ceremonion de la Hangzhou-aj Aziaj Ludoj kaj aranĝos bonvenigan bankedon por eksterlandaj gvidantoj ĉeestantaj la malferman ceremonion.
+
+La eksterlandaj gvidantoj estas reĝo Norodom Sihamoni de Kamboĝo, siria prezidento Bashar al-Assad, kuvajta kronprinco Ŝejko Meshal Al-Ahmad Al-Jaber Al-Sabah, nepala ĉefministro Pushpa Kamal Dahal Prachanda, ĉefministro de Orienta Timoro Xanana Gusmao, sudkorea ĉefministro Han Duck-soo kaj prezidanto de malsupra ĉambro de malajzia parlamento Johari bin Abdul.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Inaŭguriĝis la Hangzhou-aj Aziaj Ludoj
+
+**Published:** 2023-09-24
+
+**URL:** http://esperanto.china.org.cn/2023-09/24/content_116706831.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Vespere de la 23a de septembro inaŭguriĝis la Hangzhou-aj Aziaj Ludoj. Al la solena ceremonio ĉeestis ĉina prezidanto Xi Jinping kaj invititaj eksterlandaj gvidantoj.
+
+Antaŭ la ceremonio Xi Jinping aranĝis bonvenigan bankedon por la honoraj gastoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Ĉina delegacio gajnis la unuan oran medalon
+
+**Published:** 2023-09-25
+
+**URL:** http://esperanto.china.org.cn/2023-09/25/content_116708931.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 24an de septembro en la malpeza virina duopa duremila konkurso, la ĉinaj remistoj Zou Jiaqi kaj Qiu Xiuping gajnis la unuan oran medalon por la ĉina delegacio.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Kial la sportkunveno en Hangzhou povas esti subtenata de azia popolo?
+
+**Published:** 2023-09-25
+
+**URL:** http://esperanto.china.org.cn/2023-09/25/content_116708934.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Vespere de la 23a de septembro inaŭguriĝis la Hangzhou-aj Aziaj Ludoj. Tio estas la tria fojo, ke Ĉinio okazigas la Aziajn Ludojn post la Pekinaj Aziaj Ludoj en 1990 kaj tiuj en Kantono en 2010. Ĉirkaŭ 12 500 atletoj el 45 landoj kaj regionoj konkursas en 40 sportoj por 481 oraj medaloj dum 15 tagoj. En la pasintaj jardekoj, profite de la ĝenerala stabileco, la ekonomio de Azio kontinue kaj rapide kreskis kaj nun okupas 40% de la tutmonda ekonomio. La Internacia Mona Fonduso antaŭvidis, ke la ekonomia kontribuo de Azio superos 70% de la tutmonda ekonomia kresko.
+
+Dum la procezo krei tiujn "aziajn miraklojn", la Hangzhou-aj Aziaj Ludoj estas atestanto, partoprenanto kaj antaŭenpuŝanto. La azia popolo fervoras uzi sporton, komunan lingvon por la homaro, por transdoni la pacon, rezisti al konfrontiĝo inter tendaroj kaj protekti la kvieton de siaj hejmoj. La Hangzhou-aj Aziaj Ludoj portas ĉi tiun simplan deziron de la azia popolo.
+
+Ni konas unu la alian, kiom ajn malproksime ni estas, kaj ni ankoraŭ estas najbaroj je miloj da mejloj for. Kun la firma subteno de la azia popolo, la Aziaj Ludoj faros novajn kontribuojn por antaŭenigi disvolviĝon de la olimpika movado kaj akceli unuecon kaj amikecon inter aziaj popoloj.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Tri tagoj, tri urboj
+
+**Published:** 2023-09-25
+
+**URL:** http://esperanto.china.org.cn/2023-09/25/content_116709103.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+En la unua semajno de septembro mi estis kontaktita pri intervjuo kun Dauter Oliveira, estro pri disvolvado por Azio de la brazila minkompanio Vale en Ŝanhajo. Lia tagordo estas plena, kaj ni nur estus disponeblaj por la intervjuo en la 14-a de septembro. En tiu tago mi laŭplane devus ĉeesti la Pekinan Kulturan Forumon, dutaga altnivela evento. Mi do kontaktis la organizantojn de la forumo, ili komprenis mian situacion kaj akceptis mian partoprenon nur por la 15-a de septembro. Post du tagoj mi estis informita pri oficvojaĝo al la provinco Henan, por lerni pri la disvolviĝo de ĉina civilizo ĉe la Flava Rivero en antikveco kaj partopreni la Forumon de Civilizoj ĉe Grandaj Riveroj de la Mondo, en la urbo Zhengzhou. Mi akceptis vojaĝi vespere, post la forumo en Pekino, por esti preta por ekskursi al la Flava Rivero la sekvan matenon kaj ekkoni la laboron faratan pri ĝia konservado.
+
+Mi laboranta en Ŝanhajo
+
+Posttagmeze de la 13-a de septembro mi, per la altrapida trajno Fuxing, iris de Pekino al Ŝanhajo. Tiu vojaĝo estis tre rapida, ĉar dumvoje la trajno haltis nur en Nankino kaj mi sufiĉe frue atingis Ŝanhajon.
+
+Matene de la sekva tago, mi iris al ŝtalejo de la ĉina firmao Baosteel por montri ĝin. La fabriko estas tute aŭtomata kaj kapablas funkcii 24-hore ĉiutage kun malŝaltitaj lampoj. La fabriko estas grandega kaj vere impresis min, tie estas eĉ bela ĝardeno kie la laboristoj povas ripozi. Dum tagmanĝo mi rimarkis, ke la tabloj de la manĝejo estas el ligno kaj la pladoj kaj teleroj estas el plasto. Tio memorigis min pri proverbo tre konata en Brazilo: En domo de forĝisto, forko estas el ligno. Tiu proverbo signifas, ke fakulo bezonas tiom sin dediĉi al plenumado de mendoj de klientoj, ke li forgesas siajn proprajn bezonojn.
+
+El tie mi iris al la ŝanhaja sidejo de Vale. Tio estis mia unua fojo vizitanta brazilan entreprenon en Ĉinio, do estis tre interesa sperto. La oficejoj de Vale troviĝas en la 52-a kaj 53-a etaĝoj de alta turo, kaj el tie oni havas belegan rigardon de Huangpu-rivero kaj la urbo ĉirkaŭ ĝi. En tiu tago estis pluveto kaj la nuboj aldonis apartan belecon al la pejzaĝo sur la horizonto.
+
+Ŝanhajo rigardata el la loka sidejo de Vale
+
+Dum la intervjuo, mi multe lernis pri la kunlaboroj inter brazilaj kaj ĉinaj firmaoj kadre de minado kaj ŝtalproduktado kaj kiel ambaŭ landoj profitas de tio. Mi ankaŭ ŝatis lerni, kiel Vale kunlaboras por helpi Ĉinion redukti karbonellasadon en tiu industria ĉeno. Tempo rapide pasis kaj mi ektimis malfruiĝi por iri al la stacidomo, sed ĉio iris glate: mia trajno estis tre rapida kaj mi atingis Pekinon je la antaŭplanita horo. Dum mi estis en la trajno, en Pekino aliaj partoprenantoj de la Pekina Kultura Forumo estis ĝuantaj bankedon kaj mirindan prezentaĵon ĉe Shougang-parko. Sekvatage mi vidis fotojn kaj filmetojn pri la prezentaĵo, kio estis ja mirinda.
+
+La Pekina Kultura Forumo okazis en la fama Pekina Hotelo, el kie oni havas privilegian rigardon de la iama Legacia Kvartalo de Pekino. La forumo estis dividita en du subforumojn: tiu pri protektado de kulturaj heredaĵoj kaj tiu pri turismo kaj kulturaj heredaĵoj. Mi ĉeestis la lastan. Tie mi konatiĝis kun germana fakulo pri turismo, kiu klarigis al mi, ke la malrapideco en la reveno de eŭropaj turistoj al Ĉinio estas normala afero, ĉar eŭropanoj havas la kutimon delonge antaŭplani siajn sekvajn feriojn, tiel ke necesas atendi almenaŭ ĝis la sekva somero por rimarki signifan kreskon.
+
+Pekino rigardata el la 16-a etaĝo de Pekina Hotelo
+
+En la forumo mi ankaŭ konatiĝis kun delegitaro el la urbo Oeiras en Portugalio. La registaroj de Oeiras kaj Pekino havas multajn kunlaborojn kaj Ĉinio fariĝas grava merkato por produktoj el Portugalio. Aparte substrekinda afero estas, ke en tiu ĉi forumo estis interpretado ne nur en la ĉina kaj la angla, sed ankaŭ en la portugala. Tio estis la unua fojo, ke mi vidis portugallingvan interpretadon en evento sen rekta rilato al portugallingvaj landoj.
+
+Post la forumo, mi tuj iris al trajnostacio por vojaĝi al Zhengzhou. La vojaĝo per altrapida trajno daŭris iom pli ol du horoj, kaj mi atingis la hotelon sufiĉe frue por bone ripozi.
+
+Sekvatage mi vizitis la Flavan Riveron, lernis pri mediprotekta laboro farata tie, kaj ankaŭ pri la kulturaj heredaĵoj de Henan, unu el la luliloj de la ĉina civilizacio. Krom la riveron, mi ankaŭ vizitis templojn, la loko kie naskiĝis la fama poeto Du Fu. Mi restis unu plian tagon en Zhengzhou por partopreni la Mondan Forumon de Civilizoj ĉe Grandaj Riveroj, kiu estis tre interesa pro la prelegoj de pluraj profesoroj pri temoj kiel historio kaj arkeologiaj eltrovaĵoj.
+
+Imperiestroj Yan kaj Huang skulptitaj sur roko en Zhengzhou
+
+En tri tagoj viziti tri urbojn tiom for unu de la aliaj kaj plenumi tuttagan tagordon en ĉiu el ili atestas la rapidecon kaj konvenecon de ĉinaj altrapidaj fervojoj. El tiuj tri tagoj mi aparte rememoras tri scenojn kiujn mi vidis: la pejzaĝo tra la fenestro de la ŝanhaja sidejo de Vale, Pekino rigardata el fenestro de Pekina Hotelo, kaj la skulptaĵoj de la antikvaj imperiestroj Yan kaj Huang, prapatroj de la ĉina nacio.
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Cifereca teknologio helpas realigi la sonĝan inaŭguron de Hangzhou-aj Aziaj Ludoj
+
+**Published:** 2023-09-27
+
+**URL:** http://esperanto.china.org.cn/2023-09/27/content_116716472.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La inaŭguro de la Hangzhou-aj Aziaj Ludoj uzis novajn teknikojn kaj igis la solenan ceremonion sonĝa, mirinda kaj aplaŭdinda. Kiel oni efektivigis ĝin?
+
+La malferma ceremonio unuafoje aplikis teknologion de tridimensia duŝnura pendigo en granda spaco, per kiu la geaktoroj flugantaj povas tridimensie libere danci kaj interagi kun la ondoj de la surgrunda ekrano. Tiu ĉi sistemo estis sendepende ellaborita por la ceremonio.
+
+La malferma ceremonio ankaŭ prezentis la unuan ciferecan torĉbruligon en la historio de Aziaj Ludoj. Subtenata de AR-teknologio, "cifereca homo" formita de centmilionoj da retumantoj funkciis kiel "cifereca kaj reala integriĝo", per blokĉena teknologio, la "cifereca homo" paŝis sur la stadiono kaj ekbruligis la ĉefan torĉon.
+
+Ankaŭ la ĉefa torĉo havas sekreton. Oni unuafoje uzis "verdan metanolon" kiel fuelon, kio estas regenerita el rub-karbono, atingante nul-emision de karbona dioksido por mediprotektado. Tio estas ankaŭ la unua fojo en la homa historio, ke rub-karbono estas reuzata. Tio estas portreto de la verdaj kaj sekuraj ŝanĝoj en la ĉefa torĉa brulaĵo de grandskala sporta evento, kaj ankaŭ bela ekzemplo de verdaj Aziaj Ludoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Ĉu vi rimarkis? Jen ĉinaj elementoj en la inaŭguro de Hangzhou-aj Aziaj Ludoj
+
+**Published:** 2023-09-27
+
+**URL:** http://esperanto.china.org.cn/2023-09/27/content_116716502.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La malferma ceremonio de la Hangzhou-aj Aziaj Ludoj montris ĉinstilan romantikecon per unuigo de jarmila civilizacio kaj moderna teknologio.
+
+Akvo
+
+Akvo estas la animo de Hangzhou. Akvo estas fonto de civilizacio. La malferma ceremonio de Hangzhou-aj Aziaj Ludoj per "akvo" kunligas la procezon, montrante la kontinuan kulturon naskitan ĉe akvo, la poezian kaj pitoreskan belecon de suda Ĉinio kaj la dinamikajn ondojn de la rivero Qiantang tra la urbo Hangzhou.
+
+Aŭtuno
+
+La malferma ceremonio de Hangzhou-aj Aziaj Ludoj koincidas kun la aŭtuna ekvinokso, unu el la 24 sunperiodoj de Ĉinio. La rikolta sezono plenas de ĝojo, esprimante la entuziasmon de la gastiganta urbo Hangzhou por bonvenigi vizitantojn.
+
+Ponto
+
+Ponto simbolas konekton, komunikadon kaj integriĝon. La arkponto konstruita el tridimensiaj bildoj staras super la Granda Kanalo, kunligante antikvecon kaj modernan tempon. Tio reflektas la pasintecon kaj la nuntempon, la historion kaj modernecon, pruvante la heredon kaj disvolviĝon de tradicia kulturo de Ĉinio.
+
+Tajdo
+
+Tajdo de la rivero Qiantang estas unu el la plej famaj naturaj pejzaĝoj de Hangzhou. La ege granda tajdo estas kaŭzita de la centrifuga forto de gravito kaj la tera rotacio, ankaŭ pro la speciala topografio de la golfo de rivero Qiantang al la maro. La loka tradicio de tajdspektado daŭras pli ol 2 000 jarojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Pekina metroo prove transportas ekspedaĵojn!
+
+**Published:** 2023-09-28
+
+**URL:** http://esperanto.china.org.cn/2023-09/28/content_116712523.htm
+
+**Categories:** Socia Vivo
+
+Ekde sabato, la 23-a de septembro, pluraj metrolinioj en Pekino ekpartoprenas provan projekton pri transportado de ekspedaĵoj dum horoj kiam pasaĝeroj malabundas, kun la celo redukti karbonellasadon kaj la nombron de veturiloj surstrate.
+
+Post rapida ekspansio en la lastaj jaroj, pekina metroo nuntempe havas 27 liniojn kovrantaj distancon je 807 kilometroj, laŭ klarigo de Wang Shuling de Pekina Instituto pri Transporto. En la sama urbo, ĉirkaŭ 15 milionoj da ekspedaĵoj estas liverataj tage, plejparto el ili per veturiloj sur la stratoj de la urbo.
+
+La pionira projekto nomita "profiti la transportkapablon de metroo ekster pasaĝerplenaj horoj" celas iom post iom mildigi trafikon kaj malaltigi karbonemisiadon.
+
+Por certigi la sekuran kaj bonordan funkciado de metroaj linioj, Pekina Urba Komisiono pri Transporto decidis, ke vartransportado per metroo devas sekvi la regulojn de metroo kaj trapasi sekurecan kontrolon, klarigis Zhou Yuan, ano de la komisiono.
+
+Partoprenantaj firmaoj kreis reuzeblajn skatolojn por transportado de ekspedaĵoj laŭ la grandeco de metroaj trajnoj, kaj ankaŭ ĉarojn por sekure kaj facile transporti ilin en la metroo, diris Zhou.
+
+Redaktis: Rafael
+
+Fonto: GICexpat
+
+El Popola Chinio
+
+
+---
+
+# Maŭzoleo de la dinastio Norda Song en Zhengzhou
+
+**Published:** 2023-09-28
+
+**URL:** http://esperanto.china.org.cn/2023-09/28/content_116718387.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+En la urbo Zhengzhou de Henan-provinco, Ĉinio, troviĝas la loko, kie estis entombigitaj sep imperiestroj de la dinastio Norda Song. Entute troviĝas ĉirkaŭ mil tomboj en la areo, ĉar krom imperiestroj, ankaŭ familianoj kaj kelkaj malpli altrangaj homoj estis tie entombigitaj. Por atingi la maŭzoleon, oni devas trairi vojon ĉirkaŭitan de statuoj kiuj gardas la lokon. Entute estas centoj da statuoj en tiu areo, ĉar laŭ kutimo ĉiu imperiestra tombo havis 23 parojn da ŝtonaj skulptaĵoj laŭ la vojo al ĝi.
+
+Turoj kaj pordegoj ĉe la enirejo de la maŭzoleo
+
+Detalo de la enirejo de la maŭzoleo
+
+Ŝtonaj statuoj ĉe la vojo al la maŭzoleo
+
+Postrestaĵo de la piramido, sub kiu troviĝas la subgrunda palaco
+
+La maŭzoleo estis konstruita tiel, ke ĉirkaŭ ĝi estas muro longa je mil metroj, kiu ĉirkaŭas la palacon konstruitan por la forpasintaj imperiestroj. La palaco konsistas el du partoj, la supra palaco, meze de ĝi troviĝas piramido, kaj sub ĝi estas la subgrunda palaco, kie estis entombigitaj la imperiestroj; kaj la malsupra palaco, nordoriente de la supra palaco, kies konstruaĵoj ne rezistis al tempopaso.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Media plibonigo de la Flava Rivero
+
+**Published:** 2023-09-28
+
+**URL:** http://esperanto.china.org.cn/2023-09/28/content_116718394.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Konsiderate unu el la luliloj de la ĉina civilizo, la Flava Rivero estas la dua plej longa rivero de Ĉinio, kun longeco de 5 464 km. Kvankam ĝia medio malboniĝis en la pasinteco, nuntempe estas pluraj agadoj de la registaro cele al plibonigo de la medio ĉe la rivero. En la urbo Zhengzhou de Henan-provinco, la registaro konstruis parkojn kaj arbarojn ĉe la rivero kaj alprenis rimedojn por protekti marĉejojn. Rezulte de tiu agado, la popolo gajnis novajn lokojn por promeni kaj fakuloj konstatis kreskon de biodiverseco kaj de nombro de bestoj, aparte birdoj, ĉe la rivero.
+
+Vojo estis konstruita por biciklantoj kaj kurantoj ekzerciĝi en parko ĉe la Flava Rivero
+
+Lago ĉe la Flava Rivero atestas la biodiversecon de la regiono: tie abundas birdoj, fiŝoj kaj aliaj bestoj.
+
+Patro kaj filo kune rigardas la Flavan Riveron
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# La statuo de imperiestroj Yan kaj Huang en Zhengzhou
+
+**Published:** 2023-09-28
+
+**URL:** http://esperanto.china.org.cn/2023-09/28/content_116718403.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La Flava Rivero estas unu el la luliloj de la ĉina civilizacio. Ĉe la baseno de la Flava Rivero ekdisvolviĝis agrikulturo antaŭ pli ol 6 mil jaroj, kaj antaŭ ĉirkaŭ 4 mil jaroj tie formiĝis klanoj kaj triboj, inkluzive de tiuj sub la gvido de la imperiestroj Yan kaj Huang, kiuj poste unuiĝis por formi huaxia-popolon, el kiu originis la ĉina nacio.
+
+Skulptaĵo de imperiestroj Yan kaj Huang en Zhengzhou. Ili rigardas la Flavan Riveron.
+
+Statuo de drako ornamas la parkon antaŭ la statuoj, kie multaj ĉinoj omaĝas tiujn du praulojn de la ĉina nacio.
+
+Sunhorloĝo antaŭ la skulptaĵo de la imperiestroj Yan kaj Huang
+
+Omaĝe al tiuj du imperiestroj de antikveco, iliaj vizaĝoj estis skulptitaj sur monto ĉe la Flava Rivero. La skulptaĵo estas alta je 106 metroj, kaj ĝia konstruado daŭris 20 jarojn. Ĝi estis inaŭgurita en aprilo 2017, kaj en 2019 la loko estis vizitita de ĉina prezidanto Xi Jinping dum inspekta vojaĝo al Henan-provinco.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Hejmloko de Du Fu en Zhengzhou
+
+**Published:** 2023-09-28
+
+**URL:** http://esperanto.china.org.cn/2023-09/28/content_116718411.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Du Fu (712-770) estas unu el la plej elstaraj ĉinaj poetoj, kies verkoj, markitaj de stilo simpla kaj melankolia profunde influis la evoluon de ĉina kaj japana literaturoj. Liaj poemoj estas profunde markitaj de konfuceanismaj ideoj kaj proponas bonvolemon pri la popolo, amon al ĉiuj vivestaĵoj kaj patriotismon.
+
+Vivo de Du Fu rakontata per altteknika prezentado
+
+La poeto naskiĝis en kaverna domo ĉe Bijia-monto en Gongyi-urbeto de la urbo Zhengzhou en la provinco Henan de Ĉinio. Tiu kaverna domo estas parto de lia iama hejmo en Zhengzhou, poste transformita en muzeo memore al li kaj lia verkaro. La domo kreskis iom post iom ekde la epoko de lia praavo, kiu estis loka magistrato: ĉe la kaverna domo estis konstruitaj ĝardenoj kaj domoj por la familia uzo. Tie Du Fu loĝis kaj studis dum sia infaneco, kaj li ŝatis pluki kaj manĝi fruktojn el la fruktarboj plantitaj en la ĝardenoj.
+
+La pluraj malfacilaĵoj spertintaj de Du Fu estis krudmaterialo por liaj poemoj. Li vivis en epoko de malvivliĝo de Tang-dinastio kaj, surbaze de siaj spertoj pri politikaj disputoj kaj militoj, verkis pli ol 1 400 poemojn, kiuj spegulas lian profundan analizon pri la ĉina socio laŭlonge de la du jardekoj antaŭ la Ribelo de An Lushan kaj Shi Siming (755-763); pro tio, tiuj poemoj estas konataj kiel historio en versoj. Anstataŭ priskribi la senton kaŭzitan de soleco kaj mizero, li transformis siajn suferojn en amo kaj solidareco al la homaro, esprimante siajn zorgojn pri la bonfarto de la lando kaj de la popolo, kaj sian volon kontribui por plibonigi.
+
+Statuo memore al renkontiĝo inter Du Fu kaj Li Bai
+
+Du Fu havis fortan senson de rezono kaj empatio, kaj per siaj propraj spertoj li sukcesis kompreni la ĝojojn kaj malĝojojn spertataj de la popolo. Li ne nur sin nutris de klasikaj poemoj de Ĉinio, sed ankaŭ novigis kaj faris gravajn atingojn en poezio, pro tio li fariĝis konata kiel Saĝulo de Poezio. Laŭlonge de sia vivo, li dufoje renkontiĝis kun Li Bai (701-762), alia eminenta poeto de tiu epoko. Memore al tiuj renkontiĝoj, statuo de ambaŭ poetoj kune estis konstruita en ĝardeno de la hejmo de Du Fu en Zhengzhou.
+
+Konvertita en muzeo, la iama hejmo de Du Fu nun diskonigas al la vizitantoj liajn vivon kaj verkaron. Kelkaj eksponejoj estas dediĉitaj al li, montrantaj informojn pri lia vivo kaj lia familio, dum aliaj celas klarigi la enhavon kaj stilon de lia poezio. Por adaptiĝi al la nuna epoko, la muzeo ankaŭ alprenis novigajn formojn de eksponado: vizitantoj povas trairi koridoron kun poemoj de Du Fu gravuritaj sur lumigitaj de travideblaj tabuloj kaj spekti teatraĵon pri lia vivo kun aparte interesaj specialaj efektoj.
+
+Statuo reprezentas Du Fu dum sia infaneco, plukonta fruktojn sur arbo.
+
+De Tang-dinastio ĝis la nuna epoko, la poemoj de Du Fu inspiris sinsenvajn generaciojn de la ĉina popolo antaŭenigi la ĉinan tradician kulturon, kaj lia iama hejmloko en Zhengzhou nun kontribuas por plu heredigi kaj vigligi la mesaĝojn kaj ekzemplojn de tiu eminenta poeto.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ĵamŝed Junusov: Kadre de "La Zono kaj Vojo" atendas nin prospero
+
+**Published:** 2023-10-07
+
+**URL:** http://esperanto.china.org.cn/2023-10/07/content_116728871.htm
+
+**Categories:** Socia Vivo
+
+Ĵamŝed Sabiroviĉ Junusov estas membro de la centra komitato de la Komunista Partio de Taĝikio kiel respondeculo pri internacia kunlaboro, kaj ekde 2020 li estas la sekretario de la centra komitato de la partio. Naskita la 5-an de Februaro 1965 en la urbo Duŝanbo, li diplomiĝis el la fakultato pri historio de la Taĝika Ŝtata Universitato.
+
+De 1986 ĝis 1991 li laboris en diversaj postenoj en la Sovetaj Junularaj Organizoj de la urbo Duŝanbo kaj en la centra komitato de la Soveta Junulara Organizo de la respubliko. En 1993, li funkciis kiel la unua sekretario de la Centra Distrikta Komitato de la Komunista Partio de Taĝikio, kaj de 1995 ĝis 1999, la unua sekretario de la Centra Komitato de la Soveta Junulara Organizo de la Respubliko. Tiam li laboris en registaraj organizoj, kiel Ministerio pri Komunikado, Komitato pri Junularaj Aferoj sub la registaro de la Respubliko Taĝikio.
+
+Ĵamŝed Junusov havas la ŝtatan rangon de la unuanivela konsilisto pri publika servo.
+
+Ekde 2006 li okupiĝas pri sindikata laboro kaj nuntempe estas la estro de la sociekonomia departemento, publikaj rilatoj kaj internaciaj rilatoj de la Federacio de Sendependaj Sindikatoj de Taĝikio.
+
+El Popola Ĉinio: En la pasintaj dek jaroj, pli ol 150 landoj kaj 30 organizoj subskribis kunlaborajn dokumentojn kun Ĉinio pri la konstruado de la iniciato "La Zono kaj Vojo", kaj la iniciato jam estas la plej populara internacia kunlabora publika produkto kaj plej granda kunlabora platformo en la mondo. Kiel vi, fakulo pri internaciaj rilatoj, taksas ĝin?
+
+Ĵamŝed Sabiroviĉ Junusov
+
+: Dankon pro via demando, oni diras, ke la iniciato"La Zono kaj Vojo" estas elmetita de la gvidanto de Ĉinio, kamarado Xi Jinping. Komence mi ŝatus noti kelkajn historiajn aspektojn de ĉi tiu iniciato, ĉar tiu ĉi nova iniciato de Ĉinio havas profundajn historiajn kaj kulturajn radikojn.
+
+Multaj eŭropaj landoj eble ne komprenas la historian rolon de ĉi tiu iniciato pro ĝia malproksima geografia loko, sed la popoloj de la Centra Azio, inkluzive de Taĝikio, historie okupiĝis pri tiu iniciato. En antikvaj tempoj, estis de Oriento al Okcidento, ke ĉinfaritaj silkaj varoj iris, kaj la vojo ankaŭ trapasis la modernan Centran Azion.
+
+La antikva granda Silka Vojo estis verŝajne aŭdata de multaj eŭropanoj almenaŭ unufoje en sia vivo, sed laŭ tempopaso, post multaj jarcentoj, ĝi estis forgesita kaj memorita nur sur profesia nivelo de historiistoj, kulturfakuloj kaj aliaj. Ni, loĝantoj de la centr-azia regiono, estis la rektaj profitantoj de la Silka Vojo, ĉar la vojo trakuris niajn terojn.
+
+En moderna interpreto, mi karakterizus la iniciaton "La Zono kaj Vojo" kiel dialogon inter la civilizacioj de Oriento kaj Okcidento. La iniciato estas ĉefe ekonomia projekto de Ĉinio, sed kune kun tio ĝi havas multajn komponantojn, kiel la disvolviĝo de ekonomiaj ligoj kun najbaraj landoj kaj pretere, investpolitiko, promocio de varoj laŭ alternativa marvojo, disvolviĝo de loĝistikaj projektoj, kaj kultura kunlaboro.
+
+Mi ŝatus substreki mian rimarkon rilate Ĉinion kaj emfazi la fakton, ke kadre de produktado kaj disvolviĝo de la enlanda merkato por varoj kaj servoj, infrastruktura konstruado kaj socia politiko, urbanizigo de urboj, trejnado de la dungitaro, mildigo de malriĉeco, mi vidis, ke ĉiuj ĉi aferoj estas, surbaze de la ekzemplo de la Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio, plejparte solvitaj.
+
+Mi, kune kun delegacio el Taĝikio, vizitis multajn entreprenojn en ĉi tiu regiono kaj konatiĝis kun la vivo de ordinaraj homoj. Homoj laboras kaj per sia ĉiutaga laboro efektive plibonigas siajn vivkondiĉojn. En multaj urboj kaj regionoj ni vidis la zorgemon pri homoj montritaj de la ĉina gvidantaro, kreante kondiĉojn por kreado de laborpostenoj, modernaj fabrikoj kaj entreprenoj kun alta nivelo de novigado kaj provizantaj decajn salajrojn.
+
+Per laboro, homoj plibonigas siajn ĉiutagajn vivojn, renovigas siajn domojn, aĉetas aŭtojn, vestaĵojn kaj zorgas pri deca edukado por siaj infanoj. Multaj lernejoj, modernaj muzeoj kaj teatrejoj estas konstruitaj, inkluzive por konservi la kulturon de la popolanoj vivantaj en Ĉinio.
+
+Tiu ĉi kulturo aŭ iniciato transiris la limojn de Ĉinio kaj sukcese funkcias ekster Ĉinio, en aliaj landoj. Tio povas esti taksata laŭ malsamaj manieroj, sed unu afero estas certa: Ĉinio, disvolvante sian ekonomion, kontribuas por la disvolviĝo de siaj najbaroj kaj aliaj landoj. Mi nomas tian zonon samtempe sekurecan zonon, ĉar disvolvante ĉi tiun iniciaton, la ĉina gvidantaro klopodas antaŭenigi la disvolviĝon de memsufiĉa kaj sekura mondo.
+
+Altteknologia kaj memsufiĉa socio disvolvas produktadon, plibonigas sociajn vivkondiĉojn kaj kreskigas tolereman pensadon. Ĉi-rilate mi ŝatus ripeti la vortojn de la gvidanto de Ĉinio, estimata Xi Jinping,"la socio estas kiel granato, senŝeligante ĝin oni vidas la samajn fruktojn, kaj same en la socio ĉiuj estu unuigitaj kaj egalaj."
+
+Kompreneble, kiel civitano, kiel politikisto kaj kiel ordinarulo, mi povas nur pozitive taksi tiun ĉi iniciaton, ĉar tiu iniciato celas konstruadon.
+
+El Popola Ĉinio: Laŭ vi, kian rolon la iniciato ludas en la socia disvolviĝo de la aliĝintaj landoj, precipe rilate al la labor-kondiĉoj? Kaj kian rolon ĝi havas en la internaciaj rilatoj?
+
+Ĵamŝed Sabiroviĉ Junusov
+
+: Oni devas diri, ke la iniciato ludas pozitivan rolon en la ekonomio de Taĝikio. Kadre de tiu ĉi iniciato kaj kun la rekta helpo de ĉinaj investoj kaj specialistoj, kaj ankaŭ de teknologio, Taĝikio venkis la vojblokon. Precipe vintre, vojtrafiko inter la regionoj de la respubliko estis fermita ĝis printempo.
+
+Laŭ iniciato de nia gvidanto, prezidanto de la Respubliko Taĝikio, estimata Emomali Rahmon, ŝtata programo por superi la vojblokon estis evoluigita. Varmaj amikaj rilatoj estis establitaj inter niaj ŝtatestroj kaj danke al proksima kunlaboro, Taĝikio hodiaŭ povas komunikiĝi kun ĉiuj regionoj de la respubliko la tutan jaron.
+
+Kompreneble, ĉi tiu kunlaboro tre utilas al la socia evoluo de la respubliko. En Taĝikio, dekoj da projektoj nuntempe estas efektivigataj por plibonigi la socian medion kaj novigaj teknikoj estas importitaj en diversajn sektorojn de la ekonomio. La enkonduko de ĉinaj teknikoj, moderna teknologio kaj ekipaĵoj multe plifaciligis la laboron de taĝikaj laboristoj, la trejnadon de dungitoj kaj la subtenon por diversaj sektoroj de la ekonomio kaj ĉio ĉi estas tre pozitive ricevita en la socio.
+
+Ĉinaj kompanioj funkciantaj en la respubliko kontribuas al la disvolviĝo de la produktado. Rilate al kreado de novaj laborpostenoj, la enkonduko de moderna teknologio faciligas la laboron de specialistoj en la industria sektoro de la ekonomio. Ĝenerale oni povas rimarki nur pozitivajn aspektojn pri la kunlaboro.
+
+Mi pensas, ke en internacia kunlaboro oni povas ankaŭ noti la pozitivajn aspektojn de tia kunlaboro. Ekzemple, kadre de la iniciato, Ĉinio investis dekojn da miliardoj da dolaroj en la ekonomion de Kazaĥio. Same oni faris kun Uzbekio kaj Kirgizio. Oni povas rimarki, ke multaj landoj hodiaŭ kunlaboras kun Ĉinio kadre de ĉi tiu iniciato kaj tio alportas pozitivajn rezultojn en la disvolviĝo de la tutmonda ekonomio.
+
+El Popola Ĉinio: Ĉu la iniciato motivigas la ekomonian disvolvon kaj interŝanĝojn de la du landoj nome Ĉinio kaj Taĝikio?
+
+Ĵamŝed Sabiroviĉ Junusov
+
+: Sendube, en ĉiuj tempoj kaj inter ĉiuj popoloj, komerco estas la ŝlosilo de riĉeco kaj prospero. Ni zorgas pliigi komercajn interŝanĝojn kun nia najbaro. Hodiaŭ sur la taĝika merkato, kune kun konsumvaroj, oni povas ankaŭ vidi altteknikajn ekipaĵojn el Ĉinio en diversaj sektoroj de la ekonomio.
+
+Modernaj teknologiaj ekipaĵoj troveblas en tiaj industrioj kiel komunikado, konstruo, minado, agrikulturo, energio, transporto, malpeza industrio kaj aliaj. Se antaŭe estis pure hejmaj varoj en nia merkato, hodiaŭ ni vidas sur la merkato ĉinajn vojajn ekipaĵojn, altteknologiajn minejajn ekipaĵojn, teksilojn, ĉinajn poŝtelefonojn kaj ekipaĵojn de la ĉina marko ZTE.
+
+Multaj altkvalitaj varoj, kiel vestaĵoj, ŝuoj kaj hejmaj aparatoj, ankaŭ aperis en nia merkato kaj ne estas pli malbonaj ol tiuj de alilandaj markoj. Komerco estas ĉiam la disvolviĝo de la ekonomio, ĉar ĝi signifas laborpostenojn, akcelon de varoj kaj servoj, kaj, kompreneble, pli intiman konon pri la kulturo de Ĉinio. Tio ĉi ĉiam estas interesa kaj profita.
+
+El Popola Ĉinio: Kion vi atendas pri la estonteco de la konstruado de "La Zono kaj Vojo"?
+
+Ĵamŝed Sabiroviĉ Junusov
+
+: Mi vidis la disvolviĝon de la iam postiĝinta regiono de Ĉinio, nome la Xinjiang-a Ujgura Aŭtonoma Regiono. Nia delegacio vizitis la urbojn Urumĉio, Kashi kaj la kirgiza aŭtonoma subprovinco. Kiel oni diras, ĉio estas konata kompare kun io, kaj mi povas diri, ke ĉi tiu regiono estas tre malsama ol tio, kio ĝi estis antaŭ nur 5 jaroj.
+
+La impresoj el tio, kion mi vidis, estis mirindaj kaj la homoj estis bonhumoraj kaj amikemaj. Mi volas diri, ke en tiom mallonga tempo, se Ĉinio tiom povis fari en tiel malproksima regiono okcidenta de la lando, mi opinias, ke la estonteco de la konstruado de "La Zono kaj Vojo" estas tre optimisma.
+
+Ĉinio evoluas laŭ la vojo de la konstruado kaj ĝi projekcias sian konstruan projekton al la landoj kadre de la iniciato. Mi pensas kaj esperas, ke kadre de tiu ĉi iniciato atendas nin prospero, ĉar ene de la orienta civilizacio ni estas destinitaj al dialogo kaj disvolviĝo.
+
+Ĉinaj kulturo kaj filozofio estas la bazoj de ĉi tiu iniciato, kies radikojn estas en la profundo de jarcentoj, kiam la granda Silka Vojo pasis inter niaj montoj kaj riveroj. Post jarcentoj, la dialogo inter civilizacioj denove revigliĝas kaj tio estas la respondo de Ĉinio al la modernaj defioj kadre de tutmondiĝo.
+
+Usono trudas al la mondo unupolusan vidon kaj la usonan vivstilon, kiu jam fiaskis kaj baldaŭ, mi esperas, ke tiu ĉi politiko malaperos. Sed vi ne povas detrui aŭ forviŝi la konstruadon, kaj mi pensas, ke la iniciato"La Zono kaj Vojo" trairos la vivon kun ni laŭ la vojo de la konstruado.
+
+Konklude, mi volas emfazi, ke ĝis aŭgusto ĉi-jare Ĉinio estis por mi lando, kiun mi konis per libro. Antaŭ multe da tempo, en mia junaĝo, mi hazarde trovis tre interesan libron verkita de Wu Cheng'en, "Pilgrimo al la Okcidento". Ĉi tiu libro estis mia unua enkonduko al la ĉina kulturo kaj antikva ĉina filozofio.
+
+Mia persona opinio estas, ke popolo, kiu havas tiom riĉan kulturan heredaĵon, estas inda je respekto, kaj la plua evoluo de la iniciato estas la vojo de amikeco, bona najbareco kaj reciproka respekto, bazita, kiel mi plurfoje diris, sur la konstruado.
+
+Pacon al via hejmo, niaj ĉinaj kamaradoj!
+
+Intervjuita de Chen Ji kaj Pietro Fiocchi
+
+El Popola Chinio
+
+
+---
+
+# Bela verda vojo de Dianchi-lago
+
+**Published:** 2023-10-07
+
+**URL:** http://esperanto.china.org.cn/2023-10/07/content_116728885.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Dum la Aŭtunmeza Festo kaj Nacia Tago de Ĉinio, la verda vojo de Dianchi-lago en la urbo Kunming de Yunnan-provinco, altiris multajn lokanojn. Post kiam la verda vojo ĉirkaŭ Dianchi-lago estos finkonstruita, ĝi kunligos parkojn, malsekejojn kaj aliajn pitoreskajn lokojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Vojaĝoj en Ĉinio en ĉi feria periodo atingis 826 milionojn da homfojoj
+
+**Published:** 2023-10-07
+
+**URL:** http://esperanto.china.org.cn/2023-10/07/content_116728893.htm
+
+**Categories:** Socia Vivo
+
+Laŭ kalkuloj de la datumcentro de la Ministerio pri Kulturo kaj Turismo, dum la oktagaj ferioj de la Aŭtunmeza Festo kaj Nacia Tago de Ĉinio, la nombro de enlandaj turismaj vojaĝoj estis 826 milionoj da homfojoj, kresko je 71.3% kompare kun tiu de la pasinta jaro; la enlanda turisma enspezo estis 753.43 miliardoj da juanoj, pliiĝo je 129.5%.
+
+Kultura kaj turisma konsumado rapide kreskis dum la periodo. De 18:00 de la 28-a de septembro ĝis 6:00 de la 6-a de oktobro, la nokta pasaĝerfluo en 243 landnivelaj noktaj kulturaj kaj turismaj ejoj estis 112 milionoj da homfojoj, pliiĝo je 68.7% kompare kun tiu de la feriado de pasintjara Nacia Tago.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Ĉina ĉefministro ĉeestos ferman ceremonion de Hangzhou-aj Aziaj Ludoj
+
+**Published:** 2023-10-07
+
+**URL:** http://esperanto.china.org.cn/2023-10/07/content_116728899.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Proparolanto de la Ĉina Ministerio pri Eksterlandaj Aferoj anoncis en la 6-a de oktobro, ke ĉina ĉefministro Li Qiang ĉeestos la ferman ceremonion de la Hangzhou-aj Aziaj Ludoj en la urbo Hangzhou de la provinco Zhejiang, la 8-an de oktobro.
+
+La proparolanto diris en deklaro, ke Li ankaŭ okazigos bankedon kaj eventojn de duflankaj rilatoj por alilandaj gvidantoj, kiuj ĉeestos la ferman ceremonion.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Mauro Alboresi: La rolo de "La Zono kaj Vojo" pri socia evoluo estas tre markita
+
+**Published:** 2023-10-07
+
+**URL:** http://esperanto.china.org.cn/2023-10/07/content_116728902.htm
+
+**Categories:** Socia Vivo
+
+Mauro Alboresi estas la ĝenerala sekretario de la Itala Komunista Partio.
+
+Antaŭe li estis metalmekanika laboristo kaj metia edukisto. Sekve, kiel sindikata direktanto, profunde kaj konkrete engaĝiĝis en la laboristaj kaj sociaj temoj, tiele fariĝanta politika gvidanto.
+
+El Popola Ĉinio: En la pasintaj dek jaroj pli ol 150 landoj kaj 30 organizoj subskribis kunlaborajn dokumentojn kun Ĉinio pri la konstruado de la iniciato "La Zono kaj Vojo", kaj hodiŭ la iniciato jam estas la plej populara internacia kunlabora publika produkto kaj plej granda kunlabora platformo en la mondo, do vi, kiel fakulo pri internaciaj rilatoj, kiel taksas ĝin?
+
+Mauro Alboresi
+
+: La Itala Komunista Partio ĉiam esprimis sin favore al la iniciato "La Zono kaj Vojo".
+
+Tio substrekas, ke ĝi ne devus esti konsiderata simple kiel la pruvo de la pliiĝo de Ĉinio sur la tutmonda scenejo, de la ŝanĝoj kiuj okazis je tiu nivelo, sed prefere kiel pruvo de tiuj ŝanĝoj, kiuj estis atendataj laŭ tiu vojo, kiu substrekas, ke nia atento devus esti direktita al plena kompreno de tia iniciato.
+
+Ni do subtenis kaj daŭre subtenas tion, kion ĝi alportis kaj kunportas, kio ĝin karakterizas, tio estas, la redifino de vasta geografia areo, kiu entenas tri kontinentojn kaj kiu, per diversaj specoj de infrastrukturoj, celas esti ĉiam pli interligita, projekciita al novaj niveloj de materia evoluo, novaj sciencaj kaj kulturaj interŝanĝoj.
+
+Rilate al tio, ni donis grandan gravecon al la subskribo de la memorando pri la iniciato "La Zono kaj Vojo" inter la ĉina kaj la itala registaroj, la 23an de marto 2019.
+
+El Popola Ĉinio: Laŭ vi, kian rolon la iniciato ludas en la socia disvolviĝo en la aliĝintaj landoj? Kaj kian rolon ĝi havas en la internaciaj rilatoj?
+
+Mauro Alboresi
+
+: La rolo de la iniciato pri la socia evoluo de la landoj, kiuj aliĝas al ĝi, kiel substrekis multaj observantoj, estas tre markita.
+
+Multaj emfazis la ekonomian signifon de la infrastrukturaj projektoj inter Ĉinio, Eŭropo kaj la Orienta Afriko (taksita je 1 000 miliardoj da usonaj dolaroj) kaj substrekis la valoron, kadre de komuna volo, de la interkonsentoj inter la diversaj landoj, iliaj institucioj kaj kompanioj, koncerne al multoblaj sektoroj (por Italio, kune kun rilataj agadoj, ĉi tio estis taksita je pli ol 20 miliardoj da eŭroj). Multaj evidentigis precipe la sociajn sekvojn de la iniciato, kiu influas tre malsamajn realojn, instigante ilian evoluon kaj integriĝon.
+
+La iniciato temas pri inkluziva aliro, kun signifaj sekvoj je la nivelo de la internaciaj rilatoj, konfirmante la ĉinan elekton labori por realigi komunan tutmondan administradon, kiu valorigas similecojn prefere ol diferencojn, kiu rekomendas pacon kaj kunlaboron, kiu zorgas pri komunaj interesoj. Elekto tute kongrua kun la ideo pri la homara komunumo de komuna estonteco, pri kiu la pensoj de Xi Jinping vaste disvastiĝis.
+
+El Popola Ĉinio: Ĉu la iniciato motivigas la interkomprenon inter la popoloj ĉina kaj eŭropa?
+
+Mauro Alboresi
+
+: Ni certe estas antaŭ iniciato, kiu instigas kaj akcelas konon kaj komprenon inter diversaj popoloj, inter la ĉinoj kaj la eŭropanoj, inter diversaj jarmilaj historioj kaj kulturoj.
+
+Tio estas absoluta bezono, eĉ kaj ĉefe en nuna tempo, markita de signifaj streĉiĝoj, kiuj, kiel instruas la historio, ofte estas rezulto de malfido devenanta de reciproka nekonado.
+
+El Popola Ĉinio: Kiel vi atendas pri la estonteco de la konstruado de "La Zono kaj Vojo"?
+
+Mauro Alboresi
+
+: La estonteco de la konstruado de "La Zono kaj Vojo", koncerne la Eŭropan Union, precipe Italion, estas forte kondiĉita de la nunaj politikaj procezoj.
+
+Fakte, la komenca pozitiva aliro estis anstataŭigita per aliaj konsideroj, precipe de geopolitika naturo. La ĉefa pensdirekto fariĝis tiu de kritiko de la subskribo de tiu memorando fare de Italio, la unua EU-lando kiu faris tion, substrekante, ke per ĝi la diversaj eŭropaj landoj estis puŝitaj "rigardi orienten", kaj oni konsideris, ke ĝuste pro tio okazis malpliboniĝo de la jam tre longa ligo kun la alia flanko de Atlantiko.
+
+Kune kun la firmiĝo de la eŭroatlantika pakto gvidata de Usono, post tio, ke Joe Biden estis elektita kiel prezidento de Usono,tiu sinteno fortikiĝis, kaj kune kun ĝi akriĝis la kritikoj al Ĉinio, difinita kiel sistema kontraŭulo.
+
+Pli ol unu politika observanto substrekis, ke la subskribo de la memorando kun Ĉinio estis konsiderata heterodokseco, kiu kontribuis al la falo de la registaro de Giuseppe Conte kaj la sekva sukceso de la registaro de Mario Draghi, kiu fariĝis diligenta subtenanto de ĉi tiu pozicio.
+
+Poste, alvenis la registaro de Giorgia Meloni, kiu faris nord-atlantismon kaj eŭropismon kiel sian propran flagon, kaj kiu pri financaj kaj ekonomiaj aferoj tute akceptis "la laborprogramon de Mario Dragi”, do la pridubado de la memorando suferis plian impulson kaj finfine konkretiĝis ĉe la pintkunveno de G20 okazinta en Barato en la lastaj tagoj. Ĉi-okaze, kiel oni scias, la prezidento de la itala Ministra Konsilio, Giorgia Meloni, renkontante la ĉinan ĉefministron Li Qiang, komunikis la decidon de la itala registaro "formeti la Silkan Vojon", konsideratan ne sufiĉe avantaĝa, kaj samtempeŝiinformis lin pri la volo relanĉi la kunlaboran interkonsenton inter la du landoj subskribitan jam en 2004 fare de la Berlusconi-registaro.
+
+Nia opinio pri la temo ne ŝanĝiĝis, ĝi ne ŝanĝiĝas, ni daŭre konsideras, ke "La Zonon kaj Vojon" estas elekto de absolutaj graveco kaj interesoj por la diversaj realoj koncernataj, kaj ni esperas, ke ĝi povos plene sukcesi.
+
+Intervjuita de Chen Ji kaj Pietro Fiocchi
+
+El Popola Chinio
+
+
+---
+
+# Vilhelmo Lutermano: Evoluo de Ĉinio signifas evoluon de ĉiuj triamondaj landoj
+
+**Published:** 2023-10-07
+
+**URL:** http://esperanto.china.org.cn/2023-10/07/content_116728939.htm
+
+**Categories:** Socia Vivo
+
+Vilhelmo Lutermano estas germana esperantisto, kiu aktive tradukas germanan literaturon en Esperanton kaj viglas en la maldekstra Esperanto-movado. Li naskiĝis en 1936 en norda Germanio kaj esperantistiĝis en 1987. Li estas ĉefredaktoro de la Esperanto-versio de Le Monde diplomati-que (http://eo.mondediplo.com). Li delonge loĝas en Kubo kun sia edzino kaj fondis familion en la lando.
+
+Li opinias, ke Kubo estas entute simpatia pro sia principo de socia justeco en la lando mem kaj ankaŭ pro sia internacia solidareco. Lastatempe, pri la kunlaboro inter Kubo kaj Ĉinio kadre de la iniciato "La Zono kaj Vojo", El Popola Ĉinio intervjuis lin.
+
+El Popola Ĉinio: Kia estas la vivo de ordinaraj homoj en Kubo? Ĉu vi iam renkontis ĉinojn laborantajn kaj loĝantajn en Kubo?
+
+Vilhelmo Lutermano
+
+: La situacio de ordinaraj homoj ĉi tie estas tre malfacila kaj eĉ pli graviĝis pro la epidemio de KOVIM-19, kontraǔ kiu Kubo ja tre rapide havis bonajn vakcinojn (mi mem estis tuj vakcinita per la vakcino Soberana). Sed pro la epidemio la turismo, unu el la ĉefaj ekonomiaj pilieroj de la lando, dum jaroj tute nuliĝis, kaj la sekvoj, aldone al la usona blokado, estas serioza reduktiĝo de la vivnivelo al klopodo de simpla transvivado por la ordinaraj homoj.
+
+En Havano ja ekzistas ĉina kvartalo, kun multaj ĉinaj restoracioj – kelkaj kun vere ĉinaj kuiristoj, sed la ĉinoj tie, kiuj parolas la ĉinan, estas tre malmultaj. Ekzistas Konfucea Instituto, kiu instruas la ĉinan, ligitan kun la universitato. Mi mem lernas la ĉinan – memlerne per lernolibroj kaj telefonaj aplikaĵoj, ĉar mi intencas viziti vian landon – la ĉinaj amikoj asertis al mi, ke mi ne bezonas koni la ĉinan, ĉar mi estos ĉiam akompanata de ĉinaj esperantistoj, sed via lingvo mem, ŝarĝita de jarmiloj da kulturo, tre interesas min kaj mi eĉ esploras la eblecon plu lerni ĝin en Ĉinio mem.
+
+El Popola Ĉinio: Vi scias pri la ĉina iniciato "La Zono kaj Vojo". Fakte, kompare kun la komenco, eĉ kompare kun la pasinta jaro, la iniciato multe vastiĝis, kiel vi pensas pri ĝi kaj ĉi tiu ŝanĝo?
+
+Vilhelmo Luterman
+
+o: Okaze ni ankaŭ nomas ĝin Nova Silkovojo. Laŭ mia observo, ĝi sekvas la ĝeneralan principon de ĉinaj eksteraj politiko kaj komerco, nome agi surbaze de reciproka gajno, ne por la elitoj de la koncerna lando, sed por la popoloj. Tiu principo estas komprenata kaj akceptata de ĉiam pli da landoj, pro la intertempe jam videblaj avantaĝoj. Cetere mi vidas similecon ankaŭ kun la principoj de la nune kreskanta BRICS-grupo (Brazilo, Rusio, Hindio, Ĉinio kaj Sud-Afriko), kiu fine de ĉi aŭgusto kunvenis kaj faris gravajn decidojn. Ambaŭ iniciatoj montras prosperigan vojon al la estonteco de la homaro.
+
+El Popola Ĉinio: Nun, kadre de la iniciato "La Zono kaj Vojo", Ĉinio kaj Kubo kunlaboras en biomedicino kaj agrikulturo, kion vi opinias pri tiuj kunlaboroj?
+
+Vilhelmo Lutermano
+
+: Mi havas grandajn esperojn por bonaj reciprokaj rezultoj, ekzemple en biomedicino, ĉar Kubo ja sukcese investis multan energion kaj laboron de multegaj homoj kaj en medicina kaj en biomedicina esplorado. Pri la teknikoj de silkoproduktado per moruso kaj silkraŭpoj, Ĉinio kompreneble havas tre valorajn miljarajn spertojn, kiujn Kubo per tiu projekto povos akiri, sed pri la detaloj mi ankoraŭ devos informiĝi.
+
+El Popola Ĉinio: Kiaj estas viaj atendoj pri la estonta kunlaboro inter Kubo (kaj aliaj landoj najbaraj al Usono) kaj Ĉinio, kaj la interŝanĝoj kaj kunlaboroj inter esperantistoj de ambaŭ flankoj?
+
+Vilhelmo Lutermano
+
+: Mi esperas, ke la amikecaj rilatoj kun Ĉinio baldaŭ kondukos al plibonigo de la ekonomia situacio en Kubo. Tiaj rilatoj absolute necesas por rompi la mortigan usonan blokadon. Feliĉe kromaj najbaraj landoj, ekzemple Honduro, nun ankaŭ iras la amikecan vojon kun Ĉinio. Bonaj rilatoj de ĉiuj ĉi latinamerikaj landoj kun Ĉinio estas antaŭkondiĉo por vere sendependiĝi el la usona politika kaj ekonomia premado.
+
+Kaj estas necese, ke ankaŭ la esperantistoj komprenu tion kaj ke ili energie intervenu en la diskutadon pri la okcidentaj provoj "senriskigi" kaj "diversigi" siajn komercajn rilatojn kun Ĉinio – provoj kiuj vere celas malhelpi la evoluon de Ĉinio kaj kiom eble plej longe konservi la okcidentan (usonan) dominadon. Necesas ke la esperantistoj komprenu, ke la evoluo de Ĉinio signifas evoluon de ĉiuj ceteraj triamondaj landoj, kaj ke ili esprimu tion en Esperanto kaj ankaŭ en siaj propraj naciaj lingvoj. Ili pli ol nun sur ĉiuj kontinentoj fariĝu perantoj de la estonteco.
+
+El Popola Ĉinio: Multaj ĉinaj esperantistoj malmulton scias pri Kubo kaj tiea Esperanto-movado. Ĉu vi povas diskonigi ĝin al ni?
+
+Vilhelmo Lutermano
+
+: Kubo, insularo en la suda proksimeco de Usono, jam de jardekoj suferas krudan usonan blokadon en financo kaj komerco, kiun ankaŭ mi spertas. La vivkondiĉoj pro tio estas kelkfoje tre akre tuŝitaj. Aktuale Kubo, tre dependa de internacia turismo, suferas la mankon de eŭropaj turistoj, ĉar pro la ekonomia krizo en Eŭropo, precipe en Germanio, granda parto de ties turistoj jam ne povas pagi la pli multekostan flugbileton al tiom fora turismejo. La kuba Esperanto-movado estas vigla, tamen ĝia aktiveco draste reduktiĝis dum la KOVIM-19-a periodo, kaj nun iom post iom reakiras sian antaŭan viglecon.
+
+El Popola Ĉinio: Ĉu vi scias pri Esperanto-movado en Ĉinio? Kion vi pensas pri ĉinaj esperantistoj kaj ĝia Esperanto-movado?
+
+Vilhelmo Lutermano
+
+: Mi havas diversajn bonegajn rilatojn kun ĉinaj esperantistoj kaj eldonas iliajn librojn. Mi alte taksas ilian tradukadon de la riĉa klasika literaturo, faritan precipe de Wang Chongfang kaj de Vejdo. Cetere mi pensas, ke ĉinoj, pro la interesaj ecoj de sia propra lingvo, povus ludi gravan rolon por antaŭenigi Esperanton en ties fundamenta senco – do en la senco de la fundamento de Esperanto, per uzado de vortoj el kunmetaĵoj anstataŭ uzi plurmilojn da fremdvortoj, per kiuj la lingvo proksimiĝas al naciaj lingvoj kaj per tio ĉiam pli perdas sian ekzistorajton. Do, miaopinie, ĉinoj povas savi Esperanton per uzado de sia propra vortfarado anstataŭ imiti la eŭrop-centran stilon de fremdvort-emo.
+
+Intervjuita de Chen Ji kaj Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Ĉu vi kredas, ke la jupo pezas nur 50 kilogramojn?
+
+**Published:** 2023-10-07
+
+**URL:** http://esperanto.china.org.cn/2023-10/07/content_116729422.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Ĉu vi kredas, ke la jupo pezas nur je pli ol 50 kilogramoj? La jupo estas uzita en la malferma ceremonio de la Hangzhou-aj Aziaj Ludoj.
+
+Ĝia formo similas al kaj ondo kaj monto. Kun la koloroj, ĝi simbolas klaran akvon kaj belan monton, kio spegulas nian komunan aspiron pri harmonio inter homaro kaj naturo. Inter la krispoj de la jupo estas tridimensiaj pavilionoj kaj arboj. Tiuj ornamaĵoj formas belajn pentraĵojn laŭ la stilo de Song-dinastio (960-1279).
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# Putin: "La Zono kaj Vojo" havas vastan perspektivon
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731230.htm
+
+**Categories:** Socia Vivo
+
+La 5-an de oktobro en Soĉi, Rusio, rusa prezidento Vladimir Putin parolis en la plena kunveno de la jarkunveno de la Internacia Debatklubo Valdai. Li diris, ke la ĉina ekonomio daŭre kreskas kaj Ĉinio restas unu el la gravaj motoroj de la monda ekonomio. La ĉina iniciato "La Zono kaj Vojo" havas vastan perspektivon, kaj Rusio kaj Ĉinio antaŭenigas la efektivigon de la kunlaboro inter la Eŭrazia Ekonomia Unio kaj la iniciato.
+
+Putin emfazis, ke kunlaboro inter Rusio kaj Ĉinio ankoraŭ estas unu el la tre gravaj faktoroj por stabiligi la internacian situacion. Rusio kaj Ĉinio ne starigos malgrandajn grupojn, ambaŭ nur devigite reagas al tio, kio okazas ĉirkaŭ ili.
+
+Krome, Rusio kaj Ĉinio kunlaboras en konstruado de ŝoseoj kaj fervojoj, kaj ankaŭ kunlaboras en la kampo de industrio, kaj ambaŭ flankoj ludas komplementajn rolojn en duflanka komerco.
+
+La klubo Valdai estis fondita en 2004. Ĝi okazigas jarkunvenon ĉiujare kaj estas grava platformo por interŝanĝoj kaj interagoj inter politikistoj kaj akademiuloj de la tuta mondo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ganaa parlamentano: "La Zono kaj Vojo" industriigas Afrikon
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731241.htm
+
+**Categories:** Socia Vivo
+
+Kofi Adams, parlamentano de Oti-regiono de Ganao, diris, ke por afrikaj landoj indas akcepti la ĉinan iniciaton "La Zono kaj Vojo" por rikolti industriajn avantaĝojn el la iniciato.
+
+Adams vizitis Ĉinion en aŭgusto por partopreni trejnan programon organizitan de la ministerio pri komerco de Ĉinio, kaj lia impreso pri la iniciato estis profunda. Alia areo, kiun Adams tuŝis, estas energio, ĉar Ĉinio investas en elektroproduktado por subteni industriigon.
+
+Li diris, ke Ĉinio lanĉis la iniciaton por subteni komercan kaj ekonomian disvolviĝon. Afrikaj landoj komencis evoluigi infrastrukturojn, kiel fervojoj, havenoj kaj flughavenoj, por helpi Afrikon industriiĝi, evoluigi infrastrukturojn kaj komercajn retojn. Li citis la ekzemplon de Ganao, kie Ĉinio investis en la akvelektra centralo Bui, la dua plej granda akvobaraĵo en la lando, kaj iuj projektoj pri sunenergio.
+
+Li diris: "Hodiaŭ, ni havas stabilecon pri energio pro ĉina investo. Kaj ni ĉiuj scias, kion grava energio estas por industriigo. Kaj kiom da landoj eble pretas doni al ni tiom multe por investi en tiaj projektoj kiel Ĉinio faris?"
+
+Li aldonis, ke la industriiĝo de pluraj afrikaj landoj ne estus komenciĝinta sen la subteno de Ĉinio.
+
+Adams substrekis, ke Ĉinio investas ne nur en Ganao. "En Etiopio, vi trovos ilian ĉeeston en fervoja disvolvo, aviado kaj havenoj. Ankaŭ en Kenjo, Angolo kaj multaj aliaj afrikaj landoj, vi trovos ĉeeston de ĉinoj en agadoj, kiuj forte subtenas la industriigon."
+
+Li diris, ke ĉina investo en Afriko donos pli altajn disvolvajn kaj industriigajn rezultojn, se la kontinento direktus kelkajn rimedojn al integriĝo de komerco ene de la Afrika Kontinenta Liberkomerca Areo. Tra la integriĝo, Afriko kreus pli grandan ekonomian povon, kun pli granda MEP kaj pli da ŝancoj por investo kaj komerco.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Artefarita intelekto estas fenestro por observi la ĉinan modernigon
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731256.htm
+
+**Categories:** Socia Vivo
+
+Subtenata de 5G-tekniko, interreto de objektoj, granda datumaro, artefarita intelekto kaj similaj teknikoj, ene kaj ekstere de la konkursejoj de la Hangzhou-aj Aziaj Ludoj, ĉie troviĝas altteknikaj faktoroj, kiuj estigis varman diskutadon en la internacia komunumo.
+
+Por la Aziaj Ludoj oni unuafoje metis la ideon de"artefarita intelekto" en la historio de Aziaj Ludoj. Hangzhou havas la titolon de "urbo de cifereco" en Ĉinio, kaj la provinco Zhejiang, al kiu Hangzhou apartenas, estas pioniro de la ĉina modernigo. Ĝuste en tiu ĉi senco "artefarita intelekto" estas bona fenestro por observi la ĉinan modernigon.
+
+Novkreo estas la unua movforto de la ĉina modernigo, kaj Hangzhou-aj Aziaj Ludoj plenaj de artefarita intelekto estas prezento de la atingoj, kiujn faris Ĉinio en sia kreado. En la pasintaj kvin jaroj la investa forto de la ĉina socia esplorado leviĝis de 2.1% ĝis 2.5%, kaj la kontribua proporcio de scienca progreso estis altigita ĝis 60%. La Raporto pri Tutmonda Kreiv-indico 2023, kiun en la 27a de septembro la Monda Organizo pri Intelekta Proprieto publikigis, montras, ke Ĉinio ĉi-jare restas en la 12a loko, kaj ĝi estas la sola mezenspeza ekonomio en la antaŭaj 30 lokoj.
+
+El la Aziaj Ludoj oni vidas ankaŭ la esencon, t.e. la ĉina modernigo servas nur por la popolo. Zhejiang nuntempe antaŭenpuŝas altkvalitan disvolvadon kaj konstruas ekzemplan regionon de komuna riĉiĝo. La konkursejoj de Hangzhou-aj Aziaj Ludoj estis konstruitaj ne nur en la granda urbo Hangzhou, sed ankaŭ en tiuj malpli grandaj kiel Chun'an kaj Tonglu, kio ebligis al pli multaj homoj sperti kaj partopreni la ludojn.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Laŭlonge de jardeko tiu koncepto havigis al si forton por ŝanĝi la mondon
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731260.htm
+
+**Categories:** Socia Vivo
+
+La ĉina iniciato "La Zono kaj Vojo" estigis investon de preskaŭ duiliono da usonaj dolaroj kaj liberigis kvardek milionojn da mondaj homoj el malriĉeco; kiam la pandemio de KOVIM-19 furiozis tramonde, ĉinaj vakcinoj kaj medicinaj materialoj estis transportitaj al multaj landoj… Ĉio tio okazis ĝuste per la influo de la koncepto homara komunumo de komuna estonteco, proponita de Ĉinio.
+
+En marto 2013, kiam la ĉina prezidanto Xi Jinping faris paroladon en la Moskva Ŝtata Instituto de Internaciaj Rilatoj, li unuafoje parolis pri tiu koncepto. Poste, la koncepto en la sinsekvaj ses jaroj estis enskribita en rezolucioj de la Ĝenerala Asembleo de UN kaj multfoje menciita en rezolucioj kaj deklaracioj de la Ŝanhaja Kunlabora Organizo kaj de plurflankaj mekanismoj kiel BRICS. La koncepto do estas vaste konata kaj subtenata de la internacia komunumo. En la 26a de septembro oni publikigis la blankan libron
+
+Homara komunumo de komuna estonteco: Proponoj kaj agoj de Ĉinio
+
+.
+
+En la koncepto oni substrekas, ke la estontecoj de ĉiu nacio, ĉiu lando kaj ĉiu homo estas kunligitaj; estas rekomendite kune konstrui tian mondon, kie troviĝas konstanta paco, ĝenerala sekureco, komuna prospero, malfermiteco kaj toleremo, pureco kaj beleco; kaj por mastrumi mondajn aferojn, ĉiuj landoj sin engaĝas kaj iĝas partoprenantoj, kontribuantoj kaj profitantoj. Robert Lawrence Kuhn, prezidanto de la Usona Fondaĵo Kuhn, diris, ke tiukoncepto "konformas al la bezono de nia tumultoplena tempo".
+
+Laŭlonge de la lastaj dek jaroj, de la iniciato kune konstrui "La Zonon kaj Vojon" ĝis la Tutmonda Disvolva Iniciato, Tutmonda Sekureca Iniciato kaj Tutmonda Civilizacia Iniciato, Ĉinio ĉiam faris sian plejbonon por la homaro kaj alportis grandegan ŝancon al la mondo. La ĝenerala sekretario de UN António Guterres, diris: "Nia celo praktiki plurflankismon estas ja starigi komunumon de la homaro."
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Skulptaĵoj en grotara templo estas gravaj trezoroj de Ĉinio
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731264.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Konstruita dum la dinastio Norda Wei, la grotara templo Gongyi (Gongxian-grotaro) en la provinco Henan de Ĉinio estis pligrandigita kaj plibeligita de la sekvaj dinastioj Orienta Wei, Okcidenta Wei, Norda Qi, Sui, Tang kaj Song, tiel ke sur ĝiaj muroj troviĝas skulptaĵoj, skribaĵoj kaj pentraĵoj kun arta kaj historia valoro. La skulptaĵoj el malsamaj epokoj rivelas kiel budhisma kulturo, importita el Barato, kunfandiĝis kun tiu de la centra ebenaĵo de Ĉinio, kaj ankaŭ rivelas la transiron de la arta stilo de Norda Wei al tiuj de Sui kaj Tang. Surbaze de tiuj artaĵoj oni ankaŭ povas akiri valorajn informojn pri socia vivo kaj popolaj tradicioj en antikveco. Jen kelkaj interesaj artaĵoj troveblaj en la templo.
+
+Duvizaĝa skulptaĵo: per kovrado de unu okulo oni trovas du malsamajn vizaĝojn, unu ina, alia vira.
+
+Du apsaroj el dinastio Norda Wei ornamas kavernon.
+
+Detalo sur skulptaĵo montras, ke antaŭ pli ol 1 500 jaroj mansakoj jam estis popularaj inter ĉinaj virinoj.
+
+Detalo de la tegmento kaj muroj de groto
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# La grotara templo Gongyi en Henan
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731271.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La grotara templo Gongyi (Gongxian-grotaro) troviĝas en la urbo Gongyi de la provinco Henan de Ĉinio. Ĝi konsistas el pluraj grotoj elfositaj laŭ ordono de la imperia familio de la dinastio Norda Wei kaj estas fondita dum la regado de imperiestro Xiaowen por praktikado de budhismaj ritoj fare de imperiestro kaj imperiestrino de tiu dinastio. La dinastioj Orienta Wei, Okcidenta Wei, Norda Qi, Sui, Tang kaj Song sinsekve elfosis niĉojn sur ĝiaj muroj. Post pli ol 1 500 jaroj de sia fondiĝo, la templo nun havas kvin grotojn, mil niĉojn, tri ĉeklifajn budhojn, 7 743 statuojn de budhoj kaj 186 skribaĵojn.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Eŭropanoj alte takas la koncepton pri konstruado de homara komunumo de komuna estonteco
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731512.htm
+
+**Categories:** Socia Vivo
+
+La jaro 2023 markas la 10an datrevenon de la unua mencio de ĉina prezidanto Xi Jinping pri la koncepto de homara komunumo de komuna estonteco. En la 26a de septembro, la Informa Oficejo de la Ŝtata Konsilantaro de Ĉinio publikigis la blankan libron
+
+Homara komunumo de komuna estonteco: Proponoj kaj agoj de Ĉinio
+
+, kiu amplekse diskonigas pensojn kaj praktikojn de la koncepto por la homaro, celante akceli konon kaj interkomprenon de la internacia komunumo kaj kunigi vastajn konsentojn.
+
+Pri tio multaj eŭropanoj diris, ke en la ŝanĝiĝema mondo, la koncepto kontribuas per la saĝeco kaj perspektivo de Ĉinio al reformado de la tutmonda administra sistemo.
+
+Ĝenerala direktoro de Albana Instituto pri Tutmondiĝaj Studoj, Marsela Musabelliu, diris, ke tutmondiĝa vidkampo kaj transkultura vidpunkto povas akceli inkluzivigon kaj komprenon de la homoj. Fine ni komprenos, kie ajn ni troviĝas kaj de kie ajn ni venas, ni estas samaj, ju pli frue ni komprenos tion, des pli frue la homaro solidariĝos.
+
+Esploristo de Esplorejo pri BRICS-landoj de Itala Roma Ekonomia kaj Socia Instituto, Fabio Massimo Parenti, diris, ke realigo de la koncepto estos urĝa bezono de la homaro, kio estas, egale trakti unu la alian per dialogo, interkompreno kaj malfermeco kaj ĉiam respekti disvolvan vojon de malsamaj civilizacioj.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Bela librovendejo en Nankino!
+
+**Published:** 2023-10-08
+
+**URL:** http://esperanto.china.org.cn/2023-10/08/content_116731579.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La urbo Nankino estas aparte fama pro tio, ke en antikveco homoj el tuta Ĉinio iris tien por la imperiaj ekzamenoj. Por faciligi la studadon de ekzameniĝontoj antaŭ la ekzameno, estis kreitaj ĉambroj por legado, inter ili Junhui-studejo, konstruita specife por la ekzameniĝontoj el Anhui kaj dekoraciita per anhui-stilaj skulptaĵoj sur ligno. Junhui-studejo estis renovigita kaj nuntempe funkcias kiel biblioteko. Multaj homoj vizitas ĝin por admiri ĝian belecon.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Hangzhou-aj Aziaj Ludoj丨Okazis ferma ceremonio de Hangzhou-aj Aziaj Ludoj
+
+**Published:** 2023-10-09
+
+**URL:** http://esperanto.china.org.cn/2023-10/09/content_116732990.htm
+
+**Categories:** Socia Vivo
+
+Vespere de la 8-a de oktobro okazis ferma ceremonio de la Hangzhou-aj Aziaj Ludoj en la urbo Hangzhou de Zhejiang-provinco, orienta Ĉinio. Raja Randhir Singh, aganta prezidanto de la Olimpika Konsilio de Azio (OKA), oficiale deklaris la fermon.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Maŭzoleo de la fondinto de Ming-dinastio en Nankino
+
+**Published:** 2023-10-09
+
+**URL:** http://esperanto.china.org.cn/2023-10/09/content_116733266.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Zhu Yuanzhang (1328-1398) fondis Ming-dinastion (1368-1644) de Ĉinio, fariĝis ĝia unua imperiestro, konata per la nomo Hongwu, kaj elektis Nankinon por esti ĝia ĉefurbo. La imperia maŭzoleo konstruita laŭ lia ordono nun estas enlistigita kiel Monda Heredaĵo de Unesko. La maŭzoleo entenas belan arkitekturan komplekson kun belaj artaĵoj kaj spegulas la kulturon kaj kutimojn de Ming-dinastio.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Bovlo da hibrida rizo oferata al Yuan Longping, "patro de hibrida rizo" de Ĉinio
+
+**Published:** 2023-10-10
+
+**URL:** http://esperanto.china.org.cn/2023-10/10/content_116735521.htm
+
+**Categories:** Socia Vivo
+
+En junio, bovlo da hibrida rizo el Afriko estis metita ĉe la tombo de Yuan Longping, "patro de hibrida rizo" de Ĉinio. La donaco estis alportita de Rakotoson Philibert, iama ĝenerala sekretario de la Ministerio pri Agrikulturo de Madagaskaro.
+
+Lastatempe Philibert diris en intervjuo, ke la hibrida rizo iom post iom helpis Madagaskaron forlasi malsaton, kaj donis esperon al la mondo pri kompleta malaperigo de malsato.
+
+En 2006, en la Pekina Pintkunveno de la Forumo pri Ĉin-Afrika Kunlaboro, Ĉinio promesis starigi 10 agrikulturajn centrojn en Afriko. La centro en Madagaskaro estis elektita de ĉinaj fakuloj sub la gvido de Yuan Longping post analizado pri lokaj kondiĉoj en pli ol 20 afrikaj landoj. Krome, Ĉinio sendis fakulojn al Madagaskaro. Ĝis decembro 2022, la totala areo de ĉina hibrida rizo plantita en Madagaskaro atingis 75 000 hektarojn, kun averaĝa rendimento de ĉirkaŭ 7.5 tunoj de ĉiu hektaro.
+
+Ĉinio daŭre donas teknikan subtenon al afrikaj landoj kaj regionoj, helpante ilin plifortigi agrikulturan povon rilate al hibrida rizo, kio helpas afrikajn landojn redukti malriĉecon.
+
+"Planti hibridan rizon fariĝis grava maniero por afrikaj landoj, inkluzive de Madagaskaro, forigi malriĉecon kaj realigi memsufiĉon." Philibert diris, ke per la iniciato "La Zono kaj Vojo", afrikaj landoj plibonigas siajn agrikulturajn produktokapablojn kaj afrikaj homoj estos liberigitaj el malsato.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Rekorda ŝarĝotransporto tra ŝipkluzo de la digo Tri Gorĝoj
+
+**Published:** 2023-10-10
+
+**URL:** http://esperanto.china.org.cn/2023-10/10/content_116735542.htm
+
+**Categories:** Socia Vivo
+
+La ŝarĝo transportita tra la kanalo tra la ŝipkluzo de la digo Tri Gorĝoj, parto de la plej granda akvoenergia projekto de la mondo, atingis entute 127 milionojn da tunoj en la unuaj tri trimestroj de tiu ĉi jaro, pliiĝo je 10.02 procentoj jare, laŭ datumoj diskonigitaj dimanĉe, la 8-an de oktobro.
+
+Ĉi tio estas la unua fojo, ke la ŝarĝo transportita tra la ŝipkluzo superis 120 milionojn da tunoj dum la unuaj tri trimestroj de la jaroj, laŭ datumoj de la Aŭtoritaro pri Navigado de Tri Gorĝoj. Tra la ŝipkluzo iris 32 000 kargoŝipoj inter januaro kaj septembro ĉi-jare, laŭ la aŭtoritataro. Nur en aŭgusto, la ŝarĝa trairo tra la ŝipkluzo trafis 15.71 milionojn da tunoj,  superante por la unua fojo 15 milionojn da tunoj. La ŝipkluzo estas parto de la projekto Tri Gorĝoj, plurfunkcia akvokontrolsistemo ĉe la rivero Jangzio, la plej longa akvovojo de la lando.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: Xinhua
+
+El Popola Chinio
+
+
+---
+
+# Blanka libro La iniciato "La Zono and Vojo": granda praktiko de la homara komunumo de komuna estonteco
+
+**Published:** 2023-10-10
+
+**URL:** http://esperanto.china.org.cn/2023-10/10/content_116735598.htm
+
+**Categories:** Socia Vivo
+
+La 10-an de oktobro la Informa Oficejo de la Ŝtata Konsilantaro de Ĉinio publikigis blankan libron titolitan
+
+La iniciato "La Zono and Vojo": granda praktiko de la homara komunumo de komuna estonteco
+
+por diskonigi la atingojn akiritajn kadre de la iniciato en la pasinta jardeko kaj helpi la internacian komunumon kompreni ĝin.
+
+Laŭ la blanka libro, en la pasinta jardeko la konstruado de la iniciato ne nur profitigis rilatajn landojn, sed ankaŭ kontribuis al disvolviĝo de monda ekonomio, solvado de problemojn pri monda evoluo kaj perfektigo de monda administrado.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Konsideroj rilate al akuzoj pri "etna subpremado" en Ĉinio
+
+**Published:** 2023-10-12
+
+**URL:** http://esperanto.china.org.cn/2023-10/12/content_116740074.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Socia Vivo
+
+Mi tre ŝatas legi komentojn kaj interŝanĝi ideojn kun miaj legantoj en interreto. Estas aparte interese lerni, kiel ili imagas Ĉinion aŭ kion ili volas scii pri la lando. Ĉijare, post vizito al Xizang (Tibeto), unu leganto proponis al mi la legadon de artikolo kiu asertas, ke la aŭtonomaj regionoj Xizang kaj Xinjiang estas "internaj kolonioj" de Ĉinio. Per tiu vortumo "internaj kolonioj", la aŭtoro volas esprimi, ke la etno Han, la plej multnombra en Ĉinio, subpremas etnajn malplimultojn. La artikolo estas longa kaj konciza, kaj supozeble "pruvas" per oficialaj datumoj de la ĉina registaro, ke hanoj subpremas aliaj etnojn. Ĉu tio veras?
+
+Diverseco estas forto: lernejanoj en Xizang fiere montras desegnaĵon reprezentanta la 56 etnojn de Ĉinio.
+
+La argumentado de la aŭtoro, Chien-peng Chung el Hongkongo de Ĉinio, estas konvinka kaj li bonege uzas retorikon por pravigi sian vidpunkton. Sed sciencon oni ne faras per argumentado, necesas objektive kaj profunde analizi liajn asertojn surbaze de teoriaj aliroj ĝenerale agnoskataj de sociaj sciencoj por konkludi, ĉu liaj argumentoj meritas sciencan agnoskon aŭ estas nur kunigo de informoj zorge elektitaj por pravigi specifan vidpunkton.
+
+Lia unua argumento estas aparte interesa: li listigis la nomojn de region-nivelaj partiaj sekretarioj en Xinjiang kaj Xizang por montri, ke tiun postenon historie okupas ĉefe hanoj: en Xinjiang, nur unu el la pasintaj partiaj sekretarioj, Saifuddin Azizi, estas ujguro, kaj nur li estas el Xinjiang, la aliaj partiaj sekretarioj en Xinjiang estas ĉiuj hanoj, venintaj el Hunan, Jiangxi, Shanxiu, Zhejiang, Shandong kaj Henan. Mi aktualigas la liston: ekde decembro 2021, tiun postenon okupas Ma Xingrui, hano el la provinco Heilongjiang. Por Xizang, Chung listigis 13 partiajn sekretariojn, el kiuj unu estas el la etno Yi, naskiĝinta en la provinco Sichuan, kaj la aliaj estas hanoj el Jiangxi, Shanxi, Hunan, Sichuan, Shandong, Anhui, Liaoning, Jiangsu kaj Henan.
+
+Analizante tiujn listojn, homo, kiu ne konas la ĉinan regadsistemon, surpriziĝas pro tio, ke preskaŭ ĉiuj venas el aliaj lokoj, ĉar en landoj de okcidenta hemisfero plejparto de la provincestroj aŭ provincnivelaj partiestroj estas el la sama provinco, sekve oni tendencas supozi, ke en la tuta mondo funkcias tiel. Sed la ĉina sistemo sekvas alian logikon.
+
+Unue, por ĉiu partia posteno ekzistas unu koresponda registara posteno okupata de alia homo, ambaŭ kadroj laboras kune kaj superrigardas unu la alian, sed elektaj reguloj kaj proceduroj de partio kaj registaro estas malsamaj kaj sendependaj. Laŭ kutimo de la Komunista Partio de Ĉinio, ĝi nomumas partian sekretarion de specifa provinco aŭ aŭtonoma regiono kadron venintan el alia loko, kun la celo redukti la riskon de koruptado: pro manko de personaj rilatoj kun lokanoj, la sekretario espereble ne favoros specifajn homojn kaj traktos ĉiujn homojn en egaleco.
+
+Tio validas por ĉiuj provincoj, municipoj kaj aŭtonomaj regionoj de Ĉinio, sekve, se vi kontrolos la devenon de partiaj sekretarioj de aliaj lokoj de la lando, vi konstatos, ke ankaŭ ili estis venigitaj el aliaj partoj de Ĉinio kaj inter ili oni povas trovi anojn de nacimalplimultoj gvidantaj provincojn kie la vasta plimulto estas hanoj. Prezidanto Xi Jinping, ekzemple, naskiĝis en Pekino kaj havis postenojn en Hebei, Fujian, Zhejiang kaj Ŝanhajo. Li neniam havis postenon en la pekina registaro. Se tiu praktiko kreas "internajn koloniojn" en Ĉinio, do la tuta lando estas "kolonio" de si mem.
+
+Due, provincnivele estas kvar gvidantoj, el kiuj du estas en plenuma potenco, partia sekretario kaj prezidanto de la registaro, kaj du en leĝdona potenco, prezidanto de loka komitato de la Ĉina Popola Politika Interkonsiliĝa Konferenco (ĈPPIK) kaj prezidanto de loka komitato de la Tutlanda Popola Kongreso (TPK). Komence mi supozis, ke estus temporaba tasko trovi informojn pri tiom da homoj, sed poste mi konstatis, ke Vikipedio havas liston kun la nomoj de ĉiuj homoj, kiuj okupis tiujn postenojn, kun ligilo al biografio de ĉiu el ili (krom raraj esceptoj), sekve ajna homo povas facile esplori per si mem la situacion de malsamaj provincoj, municipoj kaj aŭtonomaj regionoj de Ĉinio. Sufiĉas rigardi la nomojn por klare vidi, ke krom la partia sekretario, plejparto de la gvidantoj de Xinjiang ekde 1949 estis ujguroj, kaj en la listo troviĝas ankaŭ aliaj etnoj de Xinjiang, kiel mongola kaj kazaĥa.
+
+La nunaj gvidantoj de Xinjiang estas ĉiuj el Xinjiang, krom la jam menciita partia sekretario Ma Xingrui. La aliaj tri estas la prezidanto de Xinjiang-a Popola Kongreso Zumret Obul (ujguro kaj cetere la unua virino en tiu posteno), la prezidanto de xinjiang-a registaro Erkin Tuniyaz (ujguro), kaj la prezidanto de Xinjiang-a Popola Politika Interkonsiliĝa Konferenco Nurlan Abilmazhinuly (kazaĥo). Mi invitas vin esplori per vi mem, kiuj okupis tiujn postenojn antaŭe, kaj vi konstatoj, ke ujguroj ĉiam estis la plejmulto en xinjiang-a registaro.
+
+Nun ni analizu la situacion en Xizang: la nuna partia sekretario, elektita post la publikigo de la artikolo de Chung, ankaŭ estas hano, Wang Junzheng el Shandong. La prezidanto de Xizang-a Popola Kongreso estas Losang Jamcan (tibetano, naskiĝinta en Xizang), kaj la prezidanto de xizang-a registaro, Yan Jinhai, ankaŭ apartenas al tibeta etno, naskiĝinta en la provinco Qinghai. Xizang-a Popola Politika Interkonsiliĝa Konferenco estas sub la gvido de Pagbalha Geleg Namgyai, konsiderata de Tibeta Budhismo kiel la 11-a enkarniĝo de Pagbalha Hutuktu. Li estas honora prezidanto de Budhisma Asocio de Ĉinio kaj naskiĝis en la tibeta aŭtonoma prefektejo Garzê de la provinco Sichuan. Konsiderante la gravecon de tibeta budhismo por la popolo de Xizang, ne estas surprizo, ke eminenta bonzo estas inter la gvidantoj de loka Popola Politika Interkonsiliĝa Konferenco. Refoje, mi invitas miajn legantojn kontroli la nomojn de pasintaj gvidantoj de Xizang post la paca liberigo de la regiono, por mem konstati, ke lokaj etnoj ĉiam okupis ŝlosilajn postenojn en la loka registaro.
+
+Elektinte nur la partian sekretarion por sia analizo, Chung distordis la veron por subteni ideon, kiu ne kongruas kun la faktoj. Lia longa artikolo prezentas ankoraŭ aliajn argumentojn, kiujn mi analizos en venontaj artikoloj.
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# McDonald's malfermis studangulon en Ĉinio
+
+**Published:** 2023-10-13
+
+**URL:** http://esperanto.china.org.cn/2023-10/13/content_116743948.htm
+
+**Categories:** Socia Vivo
+
+La 21-an de aǔgusto, ekpopulariĝis en la ĉina socia retejo Weibo la diskuto pri studangulo en McDonald's. Por kreii etoson, kelkaj filioj eĉ metis ŝmirtabulojn. Krome, estas alireblaj al konsuamantoj senpagaj akvo, vifio, klimatizilo, necesejo kaj manĝaĵoj kun rabato.
+
+La servo estas en provo de la 28-a de julio ĝis la 28-a de ventonta aprilo. Oni devas antaǔmendi kontraǔ unu juano kaj la servotempo estas inter 14:00-17:00 en ĉiu labortago. La maksimuma mendo estas 2.5 horoj.
+
+La studanguloj estas ŝatataj de partoprenontoj de diversaj ekzamenoj. Nuntempe tiaj studanguloj de bibliotekoj en ĉiuj provincoj kaj urboj estas nesufiĉaj. Oni devas viciĝi duonhoron antaǔ la malfermo de tiuj bibliotekoj. Kaj ĉiuj seĝoj estas okupataj en nur 15 minutoj post la malfermo. Tial la starigo de studanguloj en McDonald's kontentigas la bezonon de multaj homoj.
+
+Iuj retanoj esperas, ke studanguloj estos disvastigitaj tra la lando. Aliaj alvokas, ke KFC kaptu la ŝancon kaj faru saman servon.
+
+Datumoj de la Nacia Buroo de Statistiko de Ĉinio montras, ke en la unuaj ok monatoj de ĉi tiu jaro, la podetala vendsumo de konsumvaroj pliiĝis je 7% kompare kun tiu de la pasinta jaro. Kaj tiu de la servoindustrio pliiĝis je 19.4%, kio estas evidente pli alta ol tiu de varoj. Laŭ raporto de Morgan Stanley, la plej granda ŝanĝiĝo en la konsumado de Ĉinio en la venontaj 10 jaroj estos, ke la MEP kreita de servoj superos tiun de varoj.
+
+Ĉu ankaǔ en via urbo estas tia studangulo? Ĉu vi volas studi tie?
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# Vidindaĵoj por 3a Forumo pri "La Zono kaj Vojo" por Internacia Kunlaboro
+
+**Published:** 2023-10-16
+
+**URL:** http://esperanto.china.org.cn/2023-10/16/content_116749077.htm
+
+**Categories:** Socia Vivo
+
+En la 17a kaj la 18a de oktobro okazos en Pekino la 3a Forumo pri "La Zono kaj Vojo" por Internacia Kunlaboro, ĉirkaŭ la kunvenejo oni aranĝis florornamaĵojn por bonvenigi la forumon kaj diverslandajn invititojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Kial iniciato "La Zono kaj Vojo" akiris realajn atingojn en pasinta jardeko?
+
+**Published:** 2023-10-16
+
+**URL:** http://esperanto.china.org.cn/2023-10/16/content_116749090.htm
+
+**Categories:** Socia Vivo
+
+Antaŭ dek jaroj ĉina prezidanto Xi Jinping proponis la iniciaton pri komuna konstruado de la Silkvoja Ekonomia Zono kaj la Mara Silkvojo de la 21a Jarcento, kiu estas konata ankaŭ kiel la iniciato "La Zono kaj Vojo". Ĝis la fino de junio 2023, pli ol 150 landoj kaj 30 internaciaj organizoj subskribis pli ol 200 kunlaborajn dokumentojn kadre de la iniciato. Pluraj mejloŝtonaj projektoj kiel la ĉin-laosa fervojo, ĝakart-bandunga altrapida fervojo kaj Piraeus-haveno estis finkonstruitaj kaj ekfunkciis sinsekve. La 10an de oktobro Ĉinio publikigis la blankan libron
+
+La iniciato "La Zono and Vojo": Granda praktiko de la homara komunumo de komuna estonteco
+
+.
+
+Disvolviĝo estas la ĝenerala ŝlosilo por solvi problemojn. Ekde la 1990aj jaroj, ekonomia tutmondiĝo rapide disvolviĝis, tamen ekonomia tutmondiĝo sub la gvidado de kelkaj landoj ne povis atingi inkluzivan disvolviĝon. Anstataŭe, ĝi faris la riĉulojn pli riĉaj kaj malriĉulojn pli malriĉaj, kaj la diferenco inter evoluintaj landoj kaj evoluantaj landoj grandiĝis. La monda ekonomio disvolviĝis sub la regado de kelkaj landoj, kaj ekonomiaj reguloj estis ellaboritaj de kelkaj landoj, kaj ili ekskluzive dividis fruktojn de la disvolviĝo.
+
+La iniciato, kiu plenumas la postulojn de homoj pri disvolviĝo, estas por la disvolviĝo de Ĉinio kaj la mondo ambaŭ. Ĉi tiu origina intenco liveras ĉinan solvon al demandoj de tutmonda disvolviĝo, kio ankaŭ estas la plej rekta kialo de ĝia sukceso.
+
+Dum la pasinta jardeko, la iniciato ekscitis la entuziasmon de pli ol 150 landoj al realigo de iliaj revoj. La sukceso de la iniciato ne estas hazarda, ĉar ĝi estas ĥoro de landoj partoprenantaj en la iniciato kaj grava praktika platformo por konstruado de homara komunumo de komuna estonteco.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Ĉina iniciato "La Zono kaj Vojo" turniĝas de vizio al realo
+
+**Published:** 2023-10-16
+
+**URL:** http://esperanto.china.org.cn/2023-10/16/content_116749110.htm
+
+**Categories:** Socia Vivo
+
+Ĉinio proponis la iniciaton "La Zono kaj Vojo" antaŭ 10 jaroj. La lando ĝis junio 2023 subskribis pli ol 200 kunlaborajn interkonsentojn kadre de la iniciato, kun 151 landoj kaj 32 internaciaj organizoj.
+
+La praktiko montras, ke la iniciato jam turniĝis de vizio al realo.
+
+La 17an de oktobro malfermiĝos en Pekino la 3a Forumo pri "La Zono kaj Vojo" por Internacia Kunlaboro. Nun, reprezentantoj el pli ol 140 landoj kaj 30 internaciaj organizoj konfirmis sian partoprenon en la forumo.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Librofoiro Tianfu okazis en Chengdu
+
+**Published:** 2023-10-17
+
+**URL:** http://esperanto.china.org.cn/2023-10/17/content_116752273.htm
+
+**Categories:** Socia Vivo
+
+La 5-a Librofoiro Tianfu, sub la temo "kunlernado per kulturaj interŝanĝoj kun aromo de libroj", sukcese okazis en la urbo Chengdu de Sichuan-provinco de Ĉinio, de la 13-a ĝis la 16-a de oktobro, en la Nova Internacia Konferencejo kaj Eksponejo Jarcenta Urbo (CCNICEC, laŭ anglalingva mallongigo). La librofoiro donis al lokanoj la eblecon konatiĝi kun la plej novaj eldonaĵoj disponeblaj, aĉeti librojn kontraŭ rabatita prezo kaj partopreni diversajn aktivaĵojn, ekzemple farado de tradiciaj ĉinaj manartaĵoj kaj kolektado de specialaj memoraĵoj, kiel stampoj kaj libromarkiloj. Pluraj eldonistoj aranĝis vivelsendajn sesiojn por ebligi al homoj ekster Chengdu informiĝi pri la eldonaĵoj kaj rete aĉeti la librojn kontraŭ rabatita prezo dum la elsendoj.
+
+Deĵoranto prezentas libron al retanoj per vivelsendo en la librofoiro.
+
+Ĉina Internacia Komunika Grupo, al kiu apartenas
+
+El Popola Ĉinio
+
+, partoprenis ĉi-jaran foiron per la eldonejoj Blossom Press, Fremdlingva Eldonejo, China Pictorial Press, Sinolingua, New Star Press and Dolphin Books. Aparte atentokaptaj estis la kvar volumoj de la libro
+
+Xi Jinping: Regado de Ĉinio
+
+.
+
+Ĉi-jaran foiron partoprenis preskaŭ 30 eldongrupojn kaj amaskomunikilojn, kaj ankaŭ pli ol 300 eldonejojn, pli ol 100 firmaojn pri librodistribuado kaj plurajn kulturajn instituciojn. En la foiro estis subskribitaj kontraktoj pri kunlaboraj projektoj kaj eldonado de novaj libroj, inter aliaj aktivaĵoj.
+
+La kvar volumoj de
+
+Xi Jinping: Regado de Ĉinio
+
+, en la budo de Ĉina Internacia Komunika Grupo
+
+Inter la invititaj gastoj de ĉijara librofoiro estas la usona aŭtoro kaj tradukisto Bill Porter, kiu delonge publikigas anglalingvajn librojn pri la ĉina kulturo kaj tradukojn de ĉinaj verkoj sub la nome
+
+Ruĝa Pinarbo
+
+. Naskiĝinta en 1943 en Van Nuys, Kalifornio, Bill kreskis en Idaho, servis en la usona armeo inter 1964 kaj 1967 kaj sekve diplomiĝis en la prestiĝa Kolumbia Universitato, en Novjorko. Dum siaj novjorkaj jaroj, Bill ekinteresiĝis pri budhismo, kaj en 1972 li iris al Taiwan de Ĉinio por eklerni en bonzejo. Post tri jaroj vivanta inter bonzoj kaj bonzinoj, li ekvivtenis sin de anglalingva instruado kaj ĵurnalisma laboro por anglalingvaj radiostacioj de Taiwan kaj Hongkongo de Ĉinio. Post pli ol tri jardekoj en Ĉinio, en 1993 li revenis al Usono, kaj ekde tiam laboras kiel sendependa aŭtoro pri la ĉina kulturo kaj tradukisto de budhismaj verkoj kaj ĉinaj poemoj, ricevinte multajn premiojn pro siaj libroj. Dum ĉi-foja vizito al Chengdu, Bill subskribis interkonsenton kun ĉina eldonejo por verki libron pri la poeto Su Shi (1037-1101), ankaŭ konata kiel Su Dongpo, kiu estis la plej grava poeto de Song-dinastio.
+
+Alia aparte menciinda afero estas, ke bildo kun la skribaĵo "Tianfu Book Fair" estis aperigita sur ekranego ĉe novjorka Times Square, kie poste homoj dufoje spektis vivajn elsendojn rekte el Chengdu. Ĉi-jara foiro substrekis sian internaciecon kaj por la unua fojo havis la internacian pavilionon en la ĉefa halo de la eksponejo. Ankaŭ estis aranĝitaj branĉaj eksponejoj en aliaj landoj, inkluzive de Germanio, Francio kaj Aŭstralio, por diskonigi eksterlande la altnivelajn atingojn de sichuan-a eldona sektoro kaj montri la laboron faratan de la provinca registaro por plivigligi la kulturan vivon de la provinco.
+
+Bill Porter subskribas interkonsenton kun eldonejo por publikigi libron pri la poeto Su Shi.
+
+Kunlernado kaj kulturaj interŝanĝoj laŭlonge de historio havis grandan efikon sur la evoluo de homaj civilizoj. Inter tiuj interŝanĝoj estas la Kvar Grandaj Ĉinaj Inventaĵoj, papero, presado, pulvo kaj kompaso, el kiuj la unuaj du estas esencaj por libroeldonado. Kiel iloj por interŝanĝo kaj diskonigo, libroj ĉiam alportis kaj plu alportos gravan rolon en la konstruado de homara komunumo de komuna estonteco kaj globa civilizacio.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Spertado de ĉinaj manartaĵoj en forumo de "La Zono kaj Vojo"
+
+**Published:** 2023-10-25
+
+**URL:** http://esperanto.china.org.cn/2023-10/25/content_116772484.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Pasintsemajne okazis en Pekino la 3-a Forumo de "La Zono kaj Vojo" por Internacia Kunlaboro. Homoj el malsamaj sociaj rondoj ĉeestis la forumon por diskuti la fruktojn de la iniciato dum la lastaj dek jaroj kaj ĝiajn perspektivojn por la estonteco. Ĉinio kaptis la ŝancon por diskonigi tradiciajn manartaĵojn, kiuj estas nemateriaj heredaĵoj de Ĉinio, kaj donis ŝancon al homoj de la tuta mondo sperti ilin. Ĉinoj kaj alilandanoj ŝatis la sperton.
+
+Majstro pri kudrado de ornamaĵoj por tradicia ĉina vestaĵo instruas la teknikon.
+
+Pentrado de maskoj de la Pekina Opero estis aktivaĵo ŝatata de eksterlandanoj, kiuj lernis pri ilia signifo.
+
+Kelkaj verkoj faritaj per la teknino de ĉina ĉelemajlo
+
+Ĉinio estas konata pro sia porcelano, kiu tra la antikva Silka Vojo fariĝis konata en la tuta mondo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Scenoj de la forumo de "La Zono kaj Vojo"
+
+**Published:** 2023-10-25
+
+**URL:** http://esperanto.china.org.cn/2023-10/25/content_116772504.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 17-an kaj 18-an de oktobro okazis en Pekino la 3-a Forumo de "La Zono kaj Vojo" por Internacia Kunlaboro, kun partopreno de homoj el malsamaj sociaj rondoj de la tuta mondo. Jen kelkaj fotoj, kiuj montras detalojn de homa interagado kaj rutino dum la forumo.
+
+Homoj disdonas librojn al la partoprenantoj de la forumo.
+
+Dum libera tempo, homoj amuziĝis per virtuala promenado tra la Nacia Stadiono kaj aliaj lokoj de Pekino.
+
+Ĵurnalistoj priatentas la paroladon de ĉina prezidanto Xi Jinping dum la inaŭguro de la forumo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Shenzhou-17 sukcese lanĉita
+
+**Published:** 2023-10-26
+
+**URL:** http://esperanto.china.org.cn/2023-10/26/content_116776465.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Je 11:14 de la 26-a de oktobro, la ĉina kunhoma spacveturilo Shenzhou-17 estis sukcese lanĉita per la raketo Changzheng-2F el Jiuquan-a Satelita Lanĉ-centro en nordokcidenta Ĉinio. Post 10 minutoj, la raketo disiĝis de Shenzhou-17 kaj la spacveturilo eniĝis en difinitan orbiton. Ĉinaj astronaŭtoj restas en bona stato.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Finiĝis ornamado al la eksponejo de la 6-a Ĉina Internacia Importa Ekspozicio
+
+**Published:** 2023-10-30
+
+**URL:** http://esperanto.china.org.cn/2023-10/30/content_116782886.htm
+
+**Categories:** Socia Vivo
+
+La 6-a Ĉina Internacia Importa Ekspozicio okazos en la nacia ekspona centro de Ŝanhajo. Por bonvenigi la grandan eventon oni ornamis la sudan placon de la eksponejo. Laŭ la temoj de nubaro, flormaro, rivero kaj moderna florĝardena urbo, per freŝaj florojn oni ornamas la zonon de 10 500 kvadrataj metroj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Fermiĝis Aziaj Paraludoj en Hangzhou
+
+**Published:** 2023-10-30
+
+**URL:** http://esperanto.china.org.cn/2023-10/30/content_116782893.htm
+
+**Categories:** Socia Vivo
+
+Okazis ferma ceremonio de la 4-a Aziaj Paraludoj en Hangzhou la 28-an de oktobro. Prezidanto de Azia Paralimpika Komitato, Majida Rashed, deklaris la fermon de la sportkunveno.
+
+En la unusemajna sportkunveno, sportistoj gajnis sume 502 orajn medalojn, rompis mondajn rekordojn 21-foje, aziajn rekordojn 72-foje kaj rekordojn de aziaj paraludoj 283-foje. Laŭ statistiko, 439 sportistoj de la ĉina delegacio partoprenis en 390 konkursoj, akiris 214 orajn medalojn, 167 arĝentajn medalojn kaj 140 bronzajn medalojn, rompis 13 mondajn rekordojn kaj 35 aziajn rekordojn.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Malferma ceremonio de Xiangshan-forumo okazis en Pekino
+
+**Published:** 2023-10-31
+
+**URL:** http://esperanto.china.org.cn/2023-10/31/content_116785570.htm
+
+**Categories:** Socia Vivo
+
+La 30-an de oktobro okazis en Pekino, Ĉinio, malferma ceremonio de la 10-a Pekina Xiangshan-forumo. Zhang Youxia, vicprezidanto de la Centra Milita Komisiono de Ĉinio, faris la ĉefparolon en la ceremonio.
+
+Post la ceremonio, okazis la unua plena sesio de la forumo, sub la temo "respondeco de grandaj landoj kaj kunlaboro pri tutmonda sekureco".
+
+La forumo daŭras de la 29-a ĝis la 31-a de oktobro en la Pekina Internacia Konferenca Centro.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Akvoregado en la kampuso de Tsinghua-universitato
+
+**Published:** 2023-11-01
+
+**URL:** http://esperanto.china.org.cn/2023-11/01/content_116787815.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+En la kampuso de Tsinghua-universitato en Pekino, estas granda konsumado de akvo. Por saĝe uzi la akvorimedojn kaj igi la kampuson pli daŭripova, la universitato disvolvis plurajn interesajn programojn, inter ili estas la reuzo de akvo. La universitato kolektas akvon uzitan por aktivaĵoj kiel manpurigado kaj lavado de vestaĵoj kaj purigas ĝin per sistemo disvolvita en la universitato mem. Post la puriga procezo, la akvo estas uzata por akvumi plantojn, purigado de plankoj, interalie.
+
+Akvopurigejo en la kampuso de la universitato
+
+Purigita akvo eliras la akvopurigejon de la kampuso.
+
+La tuta procezo de akvouzo en la kampuso estas monitorata de fakuloj.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ni atendas en la 6-a Ĉina Internacia Importa Ekspozicio
+
+**Published:** 2023-11-03
+
+**URL:** http://esperanto.china.org.cn/2023-11/03/content_116787810.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Baldaŭ okazos la 6-a Ĉina Internacia Importa Ekspozicio en Ŝanhajo, orienta Ĉinio, la pavilonoj de la granda ekspozicio jam pretas por en- kaj eksterlandaj invititoj.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Fama sunhorloĝo de Tsinghua-universitato
+
+**Published:** 2023-11-03
+
+**URL:** http://esperanto.china.org.cn/2023-11/03/content_116787823.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Semajnfine multaj turistoj enviciĝas por viziti la kampuson de Tsinghua-universitato en Pekino. Inter la plej famaj vidindaĵoj estas antikva sunhorloĝo donacita de diplomiĝintoj en 1920 por faciligi studentojn kontroli la horon kaj memori, ke ĉiu sekundo de homa vivo estas valora. Sur ĝia bazo estas skribite en la ĉina kaj la latina lingvoj la frazo "Agoj pli valoras ol vortoj".
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Surklifa vendejo en ĉina pitoreskejo!
+
+**Published:** 2023-11-06
+
+**URL:** http://esperanto.china.org.cn/2023-11/06/content_116792794.htm
+
+**Categories:** Socia Vivo
+
+Dum montogrimpado, vi subite sentas soifon aŭ malsaton. Ĉu ne estus konvene havi vendejon proksime? Por grimpantoj en la pitoreskejo Shiniuzhai en la provinco Hunan de Ĉinio, tio eblas!
+
+La pitoreskejo estas fama pro siaj klifoj, kanjonoj kaj rokoj, kaj ankaŭ havas unu el la plej longaj kaj altaj vitraj pontoj en la mondo. Laŭ Song Huizhou, administranto de la pitoreskejo, la vendejo havas areon de 2 kvadrataj metroj kaj estas konstruita sur klifo alta je 120 metroj super la grund-nivelo.
+
+Ĉar plejparto de la grimpantoj en tiu pitoreskejo estas amatoroj, ili ofte sentas malsaton aŭ soifon dumvoje, sekve la administrantoj de la parko havis la ideon estigi tiun vendejon, kiu estis konstruita en 2017 kaj malfermiĝis la sekvan jaron. Grimpantoj kutime bezonas unu horon kaj duonon por atingi la pinton. La transportado de trinkaĵoj kaj manĝaĵoj al la vendejo estas farata ĉiutage de laboristoj mem. Malgraŭ tiu malfacilo, la prezoj estas similaj al tiuj de aliaj vendejoj, kaj ĉiu grimpanto rajtas senpage ricevi unu akvobotelon.
+
+La vendejo kaptis grandan atenton en sociaj retejoj. Kelkaj retanoj ŝerce deklaris ĝin "la plej malkonvena vendejo", dum aliaj taksis ĝin aminda kaj esprimis la emon labori en simila loko. Song deklaris, ke la populareco de la vendejo en interreto allogis vizitantojn el pluraj lokoj al la pitoreskejo. Kvankam nuna nombro da vizitantoj estas ankoraŭ malpli alta ol tiu antaŭ la pandemio, li plenfidas, ke baldaŭ la situacio pliboniĝos. La vendejo restas malfermita de la 8-a matene ĝis la 5-a posttagmeze. Sekureco estas alte taksata, kaj funkciulo ofte faras bontenadon kaj kontrolas la strukturon de la vendejo.
+
+Hui Ping, amatora grimpanto, aĉetumis en la vendejo fine de septembro. Ŝi ne volas grimpi la monton kun peza valizo, sed sentas soifon kaj malsaton dumvoje, do la vendejo estas tre oportuna. "Tiu vendejo estas tiom interesa, oni ne trovas tian vendejon en la ĉiutaga vivo. Mi certe rekomendos al miaj amikoj veni ĉi tien por grimpado, ĝi estas defia kaj alportas iom da memfiero."
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: China Daily
+
+El Popola Chinio
+
+
+---
+
+# Aŭtunaj folioj beligas parkojn de Pekino
+
+**Published:** 2023-11-07
+
+**URL:** http://esperanto.china.org.cn/2023-11/07/content_116796969.htm
+
+**Categories:** Socia Vivo
+
+La temperaturo malaltiĝas en Pekino, parkoj tra la urbo pleniĝas de koloraj folioj, kreante spektaklon por vizitantoj. Koloro de folioj varias de la ordinare verda ĝis flava kaj ruĝa.
+
+Redaktis: Rafael Henrique Zerbetto
+
+Fonto: Global Times
+
+El Popola Chinio
+
+
+---
+
+# La rolo de universitatoj en daŭripova evoluigo
+
+**Published:** 2023-11-08
+
+**URL:** http://esperanto.china.org.cn/2023-11/08/content_116796978.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Socia Vivo
+
+La jaro 2030 alproksimiĝas, estas pli kaj pli klare, ke multaj landoj ne sukcesos plenumi la Celojn por Daŭripova Evoluigo (CDE) de UN. Tiuj 17 celoj rilatas al mediprotektado, socia kaj ekonomia disvolvado kaj plibonigo de internacia politika kunordigo.
+
+Kiel institucioj kun la misioj eduki homojn, antaŭenigi sciencan esploradon kaj servi la socion, universitatoj devas ludi ŝlosilan rolon en la konstruado de daŭripova estonteco, sed kion ekzakte ili devas fari? Por diskuti la nunan situacion kaj la perspektivoj por la estonteco de Edukado por Daŭripova Evoluigo, la Instituto pri Edukado de Tsinghua-universitato en Pekino organizis la ĉi-jaran forumon "Supera Edukado por Daŭripova Evoluigo: Mondaj Perspektivoj kaj Praktikoj" en la 28-a kaj 29-a de oktobro.
+
+Tsinghua-universitato disvolvas plurajn praktikojn kadre de daŭripova evoluigo, interalie la celoj igi siajn kampusojn mediamikaj kaj kun nula karbonemisiado. Joseph Smith, doktoriĝonto ĉe Ŝtata Universitato de Ohio en Usono, estis unu el la prelegantoj de la forumo kaj prezentis sian esploron en la kampo de spongecaj urboj. Kun la celo preventi inundon, li esploras konstruadon de akvosorbaj ĝardenoj en ŝlosilaj lokoj, por ke la grundo sorbu la akvon. Por pliefikigi la sorbadon, oni povas uzi specifajn teknikojn, materialojn kaj plantojn. Li entuziasmiĝis pri tio, ke en la kampuso de Tsinghua-universitato ekzistas tiaj ĝardenoj, konstruitaj laŭ tekniko disvolviĝinta de la universitato mem.
+
+Tsinghua-universitato ankaŭ havas eksperimentajn lernejojn, kie ĝi enkondukas instruadon por infanoj kaj adoleskantoj. En tiuj lernejoj, ne nur estas instruado pri daŭripova evoluigo, sed ankaŭ studentoj partoprenas en plurfakaj projektoj, per kiuj ili mem disvolvas daŭripovajn solvojn por konkretaj problemoj. Ekzemple, Tsinghua celas atingi nul-karbonemisiadon en ĉiuj kampusoj, inkluzive de tiuj de lernejoj. Lernejanoj sukcesis kalkuli la karbonemisiadon de la lernejo kaj nun antaŭenigas projektojn por malaltigi ĝin. Pro manko de areo por verdigi la lernejoj, studentoj proponis estigon de arbaro aliloke por kompensi la karbonemisiadon, kaj ĉiujare la lernejo sendas studentojn planti arbojn ĉe la dezerto Kubuqi en la Interna Mongolio, kie la registaro antaŭenigas projekton pri reverdigo de la areo.
+
+Kukumo kreskas en mezlernejo de Tsinghua-universitato.
+
+Matene de la unua tago de la forumo, estis prezentataj konsideroj pri adapto de lernobjektoj, instrumetodoj, scienca esplorado ktp al la nunaj bezonoj de la homaro, celante igi edukadon ilo por krei harmonion inter homoj kaj naturo kaj antaŭenigi daŭripovan estontecon.
+
+Posttagmeze, la debato estis pli faka, pri la rolo de pintnivelaj universitatoj en daŭripova evoluigo. Profesoroj el prestiĝas universitatoj de diversaj landoj prezentis interesajn ekzemplojn kaj konsiderojn pri laboro de universitatoj en antaŭenigo de daŭripova evoluigo.
+
+Matene de la dua tago, la temo estis novigo kaj daŭripoveco, fokusanta pri edukado de inĝenieroj, ĉar scienc-teknika kaj inĝenieria novigoj estas esencaj por estigo de daŭripova estonteco. Estis konsideroj kaj interŝanĝoj pri edukaj konceptoj kaj novigoj, kiuj entenas la principon de daŭripova evoluigo kaj ilia apliko sur inĝenieria instruado.
+
+Podia diskuto pri junularo kaj daŭripova evoluigo
+
+La lasta temo traktita en la forumo estis la perpektivoj kaj agadoj de la junularo por antaŭenigo de Edukado por Daŭripova Evoluigo. La estonteco apartenas al la junularo, kiu ankaŭ estas motoro por antaŭenigo de CDE. Per diskutado pri la rolo de la junularo en akademia medio kaj praktikaj agadoj de junaj esploristoj, la forumo finiĝis per podia diskuto kun junaj fakuloj el malsamaj universitatoj kaj rondoj.
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Tipaj produktoj por ĈIIE de Tanzanio, lando de venontjara UK!
+
+**Published:** 2023-11-09
+
+**URL:** http://esperanto.china.org.cn/2023-11/09/content_116802665.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+En 2024 Tanzanio gastigos la unuan afrikan Universalan Kongreson de UEA, kaj multaj samideanoj entuziasmiĝas pri tio, sed... Kia estas tanzania kulturo? Kiajn produktojn Tanzanio produktas kaj eksportas?
+
+El Popola Ĉinio
+
+vizitis la budon de Tanzanio en la 6-a Ĉina Internacia Importa Ekspozicio (ĈIIE) por prezenti al vi ĝiajn tipajn produktojn.
+
+1. Lignaj manartaĵoj:
+
+Tanzanio produktas belajn manartaĵojn el ligno, kiuj spegulas la kulturon de la lando. Inter la manartaĵoj troveblaj en ĈIIE estas statuetoj de bestoj en la lando, folkloraj maskoj kaj aparatoj por ĉiutaga uzo, kiel ujoj kaj teleroj. Tiuj produktoj povas esti unukoloraj, sed kutime ili estas plurkoloraj, kun granda kontrasto inter ili.
+
+2. Sandaloj:
+
+Tanzaniaj sandaloj faritaj el ledo aspektas bonkvalitaj. Estas granda diverseco de desegnoj kaj ornamaĵoj, kapablaj kontentigi postulojn de klientoj kun tre malsamaj gustoj. Survoje al Tanzanio por UK, vi ne bezonas paki vian sandalojn, ĉar vi certe volos aĉeti novajn surloke kaj porti ilin al via lando.
+
+3. Ornamaĵoj por via korpo kaj por via ŝlosilo:
+
+En ĉi-jara ĈIIE, Tanzanio eksponas ringojn el arĝento kaj buntajn brakringojn, bonaj por uzo de virinoj. Kaj kial ne aĉeti ornamaĵon ankaŭ por via ŝlosilo? Turisto en Tanzanio povas aĉeti belajn ŝlosilingojn kun bildoj de afrikaj bestoj aŭ kun la bildoj kiuj spegulas kulturajn trajtojn de la lando.
+
+4. Spicaĵoj:
+
+Tanzanio produktas plurajn spicaĵojn por bongustigi la manĝaĵon kiun vi kuiras, kiel ekzemple kareo, ruĝa kareo, koriandro, pipro kaj safrano. Supozeble tiuj spicaĵoj estas uzataj ankaŭ en loka kuirarto, do vi jam povas imagi la guston de tanzania manĝaĵo.
+
+5. Nuksoj, faboj, sezamo, sekigitaj fruktoj kaj ŝnuroj:
+
+Divers-specaj nuksoj estas eksponataj en la budo de Tanzanio, kune kun sekigitaj fruktoj (mango kaj ananaso), sezamo kaj faboj. Ŝnuroj metitaj apud tiuj produktoj aspektas bonkvalitaj.
+
+6. Kafo kaj teo:
+
+Kafo originas de Etiopio, lando najbara al Tanzanio, do ne estas surprizo konstati, ke la lando havas bonan klimaton por produktado de kafo, sed ni surprize konstatis, ke ankaŭ teo, originita en Ĉinio, bone adaptiĝis al la klimato de Tanzanio kaj la lando nun eksportas ĝin. Krom la abundo de markoj, tiuj produktoj estas disponeblaj en pluraj aromoj kaj gustoj.
+
+Imagu homojn dancantajn kun la maskoj montritaj en tiu ĉi artikolo dum kultura prezentado en la solena malfermo de venontjara UK! Imagu la aromon kaj guston de tanzaniaj tradiciaj pladoj en la kongresa banketo. Laste, sed ne balaste, imagu la belajn turismejojn kaj la unikajn trajtojn de tanzania kulturo. Ĉu vi nun sentas sin pli entuziasma por partopreni en venontjara UK? Do tuj aliĝu al la kongreso kaj ni espereble renkontiĝos venontjare en Tanzanio! Ĝis!
+
+Raportis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Ĉinio publikigis blankan libron pri politikoj pri administrado de Xizang en nova epoko
+
+**Published:** 2023-11-10
+
+**URL:** http://esperanto.china.org.cn/2023-11/10/content_116807858.htm
+
+**Categories:** Socia Vivo
+
+La 10-an de novembro en gazetara konferenco la Informa Oficejo de la Ŝtata Konsilantaro de Ĉinio publikigis blankan libron titolitan "Politikoj de la Komunista Partio de Ĉinio (KPĈ) pri Administrado de Xizang en Nova Epoko: Praktiko kaj Atingoj".
+
+La blanka libro atentigas, ke la politikoj de KPĈ por administrado en Xizang en la nova epoko baziĝas sur la praktikado de socialismo kun ĉinaj trajtoj kaj rilataj laboroj surlokaj, profunde malkaŝas la regulojn de xizang-aj laboroj, kaj respondas seriajn demandojn pri direkto, situacio kaj strategio. Ĝi estas la resumo kaj novigo de la spertoj pri administrado de Xizang.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Komerco de artaj verkoj en 6-a ĈIIE
+
+**Published:** 2023-11-10
+
+**URL:** http://esperanto.china.org.cn/2023-11/10/content_116807935.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La merkato pri artaj verkoj en Ĉinio disvolviĝas jaron post jaro, kaj la nombro de ĉinaj aĉetantoj de artaĵoj daŭre kreskas. Pro tio, en la 4-a ĈIIE estis kreita la sektoro de komerco de servoj, specifa areo por muzeoj, artgalerioj kaj aŭkciantoj de artaĵoj. La sukceso de tiu sektoro daŭris pasintjare kaj ĉi-jare montriĝas eĉ pli vigla. Tio donas al komercistoj pri artaĵoj ŝancon fari negocojn en Ĉinio, kaj al vizitantoj la ŝancon vidi majstroverkojn de artistoj el la tuta mondo. Jen kelkaj artaĵoj eksponataj en ĉi-jara ĈIIE.
+
+Femme à l'ombrelle Verte
+
+, pentraĵo de Henri Matisse farita en 1919
+
+Glacons, Environs de Bennecourt
+
+, pentraĵo de Claude Monet farita en 1893
+
+Bloodline - Big Family No. 2
+
+, pentraĵo de Zhang Xiaogang farita en 2001
+
+Lievre 1
+
+, bronza statuo de leporo, verkita de François-Xavier Lalanne en 1998
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Irina Bokova: Ni bezonas diversecan "interretan Silkan Vojon"
+
+**Published:** 2023-11-14
+
+**URL:** http://esperanto.china.org.cn/2023-11/14/content_116812604.htm
+
+**Categories:** Socia Vivo
+
+La 9-an de novembro en Wuzhen-urbeto okazis Forumo pri Reta Komunikado kaj Reciproka Lernado de Civilizacioj de la Monda Interreta Konferenco 2023. Irina Bokova, iama ĝenerala direktoro de Unesko, diris en sia parolo, ke la hodiaŭa cifereca revolucio devas esti inkluziviga kaj daŭripova. Anstataŭ apartigi, ĝi devas alproksimigi nin pli ol iam ajn antaŭe. Necesas konstrui pontojn por kulturaj interŝanĝoj anstataŭ profundigi fremdecon.
+
+Bokova diris, ke oni devas eviti plifortigi ekzistantajn antaŭjuĝojn sur ciferecaj platformoj. Nun, valoroj kiel moraleco, solidareco, empatio, respekto al aliaj kaj konscio pri tio, ke homoj devas alfronti komunajn defiojn kaj komunan destinon, estas gravegaj por la homa socio. La tutmonda civilizacia iniciato proponita de ĉina prezidanto Xi Jinping denove pruvas la vidpovon kaj gvidan rolon de Ĉinio en antaŭenigo de dialogo inter civilizacioj, subteno al kultura diverseco kaj konstruado de harmonia mondo. Ĉi tiu iniciato fariĝos "nova Silka Vojo" en la interreto.
+
+Bokova diris: "Laŭ la iniciato, ni povas antaŭenigi kulturan diversecon, inkluzive de komunikado per malsamaj lingvoj, kunhavigi sciojn kaj transkulturajn spertojn, kaj antaŭenigi kunlaboron kaj interŝanĝon de ideoj. Se ni povas akcepti kaj rekoni kulturan diversecon, ni do povos respekti kaj kompreni unu la alian, kiam ni uzas amaskomunikilojn kaj komunikajn teknikojn, kaj tio estas ege grava en nia delikata mondo."
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Jeffrey D. Sachs: Nur kunlaboro povas komune sukcesigi Usonon kaj Ĉinion
+
+**Published:** 2023-11-15
+
+**URL:** http://esperanto.china.org.cn/2023-11/15/content_116812594.htm
+
+**Categories:** Socia Vivo
+
+Jeffrey Sachs, konata usona ekonomikisto kaj direktoro de la Centro por Daŭripova Evoluigo en Kolumbia Universitato, diris en intervjuo, ke la rilatoj inter Usono kaj Ĉinio montris signojn de plibonigo lastatempe, kaj li esperas, ke la usona registaro eliros el la malĝusta vojo kaj vere turnos al normala diplomatio kun Ĉinio. La kunlaboro inter Usono kaj Ĉinio estas gravega, kaj ne ekzistas alia maniero ol kunlaboro, per kio la du landoj povos atingi sukceson kune.
+
+Sachs delonge servas kiel speciala konsilisto de la ĝenerala sekretario de Unuiĝintaj Nacioj. Li nun estas la estro pri interretaj aferoj por daŭripova evoluigo de Unuiĝintaj Nacioj (UN) kaj altranga konsilisto de UN. Laŭ Sachs, Usono kaj Ĉinio povas kunlabori por solvi geopolitikajn krizojn, antaŭenigi ekonomian disvolviĝon en subevoluiĝintaj regionoj kaj reagi al tutmonda klimatŝanĝiĝo. Kunlaboro inter Usono kaj Ĉinio multe antaŭenigos klopodojn por trakti tutmondajn defiojn kaj utilos por konservi mondan pacon, kontraŭbatali tutmondan malriĉecon kaj realigi daŭripovan evoluigon.
+
+Sachs malkaŝe diris, ke la ekonomia sukceso de Ĉinio estas utila por Usono kaj la mondo. Ĉinio povas fari signifan kontribuon por trakti tutmondajn problemojn kiel klimatŝanĝiĝo, ĉar la lando posedas multajn ŝlosilajn verdajn teknikojn, kiuj estas absolute necesaj por trakti klimatŝanĝiĝon. Ĉinio ankaŭ povas fari signifajn kontribuojn al la ekonomia disvolviĝo de evoluantaj landoj. "Prospera Ĉinio signifas pli da teknikoj, pli da negocoj kaj pli da ŝancoj."
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping atingis San-Franciskon por ĉeesti ĉin-usonan pintkunvenon kaj kunvenon de APEK
+
+**Published:** 2023-11-15
+
+**URL:** http://esperanto.china.org.cn/2023-11/15/content_116817012.htm
+
+**Categories:** Socia Vivo
+
+Posttagmeze de la 15-a de novembroĉina prezidanto Xi Jinping atingis la usonan urbon San-Francisko per speciala aviadilo, tie li ĉeestos la ĉin-usonan pintkunvenon laŭ invito de usona prezidento Joe Biden kaj la 30-an Kunvenon de Ekonomiaj Gvidantoj de Azi-Pacifika Ekonomia Kunlaboro (APEK).
+
+Kiam Xi Jinping atingis la internacian flughavenon de San-Francisko, li estis varme bonvenigita de kalifornia ŝtatestro Gavin Newsom, usona financa ministro Janet Yellen kaj aliaj usonaj altrangaj oficialuloj.
+
+Multaj reprezentantoj de lokaj ĉinoj, transmaraj ĉinoj kaj tieaj ĉinaj studentoj atendis laŭlonge de la vojo de la flughaveno al la hotelo, svingante la naciajn flagojn de Ĉinio kaj Usono por varme bonvenigi la alvenon de prezidanto Xi Jinping.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# En ĈIIE, Brazilo kaj Ĉinio celebris 50-jariĝon de komercaj rilatoj
+
+**Published:** 2023-11-16
+
+**URL:** http://esperanto.china.org.cn/2023-11/16/content_116819573.htm
+
+**Categories:** Socia Vivo
+
+La komercaj rilatoj inter Brazilo kaj nova Ĉinio komenciĝis en 1973, kiam unuafoje ŝipo de la brazila minkompanio Vale transportanta ferercon ekiris de Brazilo al Ĉinio. Tio estis la komenco de longa partnereco, kiu kontribuis por la disvolvado de ambaŭ landoj, alproksimigis ambaŭ popolojn kaj faciligis la estigon de diplomatiaj rilatoj inter Brazilo kaj Ĉinio en 1974. Laŭlonge de tiuj 50 jaroj, Vale kaj Ĉinio kreskis kune, kaj por rakonti tiun historion, ĝi alportis tempotunelon al sia budo en ĉi-jara ĈIIE.
+
+Raportis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Renkontiĝis ĉina kaj usona ŝtatestroj
+
+**Published:** 2023-11-16
+
+**URL:** http://esperanto.china.org.cn/2023-11/16/content_116819585.htm
+
+**Categories:** Socia Vivo
+
+Antaŭtagmeze de la 15-a de novembro laŭ la loka tempo, en Filoli-ĝardeno de San-Francisko, Usono, ĉina prezidanto Xi Jinping intervidiĝis kun usona prezidento Joe Biden.
+
+Xi Jinping diris, ke en la pasinta jaro okazis multaj aferoj, la monda ekonomio ekrevigliĝis, tamen mankas al ĝi movforto. La industriaj ĉenoj kaj provizĉenoj estas ĝenataj, protektismo leviĝis, tiuj demandoj tre elstaras. Kiel la plej grava dulanda interrilato en la mondo, la rilatoj inter Ĉinio kaj Usono devas esti konsiderataj kaj planataj sub la rapida progreso de la tutmondaj ŝanĝoj neviditaj en jarcento, por alporti profitojn al la du popoloj kaj antaŭenigi la progreson de la homaro.
+
+Li diris, ke konkurenco inter potencoj ne estas fono de la epoko kaj ne solvos problemojn alfrontatajn de Ĉinio, Usono kaj la mondo. La terglobo estas sufiĉe granda por enhavi samtempe Ĉinion kaj Usonon, la sukcesoj de unu kreas oportunojn por la alia. Ĉinio kaj Usono havas malsamajn historiojn, kulturojn, socisistemojn kaj disvolvajn vojojn, kaj tio estas objektiva fakto. Tamen, se la du flankoj persistos en reciproka respekto, paca kunekzisto, kunlaboro kaj kungajno, ili komplete povas superi diverĝojn kaj trovi ĝustan vojon por kunekzistado de la du potencoj. Li kredas, ke estas brila la perspektivo de la rilatoj inter Ĉinio kaj Usono.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping donis skriban prelegon al Komerca Pintkunveno de APEK
+
+**Published:** 2023-11-17
+
+**URL:** http://esperanto.china.org.cn/2023-11/17/content_116823031.htm
+
+**Categories:** Socia Vivo
+
+Ĉina prezidanto Xi Jinping publikigis skriban prelegon kun la titolo "Plene kunlaboru kun unuanimeco, kunsolvu defiojn kaj skribu novan ĉapitron de azi-pacifika kunlaboro" en la Komerca Pintkunveno de Azi-Pacifika Ekonomia Kunlaboro (APEK) antaŭtagmeze de la 16-a de novembro laŭ la loka tempo en San-Francisko, Usono.
+
+Xi Jinping diris, ke antaŭ tridek jaroj laŭ tendenco de la epoko, nome paco kaj disvolvo, gvidantoj de la azi-pacifika regiono okazigis la unuan neoficialan konferencon de gvidantoj de APEK, akcelante la azi-pacifikan disvolvon kaj ekonomian tutmondiĝon sur la rapidan vojon kaj utiligante Azi-Pacifikon esti centro de la monda ekonomia kreskado kaj ankro de stabiligo de monda disvolvado. Nun la mondo eniras en novan periodon de tumulto kaj reformado, la direkto de la azi-pacifika kunlaboro en la sekvaj tridek jaroj fariĝis la epoka demando antaŭ ni. Oni devas konservi la originan aspiron de APEK kaj akceli restarton de la azi-pacifika kunlaboro.
+
+Li diris, ke oni devas kune protekti la celon kaj principon de la Ĉarto de UN, persisti en dialogo anstataŭ antagonismo, persisti en kontaktado de landoj kiel partneroj, sed ne aliancanoj, kaj protekti prosperon kaj stabilecon de la azi-pacifika regiono. Oni devas persisti en malferma regionismo, firme akceli procezon de azi-pacifika liberkomerca zono, stimuli kunagadon kaj kunfandiĝon de diverslandaj ekonomioj kaj konstrui azi-pacifikan ekonomion kun kunlaboro kaj komuna gajno. Oni devas antaŭenigi ciferecan, artefaritan kaj verdan transformon, fortigi scienc-teknikan renovigon kaj praktikadon de tiaj fruktoj, kaj progresigi profundan kunfandiĝon de cifereca ekonomio kaj fizikaj ekonomioj. Oni man-en-mane plibonigos mondan scienc-teknikan administradon kaj kreos scienc-teknikan disvolvan medion malferman, senpartian, justan kaj nediskriminacian.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping ĉeestis neoficialan dialogon de APEK-gvidantoj kun gastoj
+
+**Published:** 2023-11-17
+
+**URL:** http://esperanto.china.org.cn/2023-11/17/content_116823039.htm
+
+**Categories:** Socia Vivo
+
+Ĉina prezidanto Xi Jinping ĉeestis la neoficialan dialogon de gvidantoj de la Azi-Pacifika Ekonomia Kunlaboro (APEK) kun gastoj kaj labortagmanĝon en San-Francisko tagmeze de la 16-a de novembro. La kunveno estis prezidita de usona prezidento Biden kaj la temo estis "daŭrigebleco, klimato kaj justa tranformo de energio".
+
+En la kunveno, Xi Jinping diris, ke Ĉinio profunde efektivigas la koncepton de nova disvolvado, antaŭenigas la ampleksan verdan kaj malaltkarbonan transformadon de la ekonomio kaj socio, kaj daŭre kontribuas al la komuna konstruado de tutmonda hejmo, kie homaro kaj la naturo harmonie kunvivas. Ĉinio antaŭenigas la iniciaton pri verda "La Zono kaj Vojo" kaj daŭre profundigas kunlaborojn en verda infrastrukturo, verda energio, verda transportado kaj aliaj kampoj, kaj subtenas evoluantajn landojn levi siajn kapablojn per speciala fonduso de sud-suda kunlaboro por klimatŝanĝiĝo. Ĉinio volas kunlabori kun ĉiuj partioj por fari pli grandajn kontribuojn por konstrui tutmondan disvolvan komunumon kaj krei puran kaj belan mondon.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Rekorda partopreno de brazilaj firmaoj en ĈIIE!
+
+**Published:** 2023-11-17
+
+**URL:** http://esperanto.china.org.cn/2023-11/17/content_116823049.htm
+
+**Categories:** Socia Vivo
+
+Okazinta inter la 5-a kaj la 10-a de novembro, la sesa Ĉina Internacia importa Ekspozicio (ĈIIE) kunigis milojn da eksponantoj el la tuta mondo. Brazilo, kiu partoprenas ĝin ekde la unua fojo, kaptis pli da atentoj ĉi-foje, kun nacia paviliono; budo aranĝita de Apex-Brasil (Brazila Agentejo por Antaŭenigo de Eksportoj) en la sektoro de manĝaĵoj kaj trinkaĵoj, kun partopreno de 23 mez- kaj malgrandaj firmaoj; 11 firmaoj kun propra, memaranĝita budo; 18 firmaoj en la Kreiva Zono; kaj ok firmaoj reprezentataj en la budo aranĝita de la registaro de la subŝtato Matogroso.
+
+Ekster la oficiala listo de Apex-Brasil, CONAFER -- Nacia Kunfederacio de Kamparaj Familioj kaj Famili-Agrikulturaj Entreprenoj de Brazilo -- kiu reprezentas ok milionojn da malgrandskal-agrikulturaj entreprenantoj, eksponis siajn produktojn en la budo de la Monda Organizaĵo de Kamparanoj: "Ni kunportis manprilaboritan kafon, mielon, likvorojn, anakardiajn nuksojn, brazilajn nuksojn, gvaran-pulvoron, oleojn el makaubo kaj buritio (brazilaj fruktoj), buriti-dolĉaĵon kaj marmeladon el pekio," klarigas Melk Nicolas, direktoro pri instituciaj kaj parlamentaj rilatoj de CONAFER, dum sia unua vizito al Ĉinio. "Preskaŭ duono de niaj produktoj estis nekonataj de ĉinoj, por ni estis granda plezuro prezenti ion de nia kulturo ĉi tie en Ĉinio."
+
+Mielo, fromaĝpano, bakaĵoj kaj fritaĵoj, kafo, viando, mateo, trinkaĵoj kaj asaio estis la ĉefaj produktoj eksponataj ĉe la budo aranĝita de Apex-Brasil. La entreprenanto Bobby Chi, prezidanto de la Brazil-Ĉina Ĉambro por Disvolvado kaj Negocoj, importas frostigitajn koŝinjon kaj fromaĝpanon de la firmao Qualycon, de la subŝtato Sanpaŭlio, por vendi en Ĉinio. Akiri permesilojn por importi kaj vendi tiajn produktojn en Ĉinio postulis grandan laboron, sed la rezulto valoras la penon: nun la produktoj de Qualycon estas troveblaj en menuoj de pluraj ĉinaj drinkejoj kaj restoracioj, kaj ankaŭ estas aĉeteblaj en ĉinaj retkomercaj platformoj.
+
+Subtene al brazilaj produktistoj, la brazila paviliono, ankaŭ aranĝita de Apex-Brasil kaj strategie metita antaŭ la paviliono de Ĉinio, allogis multajn vizitantojn, aparte junulojn. Kreita por diskonigi la kulturon kaj la tipajn produktojn de Brazilo, la paviliono aranĝis sesiojn por gustumado de kafo kaj drinkaĵoj, kiel kajpirinjo, kaj ankaŭ tipajn produktojn de la lando, kiel fazeolaĵo, koŝinjo kaj fromaĝpano.
+
+Laŭ la ĝenerala konsulo de Brazilo en Ŝanhajo, Augusto Pestana, la partopreno de Brazilo en la evento rezultas de granda kunlaboro inter Apex-Brazil, nacia registaro, subŝtataj registaroj kaj firmaoj. "Ni volas daŭre eksporti kion ni jam eksportas, sed ni ankaŭ volas ekkonkuri en la tre alloga merkato de produktoj kun pli alta aldonvaloro. Tio validas ne nur por manĝaĵoj kaj trinkaĵoj, sed ankaŭ por multaj aliaj produktoj, aparte kiam ni konsideras la diversecan bazon de Brazilo, kun grava industrio, estas sektoroj, en kiuj Brazilo estas tre konkurenciva, do gravas priatenti la oportunojn, kiujn Ĉinio donas al pluraj brazilaj firmaoj."
+
+Kompreneble ne povus manki la grandaj firmaoj de Brazilo, kiuj ĉiujare havas propran budon en la evento: krom la ĉefaj brazilaj markoj pri viando, firmaoj kiel Vale (minado), Suzano (papero kaj celulozo), Tramontina (iloj) kaj Grendene (ŝuoj) estas tre konkurencivaj en la ĉina merkato.
+
+Sed la partopreno de Brazilo en ĈIIE ne estis limigita al eksponado de produktoj: delegitaroj de subŝtataj registaroj, funkciuloj de brazilaj institucioj rilataj al eksportoj kaj ĉirkaŭ 2 000 brazilaj entreprenantoj ĉeestis la eventon por prezenti siajn produktojn, akiri informojn pri la ĉina merkato, serĉi profesiajn kontaktojn kaj trakti eblajn partnerecojn por havi aliron al la plej granda merkato de la mondo laŭ nombro de konsumantoj, kiu prezentas tendencon je kresko post la pandemio.
+
+Estas ankaŭ tiuj, kiuj vidas en ĈIIE kaj Ĉinio oportunojn fari negocojn cele al aliaj merkatoj: Thomaz Augusto Machado, estro de la konsultfirmao China Invest, vidas bonajn oportunojn por estigo de kunfirmaoj inter brazilaj kaj ĉinaj firmaoj, kun la celo munti produktojn en Brazilo el partoj importitaj el Ĉinio, cele al eksportoj al landoj de Ameriko kaj Eŭropo: produktitaj en Brazilo, tiuj produktoj povas esti pli konkurencivaj en kelkaj merkatoj. La konsulo Pestana, siavice, vidas Ĉinion kiel platformon, kiu povas faciligi brazilajn eksportojn al tuta azi-pacifika regiono.
+
+Kun pli kaj pli da eksponantoj kaj vizitantoj ĉiujare kaj kreskanta nombro de negocoj, ĈIIE firmiĝas kiel grava enirpordo al la ĉina merkato kaj eĉ por aliaj negocoj en Ĉinio.
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Shaanxi, profunde integrita dum konstruado de "La Zono kaj Vojo"
+
+**Published:** 2023-11-21
+
+**URL:** http://esperanto.china.org.cn/2023-11/21/content_116829138.htm
+
+**Categories:** Socia Vivo
+
+Ĉe 10-jariĝo de la iniciato "La Zono kaj Vojo", la ĉina provinco Shaanxi formis novan situacion de la regiono, celante bone plenumi reformadon kaj pordmalfermon, plifortigis komunikadon en ĉiu formo kun la kunkonstruaj landoj laŭ "La Zono kaj Vojo", kaj tio helpas al la provinco esti pli malferma al la mondo.
+
+Kiel grava transporta centro, la urbo Xi'an, provinca ĉefurbo, senĉese optimumigas la ŝarĝkapablon de instalaĵoj kaj atingis plurdimensiajn plibonigojn ĉe kvanto, kvalito kaj efikeco. Jam funkciis pli ol 20 mil ĉin-eŭropaj kargotrajnoj, servante al pli ol 16.5 mil kompanioj. Xi'an-a Internacia Havena Stacio jam konstruis kontenerejon de 690 mil kvadrataj metroj, 59 fervojajn liniojn, kun ĉiutaga ŝarĝ- kaj malŝarĝ-kapablo de 3.7 mil TEU-oj. La Xianyang-a Internacia Flughaveno malfermis kelkajn gravajn interkontinentajn liniojn. Sekve estis malfermitaj la internaciaj fluglinioj al Taŝkento, Biŝkeko, Astano, Aŝgabato kaj Duŝanbeo.
+
+Dum la lastaj 10 jaroj, la financa departemento de Shaanxi daŭre plibonigis servon kaj plene subtenas la konstruadon de la financa centro por "La Zono kaj Vojo". La skalo de translandlimaj kvitancoj kaj pagoj kun la kunkonstruantoj de "La Zono kaj Vojo" pliiĝis de 11.5 miliardoj da usonaj dolaroj en 2013 ĝis 21.9 miliardoj da usonaj dolaroj en 2022, kun averaĝa jarkresko de 7.42%.
+
+Dum la pasintaj 10 jaroj, Shaanxi ankaŭ aktive diskonigas la ĉinan kulturon kun la celo konstrui internacian kulturan turisman centron, kaj ĝi konstruas platformojn por interŝanĝoj kaj reciproka lernado. Dum la procezo de konstruado, la internacia amikaro de Shaanxi plivastiĝas.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Shangri-la alireblos per trajno!
+
+**Published:** 2023-11-21
+
+**URL:** http://esperanto.china.org.cn/2023-11/21/content_116829150.htm
+
+**Categories:** Socia Vivo
+
+Antaŭtagmeze de la 15-a de novembro, provtrajno atingis la stacion de Shangri-la, urbo je alteco de 3 200 metroj super marnivelo, kio markas, ke la sekcio inter la urboj Lijiang kaj Shangri-la de yunnan-xizang-a fervojo estos ekfunkciigita. La sekcio ligas Lijiang-urbon kaj Diqing-an Tibetan Aŭtonoman Subprovincon, kun totala longeco de 139.7 kilometroj. Konstruado de la sekcio komenciĝis en 2014 kaj estis finita post 9 jaroj dank' al klopodoj de pli ol 20 mil konstruistoj.
+
+La sekcio situas en la nordokcidenta parto de Yunnan-provinco, ĉe la sudorienta rando de la Qinghai-Tibeta Altebenaĵo kaj la meza sekcio de la Hengduan-montaro. La geologiaj kondiĉoj estas kompleksaj kaj laŭvoje estas multaj pitoreskejoj kaj naturrezervoj. Por mildigi la influon de konstruado sur loka medio laŭlonge de la linio, ĉiuj flankoj tenas la koncepton de verda disvolviĝo kaj insistas mediprotektadon. La konstruistoj realigis recikladon de rubakvo kaj centralizitan traktadon de rubgrundo. Laŭ raportoj, entute 8 purigstacioj kaj pli ol 40 sedimentejoj estis konstruitaj, ĉirkaŭ 105 mil kubmetroj da subtenaj kaj protektaj instalaĵoj estis starigitaj, ĉirkaŭ 187 mil kvadratmetroj da plantaĵoj estis kreskigitaj, la fervojo jam kunfandiĝis kun la medio.
+
+Post kiam la sekcio estos malfermita, Diqing ne plu estos sentrajna. Tio plenigos la mankon de fervoja reto en nordokcidenta Yunnan, perfektigos la regionan transporton kaj helpos altkvalitan ekonomian kaj socian disvolviĝon laŭ la fervojo. La fervoja linio transiras la riveron Jinsha, transirante la loĝlokojn de etnoj kiel zang-o, ji-o, baj-o kaj aliaj. La malfermo de la sekcio havas grandan signifon por helpi industrian disvolvon de la lokoj laŭlonge de la linio kaj antaŭenigi kamparan reprosperiĝon.
+
+Laŭ statistiko de shangri-la-a doganejo, de januaro ĝis septembro ĉi-jare, la totala eksporto de Diqing estis 26.17 milionoj da juanoj, kaj ĝiaj eksportaĵoj estis ĉefe biero el hordeo de altaj teroj, macutako, boleto, vino kaj aliaj specialaj agrikulturaj produktoj. La fervojo estos integrita al la transporta reto de Ĉinio kaj estos konektita kun internaciaj linioj kiel la ĉin-laosa fervojo.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# De Taizhou al Nantong, verda energio en Jiangsu-provinco
+
+**Published:** 2023-11-22
+
+**URL:** http://esperanto.china.org.cn/2023-11/22/content_116832189.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Matene de la 17-a de novembro mi iris al Taizhou-urbo de Jiangsu-provinco, sekve al Nantong-urbo, por plibone koni la laboron de la kompanio CHN Energio pri produktado de elektro kaj kion ĝi faras por redukti sian karbonemisiadon. La vojaĝo estis kunaranĝita de CHN Energio kaj la Akademio de Studoj pri Nuntempa Ĉinio kaj la Mondo.
+
+Mia reveno al Taizhou, Jiangsu-provinco, post preskaŭ ok jaroj
+
+Por mi, reveni al Taizhou revivigis kelkajn el miaj plej malnovaj memoraĵoj pri mia vivo en Ĉinio, ĉar mia unua oficvojaĝo en januaro 2016, estis al tiu urbo, kaj mi ege volis reveni por kontroli ĝian disvolviĝon en la lastaj jaroj kaj ankaŭ por fari pli bonajn fotojn de lokoj vizititaj de mi tiam, ĉar en 2016 mi havis nur bonprezan poŝtelefonon kaj ne sukcesis fari bonajn fotojn. Tiam estis fumnebulo kovranta la urbon, kaj ankaŭ tio malhelpis min kapti detalojn de la loka pejzaĝo. Iel ajn, tiu estis neforgesebla vojaĝo kun akompano de pluraj esperantistoj:Estis kun mi mia japana kolego Usui Hiroyuki, mia ĉina kolego Wang Ruixiang, tiama respondeculo pri KAEM (Komisiono de Azia Esperanto-Movado, poste alinomita kiel Komisiono de Azi-Oceania Esperanto Movado) kaj la islanda diplomato Ragnar Baldursson kun sia familio.
+
+Ankaŭ dum tiu vojaĝo en 2016, mi konatiĝis kun neesperantistoj kiuj fariĝis parto de mia amika rondo en Ĉinio, inter ili du amikoj kiuj, pro koincido, mi renkontis en Pekino dum la tagoj antaŭ mia ĉi-foja vojaĝo al Taizhou.
+
+Dum mia unua vojaĝo al sudorienta Ĉinio, Taizhou profunde impresis min: ĉio estis novaĵo, la arkitekturo, la kanaloj, la manartaĵoj, la manĝaĵoj... Ĉie estis agrabla surprizo. En ĉi-foja vizito al la urbo, mi vizitis kelkajn el la lokoj vizititaj de mi pasintfoje, ili nun aspektas pli belaj, multaj estis renovigitaj, heredaĵoj estas bone konservataj kaj - plej grave - ne plu estas la terura fumnebulo kiun mi tie trovis en 2016. Ĉi foje dum la tuta vojaĝo mi ĝuis belan bluan ĉielon.
+
+De tiu malnova vojaĝo kelkaj rememoroj estas aparte viglaj en mia kapo: Survoje al la urbo mi trairis belan kaj altan ponton kaj el ĝi mi unuafoje vidis la riveron Jangzio, kun pluraj kargoŝipoj irantaj sur ĝin, inkluzive de transportantaj karboj. Vespere de tiu sama tago, esperantistoj iris kune al malgranda restoracio por drinki kaj babili Esperante dum horoj en tre agrabla etoso, kaj la edzino de Ragnar aĉetis plurajn krabojn konservitajn en alkoholaĵo kiel specialaĵon de Taizhou, por kunporti al Pekinokaj kuiri. Ŝi tiam rakontis al mi, ke tiu krabaĵo estas bongustega, kaj ĝi ja estas. Ĉi-foje mi estis la nura esperantisto en la grupo, sed mi revenis al tiu sama strato, vidis tiajn krabojn vendatajn en lokaj butikoj, kune kun aliaj specialaĵoj de la urbo, kaj preterpasis la restoracion kie mi antaŭe drinkis kun esperantistoj: La loko ŝanĝiĝis, multaj domoj estis reformitaj kaj plibeligitaj, kaj noktovivo en tiu regiono estas multe pli vigla. La prezentado de tradicia ĉina opero ĉe la rivero Fengcheng ankaŭ daŭras, ĝi tre miris min em 2016, kaj ĉi-foje mi havis la impreson, ke pli da turistoj iras tien por ĝin ĝui.
+
+La pliboniĝo de aerkvalito estis aparte okulfrapa dum mia vizito al lanaciamalsekejo Qinhu-lago, en 2016, la fumnebulo ne permesis al mi vidi foren, mi povis nur vidi tion tre proksime al mi. Ĉi-foje mi ĝuis la belan pejzaĝon kaj la puran aeron dum boatpromenado, aŭskultante kantadon de boatistinoj, kio igas la lokon speco de "kampara Venecio". Sed kiel eblis en tiom mallonga tempo malaperigi la fumnebulon kaj plibonigi la aerkvaliton en Taizhou?
+
+El la pontego sur Jangzio kiu impresis min en 2016 videblas haveno, kaj malantaŭ ĝi estas karbocentralo, kiu provizas elektron al la urbo. Tiu centralo apartenas al CHN Energio, kaj ĝin mi vizitis ĉi-foje. La haveno estas ligita al ĝi kaj uzata por transporti karbon tien por esti bruligita por generi elektron. Antaŭe, tiu centralo respondecis pri parto de la poluo en la regiono, sed ĝi estis reformita kaj nun funkcias surbaze de la plej nova teknikio uzata en Ĉinio por tiaj centraloj, kun la celo nuligi karbonemisiadon.
+
+Laŭ klarigo de fakuloj de la centralo, la gasoj ellasitaj de la bruligo de karbo estas kolektitaj, sorbitaj per kemia procezo kaj sekve apartigitaj kaj stokitaj enejojn. Karbondioksido, antaŭe ĵetita en la aeron, nun estas transportita al lokaj industrioj por esti uzata en industriaj procezoj. Inĝenieroj klarigis, ke estas malsamaj normoj por boteligita karbondioksido, depende la uzo kiun oni poste donos al ĝi en industria ĉeno. Ili ankaŭ klarigis, ke la centralo devas funkcii dum la sekvaj 15 jaroj, kaj post tio ĝi laŭplane estos reformita denove, kaj tiam la firmao serĉos la plej bonan teknikon disponeblan por igi ĝin eĉ pli efika kaj mediamika.
+
+Samtempe, la firmao investas en renovigeblaj energifontoj, kiel vent- kaj sunenergio. El la pinto de unu el la turoj de la karbocentralo eblas vidi novan projekton de la firmao, tio estassunpaneloj sur artefaritaj lagoj apud la centralo. Tiuj lagoj, kreitaj por fiŝbredado per la akvo de Jangzio, estas kovrataj de sunpaneloj, kreante ombrozonojn por la fiŝoj. Tiel fiŝbredado kaj elektrogenerado kunekzistas en la sama loko, pli bone profitante la spacon. El fiŝo venas energio por funkciado de homa korpo, dum sunpaneloj provizas energion al elektraj aparatoj kreitaj de homoj.
+
+Nantong profitas la venton el la maro por generi elektron
+
+De Taizhou mi iris al ĝia najbara urbo Nantong, kie CHN Energio produktas elektron per ventocentraloj laŭlonge de la marbordo. La vorto marbordo kutime elvokas en nia memoro bildojn de belaj plaĝoj, sed tio ne estas la kazo en tiu loko: situanta ĉe la delto de Jangzio, tiu regiono estas plena de koto kaj oni bezonas surmeti botojn por esti kapabla piediri inter la generatoroj. Ni ricevis rapidan sekurecan trejnadon de la firmao por havi aliron al tiu loko, kaj sekve, vestanta taŭgajn protektilojn, mi kaj aliaj homoj iris al la "plaĝo" sur traktoroj - ĉiu kun la kapablo transporti ok homojn. Alveninta en la loko, kiam mi provis piediri, mi rimarkis, ke la koto forte gluiĝas sur la botoj, sekve piediri en tiu tereno estas malfacile, imagu konstrui tiujn grandajn strukturojn tie!
+
+Ĉe ventenergia generatoro, laboristo metis dratreton por fiŝkaptado. Post kelkaj minutoj du fiŝoj estis ĉe la reto. Dume alia laboristo plenigis sitelon per konkoj, kiujn la maro alportas al tiu loko kaj ili sekve sin kaŝas sub la koto. Laŭ la tajdo, tiu loko inundiĝas aŭ aspektas kiel "plaĝo" el koto, sekve kreiĝas interesaj pejzaĝoj, kun traktoroj irantaj inter ŝipoj, kiujn oni ne povos demeti de tie antaŭ ol reveno de alta tajdo. Kompreneble tio signifas, ke la generatoroj estas ĉiuj konstruitaj sur bazoj planitaj por konservi ilin en la sama loko kaj funkciantaj eĉ kiam la bazo estas kovrita de marakvo.
+
+Sekve en la loka sidejo de la kompanio ni vidis, sur la ekranego de la kontrolejo, mapojn kiuj montras la realtempan pozicion de ĉiuj generatoroj kaj ŝipoj en la areo. Malsamaj koloroj indikas malsamajn grandecojn de ŝipoj, kaj la mapo montras ĉiujn ŝipojn detektitajn en la areo, ne nur tiujn de la kompanio. Sur la mapo eblas vidi, ke ventocentraloj konstruitaj en tiu regiono etendiĝas sur vasta areo, inkluzive de marareo. Por preventi koliziojn, la sistemo markas sekurecajn zonojn ĉirkaŭ la ventocentraloj, kaj kiam ŝipo eniras tiujn zonojn, la sistemo sendas aŭtomatan avertmesaĝon. Kaze de nereago de la ŝipanaro, funkciulo de la kompanio mem kontaktas la ŝipon per radikomunikilo.
+
+Post tiu vizito, estis tempo reveni hejmen, mi iris rekte al flughaveno por flugi al Pekino, kie mi devus alveni vespere por sekvamatene vojaĝi al Xinjiang-a Ujgura Aŭtonoma Regiono. Survoje al la flughaveno, mi subite konstatis unu aferon: En tiu tago mi estis ĉe la maro, kaj en la sekva tago mi estus en la urbo plej for de la maro!
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Tomatoj el Tianshan-montaro
+
+**Published:** 2023-11-23
+
+**URL:** http://esperanto.china.org.cn/2023-11/23/content_116834962.htm
+
+**Categories:** Ekonomio
+
+En Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio, samkiel en aliaj partoj de la lando, modernaj agrikulturaj teknikoj estas uzataj por kreskigi kvanton kaj kvaliton de agrikulturaj produktoj. Ni vizitis forcejon en Urumĉio kie oni produktas tomatojn dum la tuta jaro, eĉ dum vintro. Irigacio estas aŭtomata, speciala grundo provizas al la plantoj ĉiujn nutraĵojn bezonatajn por certigi bongustajn kaj altkvalitajn produktojn. Koincide, la nederlanda firmao kiu provizas grundon por tiu forcejo havas Esperantan nomon"FORTECO"!
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping sendis gratulmesaĝon al Monda Kongreso de Ĉinaj Studoj -- Ŝanhaja Forumo
+
+**Published:** 2023-11-24
+
+**URL:** http://esperanto.china.org.cn/2023-11/24/content_116838039.htm
+
+**Categories:** Socia Vivo
+
+La Monda Kongreso de Ĉinaj Studoj -- Ŝanhaja Forumo okazis en Ŝanhajo en la 23-a kaj 24-a de novembro. La 24-an de novembro ĉina prezidanto Xi Jinping sendis gratulmesaĝon al la evento.
+
+Xi Jinping diris, ke ĉinaj studoj estas la studoj pri la historio de Ĉinio kaj tiu pri nuna Ĉinio. Li esperas, ke fakuloj kaj kleruloj el diversaj landoj faros la rolojn de heroldoj konektantaj ĉinan kaj eksterlandajn civilizaciojn, tenos malfermecon kaj inkluzivecon, antaŭenigos ĉinajn studojn al aliaj landoj kaj puŝos interŝanĝojn de civilizacioj.
+
+La temo de la evento estas "Ĉina Civilizo kaj Ĉina Vojo -- Tutmonda Perspektivo". Ĝi inkludas 4 subforumojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Vojaĝo per altrapida trajno en Xinjiang
+
+**Published:** 2023-11-27
+
+**URL:** http://esperanto.china.org.cn/2023-11/27/content_116841385.htm
+
+**Categories:** Socia Vivo
+
+Altrapidaj fervojoj kunligas tutan Ĉinion kaj alportis al homoj pli konvenan manieron vojaĝi inter ĉinaj urboj. En Xinjiang-a Ujgura Aŭtonoma Regiono ne estas malsame, ĉiutage multaj altrapidaj trajnoj iras inter lokaj urboj. Inter la urboj Urumĉio kaj Turfano, la vojaĝtempo estas unu horo aŭ eĉ malpli, kaj biletoj estas bonprezaj, sekve multaj turistoj iras per trajno de unu urbo al alia por unutaga ekskurso. Kia estas la sperto vojaĝi per tiu trajno?
+
+Trajno atingis la nordan stacidomon de Turfano, vespere de la 24-a de novembro.
+
+Stevardino deĵoranta en la trajno alportas teon al pasaĝeroj.
+
+Jen kia la vagono aspektas interne
+
+Post skano de dudensia kodo, pasaĝero ricevas en sia poŝtelefono informojn pri la itinero kaj povas ankaŭ mendi manĝaĵojn kaj trinkaĵojn.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Produktado de peltaĵoj en Horgos, Xinjiang
+
+**Published:** 2023-11-27
+
+**URL:** http://esperanto.china.org.cn/2023-11/27/content_116841397.htm
+
+**Categories:** Socia Vivo
+
+Horgos-a Pelt-industria Kompanio Limigita estas industria ĉeno pri farado de peltaĵoj, fondita en aprilo 2023 en la Ekonomi-disvolva Zono de Horgos en Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio. Areo pri pelt-industrio, kovrante 203 700 kvadratajn metrojn, estis kreita kun la celo esti internacia pelt-industria centro kunligante produktadon kaj servan platformon kiu integras industriajn ĉenojn, vestaĵ-pretigajn komunajn fabrikojn, industriajn retkomercajn platformojn ktp per elsendfluo kaj trejnejoj por talentuloj pri tiu industrio. Tie ni vizitis fabrikon de peltaĵoj por kontroli la laborkondiĉojn surloke. En Horgos loĝas homoj el 13 malsamaj etnoj de Ĉinio, kaj la homoj laborantaj en tiu fabriko spegulas tiun etnan diversecon.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Muzeo de Generalo de Yili en Xinjiang
+
+**Published:** 2023-11-28
+
+**URL:** http://esperanto.china.org.cn/2023-11/28/content_116844785.htm
+
+**Categories:** Ekonomio
+
+La posteno Generalo de Yili estis kreita de imperiestro Qianlong de Qing-dinastio(1616-1911). Krom gvidi la trupojn en la regiono, li ankaŭ havis la funcion de guberniestro de tuta Xinjiang. Post la fino de Qing-dinastio, Xinjiang fariĝis provinco de Respubliko de Ĉinio (1912-1949), kaj post la fondiĝo de la Ĉina Popola Respubliko en 1949, Xinjiang fariĝis ujgura aŭtonoma regiono. La antikva loĝejo de Generalo de Yili estis renovigita kaj nun funkcias kiel muzeo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】La beleco de koloraj folioj en Xinjiang
+
+**Published:** 2023-11-28
+
+**URL:** http://esperanto.china.org.cn/2023-11/28/content_116844792.htm
+
+**Categories:** Ekonomio
+
+En Ĉinio komenciĝas la vintro, kaj en la tuta lando videblas ruĝaj kaj flavaj folioj, tipaj de la fino de aŭtuno kaj komenco de vintro. En la urbo Horgos, en Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio, ĉe la landlimo inter Ĉinio kaj Kazaĥio, ni trovis folikolorojn variantajn de verdo al bruno, kun aparta beleco kiam ili reflektas la sunlumon.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Liberkomerca zono ĉe landlimo inter Ĉinio kaj Kazaĥio
+
+**Published:** 2023-11-28
+
+**URL:** http://esperanto.china.org.cn/2023-11/28/content_116844799.htm
+
+**Categories:** Ekonomio
+
+La unua liberkomerca zono estigita de Ĉinio kun alia lando troviĝas ĉe ĝia landlimo kun Kazaĥio en Horgos de Xinjiang-a Ujgura Aŭtonoma Regiono. Homoj el ambaŭ landoj povas aĉetumi tie senimposte, kaj diversspecaj varoj estas troveblaj. Komerco inter Ĉinio kaj Kazaĥio havas longan historion kaj ĉiam alportas profiton al ambaŭ popoloj.
+
+Ruĝa kaj blua strioj surtere markas la landlimon inter Ĉinio kaj Kazaĥio.
+
+Krom loko por aĉetumado, la liberkomerca zono fariĝis turismejo. Homoj aparte ŝatas fotiĝi ĉe la limo inter ambaŭ landoj.
+
+Grandegaj matrioŝkoj kaj statuoj de kazaĥaj muzikistoj kaj dancistoj bonvenigas ĉinajn vizitantojn al Kazaĥio.
+
+Senimposta vendejo en Kazaĥio vendas diversspecajn varojn el dekoj da landoj.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Okazis 11-a Pintforumo pri Tutmonda Aspekto de Ĉinaj Entreprenoj
+
+**Published:** 2023-11-28
+
+**URL:** http://esperanto.china.org.cn/2023-11/28/content_116844808.htm
+
+**Categories:** Ekonomio
+
+La 27-an de novembro okazis en Pekino la 11-a Pintforumo pri Tutmonda Aspekto de Ĉinaj Entreprenoj. Kun la temo "Havi Mondklasan Bonaspekton de Entreprenoj kaj Antaŭenigi Interŝanĝojn kaj Reciprokan Lernadon inter Civilizacioj", la forumo estas gvidata de la Diskoniga Departemento de la Centra Komitato de la Komunista Partio de Ĉinio, la Komisiono pri Superrigardo kaj Administrado de Landaj Posedaĵoj sub la Ŝtata Konsilantaro de Ĉinio, la Ĉina Federacio de Industrio kaj Komerco, organizita de la Ĉina Internacia Komunika Grupo kaj gastigata de la Ĉina Centro por Internacia Komunika Disvolvado.
+
+En la forumo estis anoncitaj la rezulto de la elektado de la kazoj pri konstruado de internaciaj aspektoj de ĉinaj entreprenoj. Oni elektis entute 40 elstarajn kazojn laŭ la kvar kategorioj "kunkonstruado de nova Silka Vojo", "interkultura integriĝo", "novigo de internacia komunikado" kaj "revkonstruado de homoj" el 251 kazoj prezentitaj de ŝtataj kaj neŝtataj entreprenoj. Kaj inter la 40 kazoj, dek elstaraj estis elektitaj.
+
+Por taksi la tutmondan aspekton de ĉinaj entreprenoj pli sisteme, efike, science kaj precize, la forumo, surbaze de 9-jara enketado kaj 6-jara analizado pri firmaaj aspektoj, la forumo unuafoje publikigis la sistemon por tia taksado (CBC-modelo, elekto bazita sur komuna analizo).
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】 Qapqal-a Novaĵo : la nura ĵurnalo en la mondo en la ŝibea lingvo!
+
+**Published:** 2023-11-30
+
+**URL:** http://esperanto.china.org.cn/2023-11/30/content_116849039.htm
+
+**Categories:** Socia Vivo
+
+La ŝibe-o estas unu el la plej malmultnombraj etnoj de Ĉinio. Plejparto el ŝibe-anoj vivas en Qapqal-a Xibe-a Aŭtonoma Gubernio de Yili-a Kazaĥa Aŭtonoma Subprovinco en Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio. Ŝibe-anoj havas ne nur propran lingvon, sed ankaŭ propran skribsistemon. En 1946, estis fondita en Qapqal la unua ĵurnalo en la ŝibe-a, nomita
+
+Voĉo de Libero
+
+, presita per mimeografo. En marto 1954, jam en nova Ĉinio, la gubernio estis fondita kaj landa ĉefministro Zhou Enlai persone kunordigis la disvolvadon de tiparo kaj presiloj por profesia presado en la ŝibe-a lingvo por la ĵurnalo, kio ŝanĝis sian nomon al "Ĵurnalo Nova Vivo" omaĝe al la progresoj atingitaj de ŝibe-anoj en tiu epoko. Ekde 1974, la ĵurnalo nomiĝas
+
+Qapqal-a Novaĵo
+
+, kaj daŭre estas la nura ĵurnalo en la mondo publikigita en la ŝibe-a, kiu konservas la tradician skribon kaj kulturon de la etno. Nuntempe ĝi estas redaktita per komputilo kaj presata per modernaj ciferecaj presiloj.
+
+Antikvaj tipoj kreitaj por presado en la ŝibe-a lingvo
+
+Eldono de Qapqal-a Novaĵo en 1975, presita per tiuj tipoj
+
+Eldono de Qapqal-a Novaĵo de la 24-a de novembro ĉi-jare
+
+Moderna presilo uzata en presado de Qapqal-a Novaĵo
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Tiel vigliĝas xinjiang-a kamparo
+
+**Published:** 2023-11-30
+
+**URL:** http://esperanto.china.org.cn/2023-11/30/content_116849056.htm
+
+**Categories:** Socia Vivo
+
+Huocheng-a Anxin-a Kompanio pri Disvolvado de Bestobredado (angle Huocheng Anxin Animal Husbandry Development Co., Ltd.) en urbeto Lucaogou en Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio estis fondita en majo 2023 por investi en disvolvado de la tuta ĉeno de produktado de viando. La kompanio fokusiĝas pri bredado, naturaj pesticidoj, altkvalita manĝaĵo por bestoj, bredado de ŝafoj en stepo ktp. La kompanio kunligas agrikulturon kaj ŝafobredadon, kaj estigis sistemon kiu kunligas modelan centron pri intensiva ŝafobredado, areon por ŝafobredado kaj industrian sistemon por produkti viandon el ŝafoj breditaj de lokaj familioj. La kompanio kunlaboras kun kooperativoj de ĉirkaŭ mil farmistoj kaj bestobredistoj kaj tiel plie vigligas la disvolviĝon de xinjiang-a kamparo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Shaanxi helpas kune konstrui "La Zonon kaj Vojon" kaj atingas novan disvolviĝon
+
+**Published:** 2023-11-30
+
+**URL:** http://esperanto.china.org.cn/2023-11/30/content_116849512.htm
+
+**Categories:** Ekonomio
+
+La 20-an de novembro en la urbo Xi'an finiĝis la 7-a Internacia Ekspozicio pri Silka Vojo kaj Foiro pri Kunlaboro, Investado kaj Komerco de Orienta kaj Okcidenta Partoj de Ĉinio. Por solidigi la fruktojn de la Pintkunveno de Ĉinio kaj Centra Azio, ĉi-jara ekspozicio unuafoje starigis zonon por la kvin centraziaj landoj. Pli ol 20 ambasadorejoj kaj konsulejoj en Ĉinio kaj 72 internaciaj organizoj partoprenis en la ekspozicio, montrante pli ol 100 specojn de produktoj kun karakteroj de siaj landoj. Eksponantoj faris intertraktadojn kaj diskutis pri la ebleco de dudirekta investo kaj kunlaboro.
+
+Entute 1 857 kunlaboraj projektoj estis subskribitaj en ĉi-jara ekspozicio, kun totala investo de 1 220 miliardoj da juanoj. Alvenis 1 217 eksterlandaj invititoj kaj komercistoj el 80 landoj kaj regionoj, kaj ankaŭ 542 reprezentantoj de 62 centraj instancoj, landaj ministerioj, ŝtataj entreprenoj, kaj 24 provincoj kaj urboj. La nombro da eksterretaj vizitantoj superis 200 000, kaj la nombro de vizitoj en la ekspozicia retejo superis 7.5 milionojn.
+
+En la supre menciita pintkunveno, oficiale komenciĝis la konstruado de la projekto de kunlaboro inter Xi'an-a Internacia Haven-Areo kaj Kazaĥa Nacia Fervoja Kompanio. Antaŭ nelonge, la du partioj subskribis kunlaboran interkonsenton kaj kune lanĉis la projekton pri ĉin-kazaĥa loĝistika stacio en Almato, kio plue plibonigos la kapablon de la kanalo por ĉin-eŭropa kargotrajno.
+
+Nun Shaanxi kunlaboras ĉiuflanke, plurnivele kaj amplekse kun pli ol 40 landoj kaj regionoj kaj pli ol 400 organizoj. Kun la platforma efiko kaj disvastiĝo de la ekspozicio, Shaanxi profunde integriĝos en la duoblan ciklon kun pli alta nivelo de pordmalfermo al aliaj landoj, senĉese pliigos la amikaron kaj daŭre antaŭenigos la kvaliton kaj efikon de kunlaboro por internacia produktokapacito.
+
+Raportita de Pan Rui
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】La Moskeo Eidgah en Kaŝgaro, Xinjiang
+
+**Published:** 2023-11-30
+
+**URL:** http://esperanto.china.org.cn/2023-11/30/content_116849710.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Unu el la belaj vidindaĵoj de la urbo Kaŝgaro de Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio estas la moskeo Eidgah, konstruita en Ming-dinastio (1368-1644) kaj naci-nivele protektata heredaĵo ekde 2010. Du imamoj de tiu moskeo estis murditaj de teroristoj, respektive en la jaroj 1996 kaj 2014, sed paco regas en Kaŝgaro kaj la urbo vigle disvolviĝas. Nuntempe teamo de fakuloj restaŭras la moskeon por pli bone konservi ĝin.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Impresoj pri Urumĉio en 2023
+
+**Published:** 2023-11-30
+
+**URL:** http://esperanto.china.org.cn/2023-11/30/content_116849754.htm
+
+**Categories:** Socia Vivo
+
+Mi unuafoje vizitis Urumĉion, ĉefurbo de Xinjiang-a Ujgura Aŭtonoma Regiono, en decembro 2020. El tiu vizito mi aparte memoras, ke forte neĝis en kelkaj okazoj, kaj la akumulita neĝo sur stratoj kaj tegmentoj estigis tavolon pli dikan ol tiuj viditaj de mi antaŭe en aliaj lokoj. En la parkejo de la hotelo, neĝtavolo estis aparte dika kaj iuvespere mi kaj kelkaj kolegoj iom ludis en la neĝo post vespermanĝo. Tiam estis pandemio kaj mi bezonis submetiĝi al nukleacida testado por vojaĝi de Pekino al Xinjiang, kaj refoje por vojaĝi de Xinjiang (el la urbo Korla) al Pekino. Estis tre malvarme ĉi tie, sed kutime ne estis vento, male al Pekino, kie ofte ventegas dum vintro.
+
+Laŭ la mapo en mia poŝtelefono, estis parko ĉe la stratangulo, sed ĝi estis tute ĉirkaŭita de portempaj muroj, kaj tio donis al mi la impreson, ke la parko estis fermita por riparado. Mi eĉ pensis pri vizito al tiu parko, sed ĝi aspektis kvazaŭ forlasita, tute kovrita de neĝo kaj preskaŭ senhoma. Tio fakte estis pro la vintro: por sin protekti de la malvarmego, homoj preferas resti hejme.
+
+Mia dua vizito al Urumĉio estis en la printempo de 2021, kaj mi miris pri la tute alia urba pejzaĝo: anstataŭ la neĝo, estis verdo, plantoj kaj floroj ĉie, la vetero estis bonega kaj temperaturo estis tre agrabla. En tiuj du okazoj mi prenis la saman flugon CA1253 de la kompanio Air China, por atingi la urbon el Pekino. Alia koincido estas, ke oni aranĝis por mi ĉambron en la hotelo Xinjiang-Kunlun, la sama kie mi gastiĝis pasintfoje, kaj estis strange por mi vidi ĝian parkejon sen neĝo. Tiufoje mi bezonis akcepti nukleacidan testadon pri KOVIM-19 post alveno en ĉiu urbo kiun mi vizitis, krom tiuj du postulataj por vojaĝi el kaj al Pekino.
+
+La parko proksima al mia hotelo daŭre estis ĉirkaŭita de tiuj muroj, mi ne plu sciis, ĉu ili estis vere portempaj aŭ ne. Ĉu eble oni fermis la parkon dum vintro, kaj en printempo komencis ĝia riparado? Preterpasanta ĝin, mi rimarkis, ke la parko fakte estis malfermita al la publiko: estis unu enirejo kun gardisto kontrolanta ĉiujn vizitantojn kaj ŝildo indikanta la horaron de ĝia funkciado. Tio igis min eĉ pli scivolema: se oni riparas la parkon, kial ĝi estas malfermita al vizitantoj? Se vizitantoj rajtas viziti ĝin, do kial oni ĉirkaŭis ĝin per tiu malbela muro? Aŭ ĉu eble oni devas pagi por viziti ĝin, pro tio muro estas necesa? Tiukaze oni devus konstrui pli belan kaj bonkvalitan muron, ĉu ne?
+
+Nun, en novembro 2023, mi por la tria fojo revenis al Urumĉio. Mi alvenis per la sama flugo uzita en pasintaj fojoj, ĝi estas tre oportuna, ĉar oni ne bezonas vekiĝi tre frue en Pekino, stevardoj servas al ni tagmanĝon je la tagmanĝa horo, kaj ni atingas Urumĉion sufiĉe frue por iom ripozi aŭ promeni antaŭ la vespermanĝo. Reveninta al la urbo dum vintro, mi imagis la samajn neĝajn pejzaĝojn spertitajn de mi en 2020, sed mi fakte vidis malmulte da neĝo, ĉar ankoraŭ ne estas tiom malvarme kiel pasintfoje.
+
+Skiejo en la ĉirkaŭaĵoj de Urumĉio
+
+Multaj homoj eksterlande imagas Xinjiang kiel granda dezerto, kvankam vastaj stepoj kaj arbaroj kovras plejparton de ĝia teritorio kaj neĝo tiom abundas en kelkaj lokoj, ke en antikveco homoj en Altay inventis skiadon por amuziĝi dum vintro. Urumĉio troviĝas ĉe la bela montaro Tianshan, kies belecon mi ŝatas admiri tra la fenestro de aviadilo okaze de alveno kaj foriro, kaj ĉi tie la aero estas sufiĉe humida, male ol en Pekino. Ĉi tiu estas mia dua fojo en Urumĉio dum vintro, kaj ambaŭfoje mi spertis pluvon kaj neĝon, do mi ne miras, ke la aero en la urbo ne estas seka.
+
+Alvenonta al mia hotelo, la mistero pri la parko estis solvita: post la pandemio, oni demetis la improvizitan muron kiu ĉirkaŭis ĝin kaj ne plu estas enirejo kun gardisto. Nun la parko estas tute malfermita kaj homoj libere vizitas ĝin kiam ajn ili volas. Ĝi aspektas kiel vasta placo por homa kunvivado, kun aparatoj por ekzercado, benkoj por sidado kaj vojoj por promenado. Ĉi-foje mi fine komprenis, ke la muro kaj kontrol-rimedoj estis nur pro la pandemio kaj vizito al la parko ĉiam estis senpaga.
+
+La hotelo, fondita en 1959, ricevis kelkajn plibonigojn: oni modernigis la lifton kaj la kartoj por aliri la ĉambrojn estis ĉiuj ŝanĝitaj. Mi daŭre memoras la malnovajn, kun skribaĵo en la ĉina lingvo informante, ke kaze de perdo de la karto oni devus pagi monpunon je 30 juanoj, (mis)tradukita al la angla lingvo kiel 30 milionoj! La novaj kartoj estas beligitaj kaj kun pli bonaj anglalingvaj tradukoj. Krom tio, la hotelo konservas la komforton kaj ĉarmon kiun ĝi havis kiam mi unuafoje venis al Urumĉio.
+
+Ĉar tiu ĉi estas mia unua fojo en Urumĉio post la pandemio, ĉi-foje plejparto de la homoj surstrate ne uzas maskon sur vizaĝo. Post la pandemio, nun estas tre konvene iri tra la urbo, ĉar oni ne plu bezonas montri atestilon pri nekleacida testo por eniri domojn kaj turismejojn kaj homoj povas amasiĝi: iuvespere, survoje al la hotelo, mi vidis grupon de mezaĝaj virinoj dancantaj sur placo, tio estas ofta sceno en ajna loko de Ĉinio, kaj en Xinjiang ne estas malsame. Mi tamen miris pri tio, ke estas vintro kaj neĝo kovras plurajn lokojn en la urbo kaj ĝiaj ĉirkaŭaĵoj, sed eĉ tiel homoj renkontiĝas por danci subĉiele! En Pekino, dum vintro iuj dancemuloj renkontiĝas en subgrundaj pasejoj por sin protekti de la malvarmo.
+
+En la vintro de 2020, kiam mi unuafoje vizitis la Internacian Grandan Bazaron de Urumĉio, ĝi estis preskaŭ dezerta kaj ŝajnis al mi, ke preskaŭ ĉiuj homoj kiujn mi vidis tie estas lokanoj. En iu loko mi eĉ renkontis kelkajn vendistojn kune muzikantaj en la koridoro inter iliaj budoj por pasigi la tempon. En tiu tago forte neĝis, kaj tio certe kontribuis por malkuraĝigi homojn iri al la bazaro, sed eĉ tiel, la malvigleco de komerco kaj turismo en Urumĉio en tiu vintro estis evidenta.
+
+Homoj promenas en la Internacia Granda Bazaro.
+
+Kiam mi revenis al la Internacia Granda Bazaro en la printempo de 2021, mi trovis tute alian pejzaĝon: malgraŭ pli striktaj rimedoj kontraŭ KOVIM-19, la loko estis plena kaj de lokanoj, kaj de turistoj, estis dancoprezentadoj sur podio, verdaj plantoj, subĉielaj vendejoj kaj budoj... La etoso estis mirinda tiufoje, kaj turistoj jam bezonis enviciĝi por fotiĝi ĉe kelkaj famaj lokoj de la bazaro.
+
+Ĉi-foje mi miris, ke kvankam estas vintro, tamen la nombro de vizitantoj surprizas min: ja tre granda por vintro, kaj multaj estis turistoj irantaj tra la stratoj kun sakoj plenaj de tradiciaj produktoj de Xinjiang aĉetitaj en la bazaro. Mi vidis vicojn por fotiĝi ĉe kelkaj lokoj kaj komerco estas multe pli vigla ol dum la pandemio. Mi vizitis la samajn vendejojn, kie antaŭ tri jaroj vendistoj estis kunmuzikantaj por pasigi la tempon, kaj ĉi-foje ili estis okupataj pri klientoj.
+
+Miaj pasintaj vizitoj al tiu bazaro estis rapidaj, mi bezonis akompani grupon, ĉar pro manko de tempo ne eblus resti longe, sed ĉi-foje mi havis multe da tempo por libere promeni, babili kun homoj, intervjui, foti, filmi, kaj aĉetumi. Ĉar mi estis sola por registri filmeton, mi devis mem plenumi tion, kaj por tion fari mi uzis aparataron alportitan de mi el Pekino. Dum filmado, kelkaj preterpasantoj montriĝis scivolemaj, aparte pro Esperanto, ili volis scii, kiun lingvon mi estis parolanta. Tio estas aparte interesa afero por mi, ĉar en Xinjiang estas granda lingva diverseco, kaj surstrate oni aŭskultas la ĉinan, la ujguran, la kazaĥan, la taĝikan, la mongolan, inter pluraj aliaj lingvoj de lokaj etnoj. Kvankam aŭskulti nekonatan lingvon estas normale ĉi tie, tamen homoj sukcese rimarkis, ke mi estis parolanta en lingvo fremda al ili. Tio estas amuza sperto.
+
+Ĉi-foje mi ankaŭ konstatis, ke Urumĉio estas multe pli granda ol mi antaŭe imagis: mi vizitis vilaĝon en fora distrikto, kie troviĝas neĝkovritaj montoj kaj multaj skiejoj. Xinjiang estas loko oportuna por vintraj sportoj, ĉar ĉi tie montaroj kaj neĝo estas resursoj sufiĉe abundaj. Ne estas koincido, ke la plej antikvaj restaĵoj de skioj estis elfositaj en Xinjiang.
+
+Survoje al la montaro mi vizitis forcejon, kie homoj plantas tomatojn. Koincide, malpli ol du semajnoj antaŭe mi vizitis forcejon en Ŝanhajo, kies bildo estis ankoraŭ freŝa en mia memoro. Tra tuta Ĉinio homoj investas en modernigo de agrikulturo por kreskigi la kvanton kaj kvaliton de la rikoltaĵoj. Eblis konstati, ke agrikulturo en Xinjiang estas en la sama teknika nivelo de tiu praktikata en aliaj partoj de Ĉinio. En forcejo, produktado daŭras dum la tuta jaro, tiel ke homoj havas freŝajn legomojn kaj kreskaĵojn dum la tuta jaro. Aŭtomataj irigaciaj sistemoj reduktas la postulon pri homa laboro kaj speciala grundo estas uzata por provizi al la planto la ĝustajn nutraĵojn kiujn ili bezonas. Interese, la firmao, kiu produktas grundon uzatan en tiu forcejo por kreskigi la tomatojn estas el la marko Forteco, ĉu Esperanta vorto? Iel ajn, la tomatoj kiujn mi gustumis estis tre bongustaj, kaj la plantoj aspektis fortaj kaj viglaj.
+
+Samkiel en mia pasinta fojo en Urumĉio, ankaŭ ĉi-foje mi vizitis firmaojn por pli bone koni la disvolviĝon de la regiono, sed ĉi-foje la fokuso estis loĝistiko: mi vizitis la Internacian Nodon de Urumĉio kaj tie vidis trajnon ekiri. Tiu loko alportis al mia kapo rememorojn pri la Internacia Nodo de Horgos, ankaŭ en Xinjiang, kie mi, antaŭ ĉirkaŭ du jarojn kaj duono vidis ĉin-eŭropan kargotrajnon ekiri survoje al Kazaĥio.
+
+Kamionoj en la bazo de ZTO Express en Urumĉio
+
+Alia interesa loĝistika bazo vizitita de mi ĉi-foje estas tiu de ZTO Express, unu el la ĉefaj kurieraj firmaoj de Ĉinio. Nuntempe estas tre konvene aĉetumi en interreto, kaj la efikega loĝistiko de Ĉinio igas la ekspedadon rapida kaj bonpreza. Ankaŭ mi ŝatas aĉetumi en interreto, ĉar mi povas aĉeti tipajn produktojn de aliaj lokoj de Ĉinio kaj rapide ricevi ilin, kaj kelkfoje mi aĉetis produktojn el Xinjiang, kiuj atingis mian hejmon en Pekino post nur du tagoj! Mi ĉiam estis scivolema, kiel ili sukcesas tiom rapide ekspedi varojn, kaj dum vizito al centro de ZTO en Urumĉio mi konstatis la altnivelan aŭtomatigon de la procezo. Maŝinoj kapablas pli rapide kontroli la pakaĵojn kaj ilin direkti al la ĝusta celloko, kaj laboro de maŝino estas malpli kosta, kio reduktas la koston de la servo. Pro tio la ĉina loĝistiko estas tiom efika!
+
+Dum miaj pasintaj vojaĝoj al Xinjiang mi ofte vidis centrojn de ZTO kaj aliaj kurieraj firmaoj, kaj iliaj kamionoj estas facile videblaj sur aŭtovojoj de Xinjiang. Xinjiang estas vasta regiono, kiu kunligas tutan Ĉinion kun pluraj aliaj landoj, sekve ĝi havas grandan postulon por kamionoj, do kial ne fabriki kamionojn tie? Mi malkovris, ke tio ja okazas: estas fabriko de kamionoj kiu apartenas al Shaanxi-aŭtomobila Xinjiang-a Veturil-Kompanio Limigita (angle: Shaanxi Automobile Xinjiang Automobile Co., Ltd), firmao kiu apartenas al Shaanxi-a Aŭtomobil-Grupo (angle: Shaanxi Automobile Group). Kamionoj produktitaj en Urumĉio estas funkciigitaj per elektro aŭ tergaso, kontribuante por redukti emisiadon de CO₂ en Ĉinio. En tiu okazo mi havis ŝancon pli bone kompreni la diferencon inter tiaj kamionoj kaj la ordinaraj, funkciigataj per brulaĵo. Sekve mi rimarkis, ke elektraj kaj tergasaj kamionoj estas ja popularaj en Xinjiang, kaj tio helpas al Ĉinio atingi la du karbonajn celojn -- atingi karbonan pinton en 2030 kaj karbonan neŭtraligon en 2060.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Nokta bazaro en Kaŝgaro, Xinjiang
+
+**Published:** 2023-11-30
+
+**URL:** http://esperanto.china.org.cn/2023-11/30/content_116849882.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Inter la allogaĵoj de la urbo Kaŝgaro en Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio, unu aparte vizitinda vespere estas Khan-a Bazaro. Tie oni povas ne nur admiri la belan kaj unikan arkitekturon de la antikva urbo, sed ankaŭ vidi kaj aĉeti tipajn manartaĵojn kaj manĝaĵojn de la urbo.
+
+Enirejo de Khan-a Bazaro
+
+Loka vendisto kuiras pilafon por vendi al vizitantoj.
+
+Virino vendas lokan specialaĵon: supo farita el kolomba viando kaj rozoj.
+
+Laboristo rostas ŝafaĵon.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Drakjara versio de "Bing Dwen Dwen"
+
+**Published:** 2023-12-01
+
+**URL:** http://esperanto.china.org.cn/2023-12/01/content_116849748.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 29-an de novembro, novaj produktoj de la maskoto de Pekinaj Vintraj Olimpikoj estis publikigitaj. La produktoj estas inspiritaj de la tradiciaĉina kulturo kiel drakdanco kaj drakreĝo, kaj enhavas bonajn atendojn pri sano kaj rikolto. Kun la koncepto "unu mondo, unu familio", la produktoj kunfandis la drakkulturon de la ĉina nacio kaj la unuecan spiriton de Olimpikoj. La produkto estas speciala versio de "Bing Dwen Dwen" por la Jaro de Drako, do oni nomas ĝin "
+
+Long Dwen Dwen" (Draka Dwen Dwen).
+
+Redaktoro: Sheng Min
+
+El Popola Chinio
+
+
+---
+
+# Mathias Kavita: Akrobataĵo de mi lernita en Ĉinio ŝanĝis mian vivon
+
+**Published:** 2023-12-01
+
+**URL:** http://esperanto.china.org.cn/2023-12/01/content_116850055.htm
+
+**Categories:** Socia Vivo
+
+Antaŭ 40 jaroj, Mathias Kavita, kiu estis 13-jara, lernis akrobataĵon en Ĉinio. Post reveno al sia hejmlando Kenjo, li integrigis la akrobataĵojn kun afrika kulturo, kaj diskonigis ĝin loke.
+
+Nun, li fariĝis la plej bona trejnisto de akrobataĵo en Kenjo. Li instruis pli ol mil lernantojn kaj prezentas tra la mondo kun ili.
+
+Li diris: "Akrobataĵo havas grandan potencon en Kenjo, precipe por senlaboraj junuloj. Akrobataĵo ŝanĝis mian vivon. Mi prezentis ĝin en multaj lokoj en- kaj eksterlande. Ekzemple, mi ĵus revenis de Hispanio."
+
+Redaktoro: Sheng Min
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Plibonigo de akvokvalito en Jiashi-distrikto de Kaŝgaro
+
+**Published:** 2023-12-01
+
+**URL:** http://esperanto.china.org.cn/2023-12/01/content_116852058.htm
+
+**Categories:** Socia Vivo
+
+Ĝis antaŭ nelonge, aliro al trinkebla akvo estis malfacila por la loĝantoj de la distrikto Jiashi en la urbo Kaŝgaro de Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio. Pro topografiaj kaj akvogeologiaj trajtoj de la regiono, kaj ankaŭ la multaj tertremoj okazintaj tie, la kvanto da sulfuraĵoj kaj fluoraĵoj en loka akvo superis la maksimuman nivelon postulatan de la nacia normo de Ĉinio pri trinkakvo. En kelkaj loko, la nivelo de arseno trovita en la akvo ankaŭ estis super la maksimuma nivelo laŭ la ĉinaj normoj.
+
+Tio signifas, ke la akvo tie estis saleta kaj netaŭga por homa konsumado. Krom la risko por la sano de lokanoj, la malbona akvokvalito ankaŭ kontribuis por malvigligi la ekonomion de la distrikto kaj daŭrigi malriĉecon en la distrikto.
+
+Por solvi tiun problemon, la Centra Komitato de la Komunista Partio de Ĉinio investis 145 milionojn da juanoj en plibonigo de akvokvalito kaj preventado de malsanoj en la distrikto, kaj 1 749 miliardon da juanoj en projekto por devojigi akvon el lokoj foraj je centoj da kilometroj al kamparaj kaj urbaj areoj de la distrikto.
+
+Nuntempe akvokvalito estas kontrolata kaj trinkakvo estas sendata per kranaro al la hejmoj de homoj en la distrikto.
+
+La projekto estis granda sukceso, kaj ĝi ne nur alportis bonkvalitan akvon al la 460 mil loĝantoj de la distrikto, sed ankaŭ kreis stabilajn postenojn por homoj el malriĉaj familioj, kontribuante por malaperigo de malriĉeco en la distrikto. La registaro de la distrikto estigis sian propran agentejon pri operaciumado kaj administrado de akvorimedoj, kiu trejnis kaj dungis pli ol 500 lokanoj.
+
+Antaŭ la fino de la projekto, estis troa uzo de akvo el subgrundo, kaŭzante malbonigon de la loka medio. Post la konkludo de la projekto, putoj estis fermitaj por replenigi subgrundajn akvorezervojn kaj plibonigi lokan medion.
+
+Loĝanto de la distrikto boligas akvon en sia kuirejo: vivokvalito altiĝis.
+
+Post kiam la akvo en la distrikto atingis la naciajn postulojn pri akvokvalito, loka ekonomio pli vigliĝis: la rapida disvolvado de agrikulturo, bestobredado, sektoro serva, turismo kaj komerco alportis ŝancojn por entreprenado kaj kreis postenojn, kontribuante por forigo de malriĉeco kaj plua ekonomia prospero de la distrikto.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# 【Rafael en Xinjiang】Teoj de Xinjiang!
+
+**Published:** 2023-12-04
+
+**URL:** http://esperanto.china.org.cn/2023-12/04/content_116856583.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Tra la antikva Silka Vojo, ĉina teo fariĝis konata eksterlande. Ĉar la ĉefaj vojoj de la Silka Vojo trairis Xinjiang, kompreneble teo ankaŭ populariĝis en tiu regiono kune kun rakontoj pri la bona efiko de teo sur homa sano: en lokaj butikoj oni trovas plurajn kuracajn teojn. Dum vizito al tebutiko en Kaŝgaro, oni facile konstatas, ke en Xinjiang homoj preferas trinki teon kun sukero aŭ mielo, kaj tie ankaŭ estas la kutimo miksi teon kun floroj, por ke la teo sorbu la aromon kaj havu alian guston. Se vi vizitos Xinjiang, tamen, plej grave estas, ke vi gustumu laktoteon, ĝi estas loka specialaĵo tre bongusta!
+
+Kuraca teo vendata en butiko de Kaŝgaro
+
+Floroj, sukeroj kaj mieloj en kaŝgara tebutiko
+
+Teo miksita kun rozpetaloj. Ĉe ĝi oni vidas ŝminkon por virinoj, vendata en la sama butiko!
+
+Teoj kaj aliaj produktoj eksponataj sur breto de kaŝgara butiko
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Xi Jinping sendis gratulmesaĝon al Forumo de Liangzhu
+
+**Published:** 2023-12-04
+
+**URL:** http://esperanto.china.org.cn/2023-12/04/content_116856624.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 3an de decembro, ĉina prezidanto Xi Jinping sendis gratulmesaĝon al Forumo de Liangzhu.
+
+Jadaĵoj trovitaj el la ruinoj de Liangzhu
+
+Xi Jinping diris, ke la ruinoj de Liangzhu (loko de la urbo Hangzhou de la provinco Zhejiang, Ĉinio) estas la realaj atestoj de la kvinmiljara civilizacia historio de la ĉina nacio kaj trezoro de monda civilizacio, kaj ke ĉe la historia rivero la ĉina nacio starigis pintnivelan civilizacion per sia distinga kreemo kaj firma persistemeco; la ĉina civilizacio sin karakterizas per malfermeco, inkluzivigo, sorbemeco kaj lernemeco, kaj ĉiam ĉerpas la plej bonajn influojn el diversaj civilizacioj de la mondo.
+
+Li esperis, ke ĉiuj koncernaj partioj bone uzos la platformon de la forumo por kune akceli civilizacian dialogon inter tiuj landoj laŭlonge de "La Zono kaj Vojo", praktiki la mondan civilizacian iniciaton, plifortigi interŝanĝojn inter civilizacioj, por fine atingi amikecon kaj fratecon inter ĉiuj popoloj.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Okazis Seminario de la 75-a Datreveno de la Universala Deklaracio de Homaj Rajtoj
+
+**Published:** 2023-12-04
+
+**URL:** http://esperanto.china.org.cn/2023-12/04/content_116857146.htm
+
+**Categories:** Socia Vivo
+
+La 10-an de decembro estas la Monda Tago de Homaj Rajtoj. La 10-an de decembro 1948, la Ĝenerala Asembleo de Unuiĝintaj Nacioj publikigis la dokumenton
+
+Universala Deklaracio de Homaj Rajtoj
+
+. Por memorfesti la 75-an datrevenon de deklaracio, la Ĉina Societo pri Homaj Rajtoj okazigis seminarion en Pekino la 4-an de decembro, celante diskonigi la spiriton de la deklaracio kaj antaŭenigi la disvolviĝon de homaj rajtoj de la tuta homaro al pli justa, racia kaj inkluziva direkto. Ĉirkaŭ 100 homoj el la imformada departemento de la Centra Komitato de la Komunista Partio de Ĉinio, Ĉina Societo pri Homaj Rajtoj, ĉi-flankaj fakuloj kaj reprezentantoj de sociaj organizoj ĉeestis la seminarion.
+
+La deklaracio estas la unua speciala internacia dokumento pri homaj rajtoj aprobita de Unuiĝintaj Nacioj post la dua mondmilito. Ĝi estas la unua solena deklaro pri homaj rajtoj kaj fundamentaj liberoj farita de la internacia komunumo. Ĉinio estis aktiva partoprenanto en la starigo de la deklaracio kaj estis fervora propagandisto, rekomendanto kaj praktikanto de la deklaracio. Ĉinio ĉiam konsideras respekton kaj protektadon de homaj rajtoj kiel gravan taskon en administrado de la lando, kaj la aferoj por homaj rajtoj en Ĉinio akiris historiajn atingojn.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Homaj rajtoj en Xinjiang: Nekonataj eksterlande
+
+**Published:** 2023-12-07
+
+**URL:** http://esperanto.china.org.cn/2023-12/07/content_116864560.htm
+
+**Categories:** Socia Vivo
+
+Post mia transloĝiĝo al Pekino en 2015, ĉinaj amikoj tuj venigis min al restoracio de ujgura familio por gustumi tradician manĝaĵon de Xinjiang. Brazilanoj ŝategas rostitan viandon, kaj Xinjiang ne nur havas la plej bongustan rostitan viandon en Ĉinio, sed ankaŭ multajn aliajn bongustaĵojn kiel nudeloj, pilafo, jogurto kaj bakaĵoj, do mi fariĝis ŝatanto de xinjiang-a kuirarto.
+
+En Ĉinio multaj homoj havas la kutimon renkontiĝi por danci surstrate, tion mi vidis en ĉiuj lokoj kiujn mi vizitis, eĉ dum la vintro! Plurfoje mi vidis homojn dancantajn tipajn dancojn de Xinjiang en Pekino, kelkaj dancantoj eĉ ŝatas uzi taqiyah-n, ĉapelon popularan en Xinjiang.
+
+Lernantoj ludas post la lernejo en Turfano, Xinjiang.
+
+En miaj unuaj semajnoj en Ĉinio, mi facile konstatis, ke homoj ĉi tie ŝategas ujgurojn, do mi estis ŝokita kiam mi unuafoje aŭdis onidirojn pri etna persekutado kaj malobservo de homaj rajtoj de ujguroj en Xinjiang: tio ne povus esti vera. Laŭ tempopaso, akuzoj kontraŭ Ĉinio pri Xinjiang fariĝis pli kaj pli seriozaj kaj mi komencis analizi pli profunde la temon. Mia konstato estis, ke alilandaj amaskomunikiloj foje traktis ujgurojn kiel membrojn de etno, foje kiel membrojn de religia grupo, foje eĉ menciis aliajn etnojn de Xinjiang. Evidentiĝis, ke oni estis testanta malsamajn rakontojn por kontroli kiun el ili povus kaŭzi pli grandan damaĝon al la publika bildo de Ĉinio.
+
+Tiun bizaran konkurson venkis la rakonto pri trudlaboro, ŝajne pro ĝia pli forta povo malbone efiki sur la ĉina ekonomio. Sub premo, multaj alilandaj kompanioj ĉesigis siajn negocojn en Xinjiang.
+
+Pro tiuj onidiroj, mi, dum irado surstrate aŭ vizito al firmaoj en Xinjiang, ĉiam donis apartan atenton al la laboretoso kaj interagado inter homoj el malsamaj etnoj en Xinjiang, por tiel esti kapabla montri la veron al miaj legantoj.
+
+En ĉiu firmao vizitita de mi en Xinjiang, mi vidis homojn el malsamaj etnoj laborantaj kune en la sama funkcio kaj vestantaj la samajn uniformojn kaj protektilojn. Neniam mi trovis spuron de etna diskriminacio. Pluraj fabrikoj en Xinjiang havas altgradan aŭtomatigon, kelkaj eĉ aplikas teknikojn pri 5G-a interreto kaj Interreto de Aferoj. Tiuj fabrikoj postulas altkvalifikitajn laboristojn, kies teknikaj kapabloj ne kongruas kun la metodo de trudlaboro.
+
+Kazaĥa pentristo laboras en sia ateliero en Yili, Xinjiang.
+
+En 2017, mi vizitis kamionfabrikon en la urbo Jinan de la provinco Shandong, kaj en novembro ĉi-jare mi vizitis alian kamionfabrikon en Urumĉio de Xinjiang. Malgraŭ tio, ke ambaŭ fabrikoj apartenas al malsamaj firmaoj kaj estas en malsamaj flankoj de la mapo de Ĉinio, la nombro de laboristoj, la laboretoso kaj laborkondiĉoj estas esence samaj.
+
+Ankaŭ ĉi-jare mi havis la oportunon viziti forcejojn en Nankino, Ŝanhajo kaj Urumĉio, kie oni kreskigas tomatojn sub kontrolataj kondiĉoj kaj laŭ novaj agrikulturaj teknikoj. Evidente estas teknikaj diferencoj inter tiuj forcejoj, sed ili ĉiuj produktas altkvalitajn kaj bongustajn tomatojn. Ĉi-foje mi denove konstatis, ke ne estas signifa diferenco inter Xinjiang kaj orienta Ĉinio rilate al laborkondiĉoj kaj teknologio.
+
+Specife kadre de la kotona industrio, malnovaj raportoj kaj dokumentoj pruvas, ke en la pasinteco homoj el aliaj lokoj de Ĉinio kutimis iri al Xinjiang por labori en kotonrikolto kaj poste reveni al siaj hejmlokoj, kio atestas mankon de laborforto kaj bezonon investi en maŝinrikoltado por solvi tiun problemon. Nuntempe, maŝinoj por rikolti kotonon estas produktataj de CRCHI Xinjiang-a Kompanio Limigita en Urumĉio. Dum mia vizito al ĝia fabriko en 2021, mi estis informita, ke unu maŝino faras la laboron de 1 200 homoj. Kalkulu vi mem la koston, kaj vi certe konkludos, ke maŝinrikoltado estas pli bonpreza ol trudlaboro!
+
+Sed tio kio plej impresis min en Xinjiang estis la granda laboro farita por malaperigi malriĉecon. Mi vizitis kelkajn vilaĝoj kaj distriktoj liberigitaj el malriĉeco en Xinjiang kaj tie aŭdis rakontojn de lokanoj pri la antaŭa vivio. Eĉ en kamparo mi trovis sekurajn domojn kun kranakvo, elektro kaj interreto.
+
+Mi agnoskas, ke vivo en Xinjiang ne estas tiom oportuna kiel en Pekino aŭ Ŝanhajo, sed ĝi certe estas multe pli bona nun ol ĝi estis antaŭ jardeko. Kaŝgaro estas bona ekzemplo de tiu granda ŝanĝo: en la 1990-aj jaroj, la urbo estis aparte konata pro la granda kvanto de malgrandaj azenoj sur ĝiaj stratoj. Tiuj azenetoj estis uzataj por transporti homojn kaj ĉarojn. Pasintmonate mi vizitis Kaŝgaron kaj ne vidis eĉ unu el tiuj azenetoj. Tie nuntempe oni uzas aŭtojn, motorciklojn kaj triciklojn en la ĉiutaga vivo.
+
+Lokano sur sia triciklo aĉetumas en butiko en Kaŝgaro.
+
+Ĉiu ĉino, sendepende de etno, lingvo, religio aŭ naskiĝloko, estas konsiderata kiel parto de la sama popolo kaj ne povas esti postlasita en la procezo de nacia disvolvado. Kiel konsekvenco de tio, granda porcio de la enspezo de la plej disvolviĝintaj lokoj en Ĉinio estas transdonata al la nacia registaro por ke ĝi disdonu tiun monon al la malplej disvolviĝintaj lokoj, inkluzive de Xinjiang. Krome, la pli disvolviĝintaj urboj de Ĉinio kutime estigas partnerecojn por kundividi spertojn kaj plifortigi interŝanĝojn kun tiuj malpli disvolviĝintaj, por helpi ilin disvolviĝi.
+
+Samtempe, ekster Ĉinio, ofte la registaroj de pli riĉaj urboj aŭ provincoj kutime uzas la argumenton, ke ili respondecas pri pli granda porcio de la nacia MEP, sekve meritas pli da investoj kaj privilegioj.
+
+Antaŭ tri jaroj, dum vizito al Yongkutuanjie-vilaĝo en Kuqa, Aksu-regiono de Xinjiang, oni rakontis al mi mirindan rakonton pri popola unuiĝo: antaŭ jardekoj, homoj el kvin malsamaj etnoj migris al tiu distrikto por helpi lokajn ujgurojn transformi la dezerton en bienojn. Tiel naskiĝis la vilaĝo, nun ĉirkaŭita de bienoj, plejparto el ili produktantaj granatojn, la loka specialaĵo. Sed malriĉeco persistis en tiu loko, kaj la vilaĝo rcevis helpon de Ningbo-urbo de Zhejiang-provinco por sukcese liberiĝi de malriĉeco.
+
+Kiam mi estis en Zhejiang-provinco, mi enamiĝis de la monto Tiantai, kie naskiĝis Hehe (harmonia kunvivado), antikva kultura koncepto de Ĉinio kun historio de pli ol 1 800 jaroj, kies signifo estas samtempe simpla kaj profunda, kaj antaŭenigas la valorojn de paco, solidareco kaj toleremo. Dum lernado pri Hehe-kulturo, mi rimarkis, ke esence ĝi entenas la samajn valorojn de la xinjiang-a spirito de la Silka Vojo. Tianshan kaj Tiantaishan estas multe pli proksimaj unu de la alia ol homoj supozas.
+
+Ĉi-jare, dum vizito al la moskeo Eidgah en Kaŝgaro, mi vidis tapiŝon kun bildo de granatfloro ĉirkaŭita de aliaj 56 floroj, ĉiuj kunligitaj. Ili reprezentas unuiĝon de la 56 etnoj de Ĉinio ĉirkaŭ la patrolando. Tiuj granatfloroj alportis al mia kapo rememorojn pri Yongkutuanjie-vilaĝo kaj la subteno ricevita de ĝi el Ningbo por forlasi malriĉecon.
+
+Alia leciono kiun mi lernis en Xinjiang temas pri la graveco de diverseco: en Xinjiang-a Universitato pri Artoj, mi vidis studentojn el malsamaj etnoj ludantaj tradiciajn muzikilojn de Ĉinio. Ĉiu muzikilo sola povas fari agrablan melodion, sed malsamaj muzikiloj kune faras muzikon multe pli viglan kaj belan.
+
+Kune kiel la semoj de granato, la 56 etnoj de Ĉinio kune konstruas brilan estontecon!
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Mi revenis al Turfano post tri jaroj
+
+**Published:** 2023-12-08
+
+**URL:** http://esperanto.china.org.cn/2023-12/08/content_116865063.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La urbo Turfano en Xinjiang-a Ujgura Aŭtonoma Regiono tre impresis min okaze de mia vizito antaŭ tri jaroj. La urbo ne troviĝas for de Urumĉio kaj eblas rapide atingi ĝin per altrapida trajno. Pro tio, multaj turistoj en Urumĉio elektas iri al Turfano por unutaga vizito kaj reveni en la sama tago.
+
+Kelkaj trajnoj ekirontaj el urumĉia stacidomo. Trajnoj kun numeroj komencantaj per litero C aŭ D estas altrapidaj.
+
+Miaj du vizitoj al Turfano estis tiaj, ambaŭfoje mi frue iris al stacidomo kaj revenis nokte al la hotelo, post densa tagordo. La trajnoj inter Urumĉio kaj Turfano ne estas tre rapidaj, ili vojaĝas je maksimuma rapideco de 200 kilometroj hore, sed la vojaĝo daŭras malpli ol unu horo, sufiĉe rapida kaj bonpreza. Nun mi konas Xinjiang pli bone kaj sukcesis analizi la hortabelon de trajnoj en urumĉia stacidomo: por pli longaj vojaĝoj, ekzistas trajnoj pli rapidaj, kaj mi miris pri la kvanto da altrapidaj trajnoj irantaj inter pluraj urboj de Xinjiang.
+
+En Turfano, mi por la dua fojo vizitis la ruinojn de la antikva urbo Yar, ankaŭ konata kiel Jiaohe. Pasintfoje, kiam mi vizitis ĝin, estis antaŭ la sunsubiro, kaj mi faris belajn fotojn de la ruĝa suno inter la ruinoj. Ĉi-foje mi iris matene kaj povis admiri la ruinojn sub aliaj lumkondiĉoj. Antikvaj ruinoj en Turfano tre interesas min, ĉar mi taksas ilin kiel ŝlosilajn lokojn por kompreni la historion de la Silka Vojo. Yar estis grava urbo laŭlonge de la Silka Vojo.
+
+Mi tre ŝatus viziti la ruinojn de la antikva urbo Gaochang, ankaŭ en Turfano, sed neniam havis la oportunon. Ĉi-foje, tamen, mi vizitis la Turfanan Muzeon, kiu estas ja elstara! En tiu muzeo estas eksponataj pluraj antikvaĵoj elfositaj en la ruinoj de Yar, Gaochang kaj aliaj arkeologiejoj de Turfano. Mi facile pasigus tutan tagon en tiu muzeo detale analizanta la antikvaĵojn.
+
+Turistoj estas aparte allogataj de la mumioj konservataj en tiu muzeo, ilia stato ja estas tre bona. La kondiĉoj en la dezerto kontribuas por konservi kadavrojn, kaj pro tio en Xinjiang troviĝas elstaraj kolektoj de mumioj. Mi antaŭ tri jaroj vizitis en la urbo Korla la famajn mumiojn de Tarim-baseno, inkluzive de la Belulino de Tarim, la plej fama mumio de Xinjiang. Ĉi-foje en Turfano mi vidis mumiojn elfositajn en la tombejo Astana, proksime al la ruinoj de la urbo Gaochang.
+
+La plej antikva protezo en la mondo estas eksponata en Turfana Muzeo.
+
+En la muzeo estas antikvaĵoj de prahistorio ĝis nia epoko, montrantaj la teknikan, politikan kaj ekonomian evoluadon de la regiono, kun spuroj pri migradoj kaj interagado inter malsamaj etnoj kaj ankaŭ pri komerco kun aliaj partoj de Ĉinio kaj landoj laŭlonge de la Silka Vojo. Silko estis populara en tiu regiono jam en antikveco, samkiel teo kaj porcelano. Aparte kaptis mian atenton la ekzisto de brodaĵoj el Sichuan, tritiko, nang (bakaĵo simila al pano, tre populara en Xinjiang) kaj nudeloj inter la aferoj trovitaj en Astana-tombejo. Alia tre interesa eksponaĵo de la muzeo estas la plej antikva protezo ĝis nun trovita en la mondo.
+
+Pasintfoje en Turfano mi vizitis Xinchengximen-karezon kaj tie ekkonis tiun alian mirindaĵon de tiu speciala urbo. Se vi ne scias kio estas karezo, indas legi mian rakonton pri tiu vizito (http://esperanto.china.org.cn/2020-12/11/content_77001595.htm). Ĉi-foje mi vizitis Miyimbay-karezon, kio estas la plej longa en la mondo, kun longeco de 11 km.
+
+Ambaŭ vizitoj komplementas unu la alian, mi pensas, ke Xinchengximen havas pli didaktikan kaj kompletan bazan klarigon pri la funkciado de karezo, dum Miyimbay prezentas bonajn modelojn kaj imitaĵojn, kiel oni fosis karezon en antikveco kaj kiel la tekniko evoluis laŭ tempopaso. En Miyimbay-karezo mi ankaŭ sukcesis vidi la akvon irantan el la subtero al najbara paŝtejo, kie virino estis paŝtanta siajn kaprojn. Cetere, ĉi-foje mi trinkis la akvon de la karezo. Imagu: tiu akvo venas de la degelo de Tianshan-montaro, iras subgrunde dum pluraj kilometroj sub la Flama Monto, la plej varma loko en la mondo, por sekve atingi tiun tunelon kie mi fine trinkis ĝin!
+
+Okaze de mia pasinta vizito al Turfano, mi pasigis plejparton de mia tempo en kamparo: krom la ruinoj de Yar, mi ankaŭ vizitis la Flaman Monton kaj la kavernaron Bezeklik. Ĉi-foje mi restis ĉefe en la urbo, kio donis al mi oportunon analizi la ĉiutagan vivon de lokanoj: komercistoj antaŭ siaj vendejoj, homoj interbabilantaj, studentoj irantaj surstrate post lernejo, interalie. El tiuj etaj scenoj de la ĉiutaga vivo mi multe lernas pri lokaj kutimoj kaj vivstilo.
+
+Turfano estas aparte fama pro siaj bongustaj vinberoj, irigaciataj per la akvo de karezoj. Krom la bongustaj naturaj fruktoj, Turfano ankaŭ havas la tradicion produkti sekigitajn vinberojn, pendigante la vinberojn ene de tre simplaj domoj kun muroj plenaj de truoj por aercirkulado. La varmego de la regiono dum somero kontribuas por sekigi la fruktojn.
+
+Mi trinkis freŝan akvon el la plej longa karezo en la mondo.
+
+Pasintfoje mi vidis tiujn vinber-sekigejojn el malproksime, kaj ĉi-foje mi vizitis unu ĉe la elirejo de la karezo, konstruita nur por montri al turistoj la procezon de vinber-sekigado. Fine de la tago, tamen, mi iris al la gastejo de s-ino Reziyemu Kadir, kiu troviĝas apud vasta vinberkampo.
+
+Mi foje vidis fotojn de ŝia gastejo en reklamoj pri turismaj ekskursoj el Pekino, ŝia gastejo ŝajnas al mi populara pro situo: turistoj kiuj iras al Turfano en somero volas viziti la bienojn, pluki vinberojn kaj viziti la famajn vinber-sekigejojn. Apud ŝia gastejo oni povas fari ĝuste tion, kaj turismo alportas kromenspezon al lokaj bienoj, kontribuante por revigligi la lokan kamparon. Mia vizito okazis dum vintro, sekve mi ne vidis turistojn nek la verdajn vinberujojn plenajn de fruktoj kiujn mi vidis en reklamoj. Mi tamen konstatis, ke la pejzaĝo tie certe estas belega, kaj ankaŭ plena de turistoj en somero.
+
+Kiel urbo fama pro siaj vinberoj, estas nature ke pli aŭ malpli frue oni volus produkti vinon en Turfano (en ĉi tiu artikolo mi uzas la vorton vino specife por "vino el vinberoj". En Ĉinio kaj kelkaj aliaj aziaj landoj homoj havas la kutimon uzi tiun vorton por ajna alkoholaĵo). Tie mi vizitis firmaon pri vinoj kaj estis impresita de ilia grandega vinkelo. Krom farado de vinoj, la firmao ankaŭ konstruis hotelon por kromenspezi el turismo kaj disponigas al gastoj apartamentojn en formo de bareloj apud la vinberujoj.
+
+Kiam mi venis al Ĉinio kaj unuafoje gustumis ĉinan vinon, mi sentis, ke importita vino estas multe pli bona. Antaŭ tri jaroj, en Korla, ankaŭ en Xinjiang, mi unuafoje gustumis bongustan kaj altkvalitan ĉinan vinon, kaj konstatis, ke Ĉinio havas potencialon en tiu kampo. Nun mi opinias, ke en estonteco ĉinaj vinoj estos renomaj internacie.
+
+Mi revenis al Urumĉio malfrue kaj tre laca, sed tiu tago en Turfano estis memorinda!
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Vino el Turfano
+
+**Published:** 2023-12-11
+
+**URL:** http://esperanto.china.org.cn/2023-12/11/content_116866175.htm
+
+**Categories:** Ekonomio
+
+Turfano en Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio estas loko plena de fekunda grundo, kie de antikveco kreskas fruktoj kaj grenoj danke al la unika irigacia sistemo nomita karezo, kiu transportas akvon el Tianshan-montaro subgrunde ĝis tie. Vinberoj estas la plej famaj produktoj en Turfano, do kial ne fari vinon tie? Tianlu-a Vin-kompanio tie konstruis sian vinfabrikon Kastelo Tianlu, kaj tie ankaŭ faris hotelon por turistoj. Vinoj el Turfano jam gajnis gravajn premiojn en Ĉinio kaj eksterlande.
+
+Krom ĉambroj en la kastelo, la hotelo ankaŭ luas apartamentojn en formo de barelo.
+
+Blanka kaj ruĝa vinoj: la ĉefaj produktoj de la firmao
+
+Tianlu ankaŭ fabrikas konjakon kaj aliajn alkoholaĵojn.
+
+Por kontentigi la postulon de ĉinaj konsumantoj, Tianlu ankaŭ produktas baijiu, tipe ĉina alkoholaĵo.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Prezidanto de UEA vizitis sidejon de ĈEL en Pekino
+
+**Published:** 2023-12-12
+
+**URL:** http://esperanto.china.org.cn/2023-12/12/content_116873705.htm
+
+**Categories:** E
+
+La 8-an de decembro Duncan Charters, prezidanto de Universala Esperanto-Asocio (UEA), kaj lia edzino Cecily Lee vizitis la sidejon de Ĉina Esperanto-Ligo (ĈEL) en Pekino, kaj ĝoje interparolis kun la membroj de la sekretariejo de la ligo kaj la redaktejo de
+
+El Popola Ĉinio
+
+(EPĈ).
+
+Kun la celo kunlabore antaŭenpuŝi Esperantajn laborojn, li intervidiĝis kun Du Zhanyuan, prezidanto de Ĉina Internacia Komunika Grupo (ĈIKG), administra organizo de ĈEL kaj Liu Dawei, prezidanto de ĈEL. Ĉeestis al la intervidiĝo vicprezidanto de ĈIKG kaj esperantisto Yu Tao kaj vicprezidantoj de ĈEL Chen Wenge kaj Wang Hanping.
+
+Duncan Charters en la intervidiĝo kun Du Zhanyuan (dekstre)
+
+Du Zhanyuan bonvenigis sinjoron Duncan. Li konigis al Duncan la longperiodan subtenadon de la ĉina registaro al Esperanto-movado kaj ĈEL, kaj la laborojn de ĈIKG en la kampo de Esperanto. Du Zhanyuan dankis Duncan pri la subtenoj kaj helpoj de UEA al ĈEL. Li diris, ke Esperanto ludas unikan rolon por antaŭenigi interŝanĝojn kaj reciprokan lernadon inter malsamaj civilizacioj. ĈIKG, kiel ampleksa internacia komunika organizo, plue okazigos kunlaborajn projektojn kun UEA en tradukado kaj eldonado, amaskomunikado, trejnado kaj kulturaj eventoj, celante, ke Esperanta afero plue akcelu kulturajn interŝanĝojn kaj kunlernadon inter civilizacioj.
+
+Duncan laŭdis la aktivan rolon ludatan de Ĉinio en internacia Esperanto-movado kaj eminentaj kontribuoj de ĈIKG por diskonigo de la ĉina kulturo. Li diris, ke la idealo de Esperanto ĝuste estas transpaŝi kulturajn barojn por kulturaj interŝanĝoj. UEA volas kunlabori kun ĈIKG en la kampoj de internacia diskonigo, edukado pri Esperanto kaj tiel plu, por ke Esperanto, kiel pontolingvo, faciligu interkompreniĝon inter malsamaj landoj kaj kulturoj.
+
+Kunfotiĝo de ĉeestantoj
+
+Posttagmeze, Duncan kaj Cecily vizitis Yongtai-bazlernejon kaj Taikang-maljunulejon. Ilin akompanis Wang Hanping kaj Chen Ji, ĝeneralaj sekretarioj de ĈEL, kaj Jiang Limin, vicĝenerala sekretario de ĈEL.
+
+La paro eniris en la ĉambrojn de la bazlernejo kaj aŭskultis raportojn pri instruado de Esperanto al la infanoj. Sekve, ili spektis kantojn kantitajn de lernejanoj kaj ludis kun la infanoj. Duncan alte taksis la malfermon de la E-kurso kaj esprimis bondezirojn al la lernejanoj.
+
+Kun la infanoj
+
+Kunfotiĝo en Yongtai-bazlernejo
+
+Sekve, ili vizitis Taikang-maljunulejon, kie la veterana esperantisto Li Weilun loĝas kaj malfermis kurson de Esperanto. Kelkaj kursanoj de Li Weilun scipovas ankaŭ la anglan, rusan, japanan, hispanan aŭ aliajn lingvojn. Duncan kuraĝigis la maljunulojn daŭre lerni pli da lingvoj kaj klopodi fariĝi poliglotojn por plifortigi interkulturan komunikadon.
+
+Duncan babilas kun E-kursanoj
+
+Kunfotiĝo en Taikang-maljunulejo
+
+El Popola Chinio
+
+
+---
+
+# Gvidantaro de KPĈ kunvenis pri ekonomia laboro de 2024
+
+**Published:** 2023-12-12
+
+**URL:** http://esperanto.china.org.cn/2023-12/12/content_116874123.htm
+
+**Categories:** Ekonomio
+
+La 8-an de decembro, la Politika Buroo de la Centra Komitato de la Komunista Partio de Ĉinio (KPĈ) okazigis kunvenon por analizi kaj studi la ekonomian laboron de 2024.
+
+La kunveno rimarkigis, ke la ĉina ekonomio atingis renormaliĝon ĉi-jare kaj la altkvalita disvolviĝo de la lando akiris solidan progreson. Ĝi emfazis rimedojn por efike pliigi ekonomian viglecon, antaŭzorgi kaj solvi riskojn, plialtigi sociajn atendojn kaj solidigi kaj plibonigi la pozitivan tendencon de ekonomia rebonigo en la ekonomia laboro de 2024.
+
+La kunveno urĝis klopodojn por serĉi progreson dum certigo de stabileco, solidigi stabilecon per progreso kaj starigi la novan antaŭ ol forigi la malnovan pri la ekonomia laboro venontjare.
+
+(el ĈRI)
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# Homoj ne plu kredas onidirojn pri trudlaboro en Ĉinio
+
+**Published:** 2023-12-13
+
+**URL:** http://esperanto.china.org.cn/2023-12/13/content_116874164.htm
+
+**Categories:** Socia Vivo
+
+Laŭ pluraj kriterioj, Ĉinio jam estas ĉefa ekonomio de la mondo. Laŭ la "kleruloj" de sociaj retejoj, tio rezultas de la utiligo de "trudlaboro" fare de Ĉinio. Tio estas mensogo kaj unu el la plej ŝatataj argumentoj por fifamigi la ekonomian disvolviĝon de Ĉinio.
+
+Laboristinoj en Chongqing festas la Tagon de Laboristoj (Foto: Xinhua)
+
+Unu el miaj plej ŝatataj esploristoj pri Ĉinio, Isis Paris Maia, delonge kontraŭbatalas tiun mensogon en sociaj retejoj. Diplomiĝinte pri historio, magistro kaj doktoriĝonto pri ŝtata politiko ĉe Federacia Universitato de Suda Riogrando, Isis esploras pri ĉinaj institucioj kaj regado de Ĉinio.
+
+"Kiam ni tajpas en Google 'trudlaboro en Ĉinio', la unua ligilo jam montras, ke tio estas mensogo. Estas pluraj studoj pri tiu temo, inkluzive de tiu de Usona Asocio pri Ekonomiko. Do kial ni reen kaj reen aŭdas tiun argumenton?" Ŝi prezentas du kialojn por tio:
+
+1. Manko de scioj. La trajno de ĉina historio kuras tre rapide kaj homoj eksterlande ankoraŭ bildigas la landon, kia ĝi estis en la epoko de ekindustriiĝo.
+
+2. Antaŭjuĝoj. Estas fakto, ke ekspluatado de malriĉuloj kiel laborforto okazas en ĉiuj malriĉaj landoj. Bedaŭrinde ni ne vidas tiun saman entuziasmon por diskuti laborleĝojn kaj laborrajtojn en Brazilo, kie dum la lastaj jaroj okazis pluraj denuncoj pri vera laboro sub kondiĉoj analogaj al sklaveco.
+
+Laboro sub kondiĉoj analogaj al sklaveco en Brazilo
+
+Isis instigas brazilajn retanojn rigardi al ilia propra lando antaŭ ol fingremontri Ĉinion, kaj oficialaj datumoj pravigas ŝin: nur en 2023, entute 2 847 laboristoj estis liberigitaj el laboro sub kondiĉoj analogaj al sklaveco.
+
+Tiu cifero el 2023 jam estas la plej alta en la pasintaj 14 jaroj kaj rezultis en historia rekordo pri pago de kompensoj al la viktimoj. En tiu periodo, Ministerio pri Laboro kaj Dungado inspektis 516 urbajn kaj kamparajn entreprenojn, kio rezultigis en elspezoj de entute R$ 10.8 milionoj pri pago de malfruaj salajroj kaj kompensoj al savitaj laboristoj.
+
+La brazila esploristo Isis Paris Maia dum vojaĝo al Ŝanhajo. Foto el Instagram
+
+En ajna lando, ekspluatado de homoj rezultas de malegaleco
+
+Revene al la akuzoj pri trudlaboro en Ĉinio, en oktobro 2022, Isis klarigis, per sia konto en Tvitero (poste alinomita kiel X) tiun okcidentan kliŝon pri ekzisto de laboro analoga al sklaveco en Ĉinio.
+
+Ŝi substrekas, ke Ĉinio de la 1990-aj jaroj ne estas la sama de 2022 aŭ 2023. Ekspluatado de laboristoj okazas en ĉiuj landoj kun granda socia malegaleco, kaj tio tute ne signifas, ke registaroj de tiuj landoj subtenas tiun ekspluatadon. Por tion konstati, sufiĉas analizi la informojn pri Brazilo.
+
+La esploristo ankaŭ substrekas, ke nuntempe ĉinaj laboristoj laŭleĝe laboras averaĝe 40 horojn semajne kaj havas sistemon de socia sekureco kiu inkludas pension post emeritiĝo kaj asekurojn pri laborakcidento, patri(ni)ĝo kaj maldungo.
+
+Isis ankaŭ priatentas la fakton, ke ekde 2017 la averaĝa salajro en ĉinaj fabrikoj estas pli alta ol tiu pagata en landoj kiel Brazilo, Argentino kaj Meksiko, kaj alproksimiĝas al tiu de kelkaj landoj de Eŭropa Unio, kiel Portugalio kaj Grekio.
+
+Kiam la temo estas aĉetopovo, Ĉinio refoje venkas: salajro en Ĉinio averaĝe kreskis je 8.6% jare super la inflacio, laŭ statistikoj. En la sama periodo, en Brazilo, la aĉetopovo de laboristoj revenis al la nivelo de 2012. Nuntempe salajro de laboristo en Ĉinio estas trioble ol tiu de laboristo en Brazilo.
+
+Okcidento diskonigas mensogojn, sed ankaŭ atestas la veron
+
+Por plidetale kompreni la malveron pri trudlaboro en Xinjiang, Isis rekomendas du studojn, unu estas de Usona Asocio pri Ekonomiko, publikigita en 2012. Kvankam farita antaŭ pli ol jardeko, ĝi prezentas la ŝanĝojn en la ĉina ekonomia modelo ekde la fino de la 1970-aj jaroj.
+
+La dokumento titolita
+
+The End of Cheap Chinese Labor
+
+(La Fino de Ĉina Malaltkosta Laboro) konsideras, ke bonpreza laborforto estis, dum jardeko, kerna faktoro por la ĉina ekonomia modelo, kies kresko dependis de ampleksa partopreno en internacia komerco.
+
+En 1978, dum frua stadio de la politiko pri reformo kaj pordmalfermo, averaĝa jara salajro de urba ĉina laboristo estis je nur US$1 004, tio estis 3% de averaĝa salajro en Usono kaj malpli ol salajroj pagataj en najbaraj landoj, kiel Filipinoj kaj Tajlando. Sed salajroj en Ĉinio senĉese kreskas.
+
+En 2010, la averaĝa jara salajro de urba laboristo en Ĉinio atingis US$5 487, en la sama nivelo de salajroj en Filipinoj kaj Tajlando kaj super tiuj pagataj en Barato kaj Indonezio. Ekde la fino de la 1990-aj jaroj, salajroj en Ĉinio kreskis pli rapide ol produktiveco, kio atestas, ke laborforto en Ĉinio fariĝas pli kosta. Tiu salajrokresko ne estas limigita al specifa sektoro, ĝi okazas kaj ĉe la marbordo kaj en la landinterno, kaj por kvalifikitaj kaj por nekvalifikitaj laboristoj.
+
+Esploroj montras, ke ĉina laborforto estis malaltkosta ĝis la fino de la 1990-aj jaroj, sed ekde tiam ĝia relativa kosto kreskas. Inter la ĉefaj faktoroj kiuj impulsis tiun salajrokreskon estas la plialtigo de produktiveco kaj la kreskanta postulo pri kvalifikitaj laboristoj.
+
+Alia studo rekomendita de la esploristo estas disponebla ĉe Social Science Research Network, reta platformo por faciligi aliron al esploroj en homaj kaj sociaj sciencoj.
+
+Sub la titolo
+
+The Myth of Worker Exploitation in the Chinese Manufacturing Sector
+
+(La Mito pri Ekspluatado de Laboristoj en Ĉina Fabrika Sektoro), la artikolo publikigita en 2019 rezultas de esploro pri ĉina fabrikado bazita sur monopsonio (situacio kiam ekzistas nur unu aĉetanto por iu produkto aŭ servo). La studo konkludis, ke la povo de ĉina fabrika sektoro pri ekspluatado de laboristoj aŭ monopsonio estas malpli granda ol antaŭvidite.
+
+Fakto estas, ke la pecoj sur la tabulo de monda geopolitiko moviĝas, indikante, ke ne eblas bremsi Ĉinion ŝanĝi la globan ŝakon.
+
+Verkita de Iara Vidal, brazila ĵurnalisto
+
+Tradukis: Rafael Henrique Zerbetto
+
+Fonto: Revista Forum
+
+El Popola Chinio
+
+
+---
+
+# Esperanto-Muzeo en Zaozhuang okazigis ceremonion de 10-jara jubileo
+
+**Published:** 2023-12-13
+
+**URL:** http://esperanto.china.org.cn/2023-12/13/content_116877300.htm
+
+**Categories:** E
+
+La 10-an de decembro okazis en Zaozhuang-urbo, Shandong-provinco de Ĉinio, ceremonio por la 10-jara jubileo de Esperanto-Muzeo.
+
+Kunfotiĝo de partoprenantoj post la ceremonio
+
+Ĝin ĉeestis pli ol 200 partoprenantoj, inkluzive de Liu Dawei, vicprezidanto de Ĉina Internacia Komunika Grupo (ĈIKG) kaj prezidanto de Ĉina Esperanto-Ligo (ĈEL), Duncan Charters, prezidanto de Universala Esperanto-Asocio (UEA), Ragnar Baldursson, eksa konsilisto de la islanda ambasadorejo en Ĉinio, Chimedtseren Enkhee, ĝenerala sekretario de Mongola Esperanto-Asocio, kaj gvidantoj de Administracio pri Kultura Heredaĵo de Ĉinio（National culture heritage administration）, Shandong-provinco kaj Zaozhuang-urbo.
+
+En la ceremonio
+
+Liu Dawei diris, ke Esperanto-Muzeo estas unu el la nomkartoj de ĉina Esperanta afero. La muzeo jam akceptis pli ol 60 mil vizitantojn ekde malfermiĝo en novembro 2013 kaj gajnis renomon tutmondan. La muzeo funkcias por miloj da lernantoj kaj vizitantoj por ke ili sciu la Esperantajn idealon, kulturon kaj movadon, konu novan flankon de socia scienco kaj rigardu la historion, realon kaj estontecon de la homaro. Liu Dawei faris tri proponojn al ĉinaj esperantistoj: Unue, Esperanto estu peranto por ĉina modernigo; due, Esperanto estu platformo por la homara komunumo de komuna estonteco; trie, Esperanto estu ponto por kulturaj interŝanĝoj kaj interlernado de civilizacioj. ĈEL plifortigos gvidadon al diverslokaj Esperanto-asocioj, plie helpos sociajn fortojn kaj la esperantistaron subteni la muzeon por realigi altkvalitan disvolviĝon de Esperanta afero ĉe nova startpunkto.
+
+Liu Dawei parolas
+
+Duncan Charters transdonis gratulon de UEA al la muzeo. En sia parolo, li alte taksis la kontribuojn de ĈEL en la kampo de kultura diskonigo. Li diris, ke la muzeo estas unike elstara internacia muzeo kun nekomparebla grandiozeco, ĝi, kiel juvelo de la krono de la universitato, reprezentas la historion kaj atingojn de nia movado per la bele eksponataj konservaĵoj. Li rakontis pri la decidoj de estraranoj de UEA pri la konservaĵoj de bibliotekoj de UEA, kaj diris, ke nun estas tempo igi azian centron por Esperanto. UEA jam aprobis, ke salono de la muzeo kie troviĝas la biblioteko ricevos identigon kiel Azia Biblioteko de Universala Esperanto-Asocio. Tio signifas, ke la muzeo ricevos aron da duoblaĵoj de la konservaĵoj konservataj en aliaj E-muzeoj kaj bibliotekoj. Li diris ankaŭ, ke Esperanto aparte servas al la celo, ke homoj povu komunikiĝi pli rapide ol en naciaj lingvoj, tiel ekzistas senlandlima rekta kontakto per komune lernita lingvo. UEA ĉiam proponas kaj kuraĝigas ĉiujn aliĝi kaj kunmarŝi kun ĝi al pli granda utileco de Esperanto en la mondo.
+
+Duncan Charters parolas
+
+Gao Feng, ĉefestro de Zaozhuang-a Universitato, diskonigis la fruktojn de konstruado de la muzeo, libroeldona laboro kaj esperantista trejnado atingitajn en la pasintaj 10 jaroj. Dank’ al Esperanto, Zaozhuang-urbo ekhavis novstilan viglecon, kaj la lingvo mem jam fariĝis parto de la urba kulturo. La universitato per pli malferma pensmaniero kaj efikaj rimedoj daŭre klopodos por plibonigi la kondiĉojn de la muzeo, altigos lingvonivelon por homtrejnado kaj fortigos diskonigan povon por Esperanto.
+
+Gao Feng parolas
+
+Wang Hanping, vicprezidanto de ĈEL, laŭtlegis la gratulmesaĝojn senditajn de en- kaj eksterlandaj esperantistoj. La muzeo ricevis pli ol 40 mesaĝojn por la jubileo, ili venis de Chen Haosu, eksa prezidanto de ĈEL, Humphrey Tonkin, honora prezidanto de UEA, ILEI-prezidanto Ahmad Reza Mamduhi, Katalin Kováts kaj aliaj.
+
+Wang Hanping laŭtlegas la gratulmesaĝojn
+
+Per videomesaĝo, gratulon faris Nisinaga Atushi, prezidanto de Azi-Oceania Komisiono de UEA-KAOEM, So Jinsu, estrarano de Universala Esperanto-Asocio kaj prezidanto de Korea Esperanto-Asocio, Bak Gi Wan, membro de Esperanta Akademio, Ilona Koutny, respondeculo de Interlingvistikaj Studoj de Adam Mickiewicz Universitato. Ili ne nur varme gratulis pri la jubileo, sed ankaŭ esprimis esperon, ke la E-muzeo akiros pli da atingoj en konservado, heredigo kaj kultura disvastigo.
+
+Vicestroj de la universitato ricevis donacojn de ĉinaj kaj fremdlandaj esperantistoj, ili donis atestilojn al donacantoj.
+
+Ragnar Baldursson faris parolon nome de fremdlandaj donacantoj, li donacis al la muzeo librojn kiuj apartenis al lia patro Baldur Ragnarsson (1930-2018), konata islanda verkisto. Li diris, ke estas tre ĝoje vidi la pli kaj pli vastan influon de la muzeo. Li esperas, ke la muzeo kaj ĉinaj esperantistoj povos plie antaŭenpuŝi E-movadon tutmonde.
+
+Zhao Jianping, konata parolisto de Ĉina Radio Internacia, parolis nome de ĉinaj donacantoj. Li diris, ke estas mirinde, ke en nur 10 jaroj la Esperanto-Muzeo de Zaozhuang-a Universitato jam fariĝis la plej granda esperanta muzeo en Azio, kun plej kompletaj funkcioj kaj plej riĉaj kolektoj. La muzeo certe pli prosperos en la estonteco kaj faros pli elstarajn meritojn en konservado kaj disvastigado de la kulturo de Esperanto.
+
+Sekve okazis inaŭguro de Azia Biblioteko de UEA, Centro de Instruado-esplorado de Esperanto, Instituto de Esperanto kaj Centro de Esplorado pri Historio de Esperanto en Zaozhuang-a Universitato.
+
+Post la malfermo de la kvar organizoj en la universitato, Cui Xueli kaj Song Zhenyuan, reprezentantoj de eminentaj volontuloj por Esperanto kaj diplomiĝintoj de Esperanta fako respektive parolis, ili esprimis sian amon al Esperanto, kio ŝanĝis ilian vivon, kaj la volon daŭre iri sur Esperanta vojo, kion ili diskonigos en sia estonta laboro.
+
+Kvar diplomiĝintoj de la E-fako alsendis videajn gratulmesaĝojn, ili nun studas interlingvistikon en Adam Mickiewicz Universitato en Pollando.
+
+Poste, la prezentado de studentoj de la E-fako igis la ceremonian etoson arda. Multaj esperantistoj kunkantis laŭ la melodio de
+
+La iamo longe for
+
+.
+
+(Fotoj el Zaozhuang-a Universitato)
+
+El Popola Chinio
+
+
+---
+
+# Kaŝgara Teknika Kolegio en Xinjiang
+
+**Published:** 2023-12-14
+
+**URL:** http://esperanto.china.org.cn/2023-12/14/content_116874784.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Fondita en 1978, Kaŝgara Teknika Kolegio estas publika altlernejo funkcianta tuttage. Ĝi havas tri kampusojn kaj ĵus estigis branĉon en Jiashi-distrikto. La kolegio havas pli ol 10 mil studentojn, kaj ili ĉiuj profitas de la nacia politiko "tri esceptoj kaj unu subteno". Tio signifas, ke studentoj ricevas senpagan edukadon kaj financan helpon (ekde 2017, la kolegio elspezis pli ol 124 milionojn da juanoj en financa subteno al 30 664 studentoj). Aldone, elstaraj lernantoj ricevas stipendion je 6 mil juanoj jare. La fakoj instruataj en la kolegio estas deciditaj surbaze de la lokaj bezonoj, kaj nuntempe ili estas dividitaj en sep fakoj: modernaj servoj, kuirarto, mekanika kaj elektra inĝenierio, aŭtomobila inĝenierio, administrado de turismo, informadiko kaj konstruado, kun 19 diplomaj kursoj kaj 13 teknikaj kursoj.
+
+Studento pri pentrarto dum leciono
+
+Studento pri dezajno printas afiŝon desegnitan de li mem.
+
+Studento pri elektroniko veldas elektronikan aparaton.
+
+Studentoj pri modo faras vestaĵon desegnitan de ili mem.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Nova metodo por energia konservado kaj medi-protekado: "Klimatizilo per rivera akvo"
+
+**Published:** 2023-12-14
+
+**URL:** http://esperanto.china.org.cn/2023-12/14/content_116879594.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+En la Civitana Centro de la Nova Distrikto Jiangbei, Nankino, ĉiuj lokaj konstruaĵoj havas klimatizilon funkciigatan per akvo el la rivero Jangzio. Tiu ĉi sistemo liveras servojn al publikaj konstruaĵoj sur areo de preskaŭ 12 milionoj da kvadrataj metroj, reduktante karbonan ellasadon je 140 mil tunoj jare. Ĝi ŝparas elektron je 140 milionoj da kilovathoroj, kio egalas al la jara elektra konsumo de 56 000 urbaj familioj en Nankino.
+
+Kiel ĝi ŝparas energion? La ŝlosilo estas, ke tradiciaj klimatiziloj ŝanĝas aeron kiel varmoŝanĝilo, dum tiu klimatizilo uzas akvon.
+
+Ni povas rigardi tiun sistemon kiel grandegan fridujon. Ĝi unue malvarmigas la riverakvon per kondensilo, kaj poste transportas la malvarmigitan akvon al diversaj distribuejoj. Somere, la sistemo malvarmigas akvon ĝis la temperaturo de 5℃. Vintre, ĝi provizas varmigitan akvon kun la maksimuma temperaturo de 48℃. Rivera akvo estas pli varma ol aero en vintro kaj pli malvarma en somero. Kaj estas temperatura diferencojepreskaŭ 10℃inter la riverakvo kaj la aero.Kompare kun varmigo aǔ malvarmigo de aero, tiu de akvoŝparas pli da energio.
+
+Jen konstruaĵo kun klimatizilo funkciigata per riverakvo en la Civitana Centro de la Nova Distrikto Jiangbei, Nankino, orienta Ĉinio.
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# Traktado de klimatŝanĝiĝo: Ĉinio plenumas siajn promesojn
+
+**Published:** 2023-12-14
+
+**URL:** http://esperanto.china.org.cn/2023-12/14/content_116879634.htm
+
+**Categories:** Naturo kaj Mediprotekto
+
+Fine de septembro de la kuranta jaro, la instalita kapacito de la nove aldonitaj ventenergiaj generatoroj en Ĉinio estis sur la unua loko de la mondo por 14 sinsekvaj jaroj. Nun, preskaŭ duono de la instalita kapacito de la tutmondaj fotovoltaaj generatoroj estas en Ĉinio. Pli ol 50% de novenergiaj veturiloj de la mondo veturas en Ĉinio. Kvarono de la novaj arbarigitaj areoj de la mondo estas en Ĉinio.
+
+Per ĉi tiuj datumoj, oni povas kompreni kial la kontribuo de Ĉinio vekis atenton de ĉiuj partioj ĉe la 28a Konferenco de la Partioj Partoprenantaj en la Kadra Konvencio de la Unuiĝintaj Nacioj pri Klimatŝanĝiĝo (COP28) en Dubajo.
+
+Kiel la plej granda evoluanta lando de la mondo, Ĉinio ludis ŝlosilan rolon por konkludo kaj validiĝo de la pariza interkonsento kaj klopodis por atingo de longtempaj celoj. Ĉinio prenis traktadon de klimatŝanĝiĝo kiel nacian strategion, ekspluatis renovigeblajn energiojn, starigis politikan sistemon pri kulmino de karbona emisiado kaj karbona neŭtraleco, antaŭenigis strukturan reĝustigon de industrio, energio kaj transportado kaj starigis la plej grandan tutmondan merkaton pri karbona emisiado en la mondo. En 2022, la karbona emisiado de Ĉinio malpliiĝis je pli ol 51% kompare kun 2005, kaj la proporcio de la konsumado de nefosiliaj energioj atingis 17.5%. Dum la pasinta jardeko, Ĉinio konservis ekonomian kreskon je 6.2% kun averaĝa jara konsumo de energio je 3%.
+
+Samtempe, Ĉinio aktive antaŭenigis tutmondan klimatan regadon kaj liveris subtenon kaj helpon al aliaj evoluantaj landoj per sud-suda kunlaboro. Ekzemple, en Kenjo, la 50-megavata Garissa-centralo, la plej granda fotovoltaa centralo en Orient-Afriko, konstruita de ĉina firmao, ekfunkciis en 2019. Ĝi povas kontentigi la postulon pri elektro de pli ol 380 000 homoj el 70 000 familioj, efike mildigante la nesufiĉecon de loka elektroprovizo. Ĝis la fino de junio 2023, Ĉinio subskribis 46 dokumentojn de sud-suda kunlaboro pri klimatŝanĝiĝo kun 39 evoluantaj landoj.
+
+Nun, tutmonda klimata regado postulas ne nur parolajn promesojn, sed ankaŭ praktikajn agadojn. Neniu lando povas sin teni for de klimatŝanĝiĝo. La fundamenta maniero por la homaro trakti klimatŝanĝiĝon estas per praktiko de multflankismo kun la Unuiĝintaj Nacioj ĉe la kerno, plene respondi al la zorgoj de evoluantaj landoj kaj unuiĝi kaj kunlabori por antaŭenigi verdan transformadon. Ĉinio plu kontribuos al tutmonda klimata regado laŭ sia kapablo, strebante por atingi la kulminon de karbona emisiado antaŭ 2030 kaj karbonan neŭtralecon antaŭ 2060.
+
+(el ĈRI)
+
+Redaktoro: Gao Shuyuan
+
+El Popola Chinio
+
+
+---
+
+# Intervjuo: La Mondanoj
+
+**Published:** 2023-12-15
+
+**URL:** http://esperanto.china.org.cn/2023-12/15/content_100057395.htm
+
+**Categories:** Socia Vivo
+
+Kiel la Mondanoj naskiĝis?
+
+Aaron
+
+: La Mondanoj estis fondita en septembro 1983 de Carsten kaj mi. Ĉi tio jam okazis en nia unua renkontiĝo en Berlino, kien mi estis ĵus translokiĝinta. Mi lernis Esperanton en la somero de 1983, vojaĝante tra Eŭropo per Pasporta Servo. En mia hejmurbo, Hamburgo, mi ludis en grupo de "nova germana ondo", sed kiam mi translokiĝis al Berlino por miaj studoj, mi volis komenci ion novan kaj specialan.
+
+Carste
+
+n
+
+: Mi tuj ŝatis la ideon de Esperanta rokmuzika grupo, do ni komencis verki kantojn. Nia plej krea verkperiodo estis dum vojaĝo al Hungario en septembro 1984, kie ni vizitis Esperanto-gastigantojn. Ni donis al ili kasedon de niaj kantoj kiel donacon. Tio poste gvidis al nia unua koncerto.
+
+Kiel vi trovis la membrojn de la grupo?
+
+Carsten
+
+: Dum kelkaj monatoj ni provis plurajn gitaristojn kaj drumistojn antaŭ ol ni trovis la ĝustan konstelacion.
+
+Tom: Mi renkontis Aaron en la universitato en Berlino, en oktobro 1984. Mi taksis la ideon kanti en Esperanto tre amuza kaj iĝis la ĉefgitaristo de la Mondanoj.
+
+Aaron
+
+: Ni provis plurajn tamburistojn kaj finfine trovis Marcus, tiam ankaŭ ludanta en punkroko-grupo.
+
+Kiel vi komencis koncerti?
+
+Carsten
+
+: En aprilo 1985 ni ludis nian unuan koncerton ĉe Junulara Esperanto Renkontiĝo (JER) en Mezökövesd, Hungario. La organizantoj aŭskultis la kasedon kiun ni donacis al niaj gastigantoj, ŝatis la muzikon kaj invitis nin.
+
+Tom: Tiam Hungario ankoraŭ estis komunisma. Estis la tempo de la malvarma milito, sed ni faris belajn ligojn kun la homoj ĉe la alia flanko de la "fera kurteno". Post JER ni eĉ povis ludi en normala rokfestivalo en Budapeŝto. La vojaĝo kaj la koncertoj estis tre impresa sperto por ni!
+
+Aaron
+
+: En tiu ĉi konstelacio ni ludis nur ĉe unu plia Esperanto-kongreso, la IJK en Germanio en 1985. Plejparte ni koncertis en normalaj kluboj kaj festivaloj en Berlino kaj Hamburgo. Por ni ĉiam estis grave atingi ordinaran publikon, ne nur la Esperanto-mondon.
+
+Kiuj estas la preferaj temoj de via bando? Kiuj temoj, laǔ vi, estas plej ŝatataj de esperantistoj?
+
+Aaron
+
+: Plej multaj de niaj kantoj temis pri bizaraj fantaziaj amrakontoj, nenio vere serioza aŭ aŭtobiografia. Niaj kantoj estis sufiĉe strangaj kaj parte superrealismaj. Ŝajnis, ke ni verkis ilin sub la influo de drogoj, sed fakte ni neniam drogumis.
+
+Tom
+
+: Nia plej populara kanto estis sendube Muskola Belulino, kiu temas pri fikcia amrilato kun korpokultura virino. Ĝi estis la sola kanto, kiun ni profesie registris kaj eldonis. Ni citas la enkondukon de Ballroom Blitz de Sweet, kaj ni kreis la nun popularan frazon "ĉu vi pretas?" kun ĝi.
+
+Carsten
+
+: La sola kanto, kiu temis iel pri Esperanto, estis repo, kiun ni komponis por la 100-jara jubileo en 1987, nomita E-S-P-E-R-A-N-T-O. Tiam La Mondanoj ne ekzistis plu kiel rokgrupo, Aaron kaj mi ludis en la IJK en Krakovo kiel duopo kun tamburkomputilo. Eble ĉi tiu kanto kondukis al la miskompreno, ke ni estas hiphopa grupo, kio ne estas vera.
+
+Kial la bando ĉesis?
+
+Tom: Ni ĉiuj okupiĝis pri niaj studoj, kaj ĉar ni neniam intencis esti profesiaj muzikistoj, ni haltigis la grupon je la fino de 1985.
+
+Aaron
+
+: Ni ludis nur du pliajn koncertojn, unu en novembro 1986 ĉe Esperanto-kunveno en Parizo kiel triopo sen tamburoj, kaj la menciita apero ĉe la IJK 1987 en Krakovo. Poste mi translokiĝis al Brazilo kaj ni ĉiuj koncentriĝis pri niaj karieroj kaj familioj.
+
+Kial La Mondanoj revenas? Ĉu estas ŝanĝo en stilo aǔ membro?
+
+Carsten
+
+: Aaron, Tom kaj mi restis proksimaj amikoj tra la jaroj. Ni ĉiam havis bonan memoron de nia tempo kiel bando kaj konservis nian pasion por muziko. Do ni decidis reunuigi La Mondanojn en junio 2023, post "mallonga" paŭzo de nur 36 jaroj.
+
+Tom
+
+: Bedaŭrinde ni perdis kontakton kun nia tamburisto Marcus, sed ni trovis bonegan anstataŭanton ĉe Niklas, kiu estas 25-jara kaj studas muzikon. Li donas iom da freŝa sango al nia grupo, kiu nun plejparte konsistas el sinjoroj ĉirkaŭ 60-jaraj.
+
+Aaron
+
+: Estas iom strange ludi kantojn, kiujn ni skribis kiam ni estis en niaj 20-aj jaroj, sed tre amuze. Ni perdis ĉiujn kantfoliojn, do ni devis rekonstrui la kantojn memore kaj foje verki novajn tekstojn.
+
+Carsten
+
+: Nia stilo ne multe ŝanĝiĝis, sed ni ĉiuj maturiĝis, kion vi povas aŭdi laŭ la maniero kiel ni nun ludas la kantojn. Ofte ni simpligis la kantojn kaj koncizigis ilin.
+
+Esperanto estas kreita kiel internacia lingvo, kiel ponto por malsamaj kulturoj kaj diversaj popoloj. Kaj muziko ludas la saman rolon. Kial vi elektis Esperanton kiel la lingvon de via muziko?
+
+Aaron
+
+: Ni ŝatis la sonon de Esperanto, kaj ĝi donis al ni ion specialan, kion neniu alia bando en Germanio tiutempe havis.
+
+Tom
+
+: Ni neniam estis tre engaĝitaj en la oficiala Esperanto-movado, sed niaj koncertoj ĉe Esperanto-kunvenoj sendube estis niaj plej bonaj, la publiko vere freneziĝis.
+
+Laǔ vi, kian muzikon povas tuŝi la korojn de popoloj kaj unuigi homojn tra la mondo? Kiu kanto de via grupo bone realigas la celon?
+
+Carsten
+
+: Ni ne havas ĉi tiujn altajn ambiciojn. Ni nur volas amuziĝi.
+
+Aaron
+
+: Kaj dancigi la publikon.
+
+Muziko ludas gravan rolon en la disvastigo de Esperanto. En la ĵusa muzik-festivalo okazigita de nia administranto, oni uzis flugrobotojn por formi la vortojn "Esperanto - internacia helplingvo" sur la ĉielo. Ĉu vi pensas, ke tio estas bona ideo por disvastigi Esperanton? Ĉu vi havas ideon aǔ planon altiri pli da homoj interesiĝi pri Esperanto?
+
+Tom
+
+: Ne estos facile por Esperanto fariĝi vera mondlingvo. La angla plenigas tiun ĉi rolon nun sufiĉe bone, plejparte pro la kultura influo de muziko kaj kinejo el Anglio kaj Usono.
+
+Aaron
+
+: La disvastigita uzo de la angla en la interreta epoko certe pligrandigis ĝian gravecon. Kompreneble estus plibone havi neŭtralan kaj simplan mondlingvon kiel Esperanton, sed por ke tio okazu necesas grandaj ŝanĝoj en la mondo.
+
+Carsten
+
+: Sed ekzistas vigla tutmonda esperantistaro kun riĉa muzika scenejo, kaj tio estas vere mojosa.
+
+Rokmuziko kaj aliaj muzikstiloj estas ŝatataj de ĉinoj. Ĉu vi volas partopreni en la venontjara muzikfestivalo kaj renkontiĝi kun ĉinaj esperantistoj?
+
+Carsten
+
+: En la 1980-aj jaroj, ni kelkfoje revis vojaĝi al Ĉinio kun La Mondanoj. Bedaŭrinde tio ne funkciis tiam.
+
+Aaron
+
+: Mi estis en Ĉinio trifoje, ĝi estas fascina lando. Ludi nian muzikon tie estus revo realiĝanta!
+
+Ĉu vi konas ĉinajn rokbandojn aǔ kantistojn? Se vi estas invitita al Ĉinio, kiujn ĉinajn rokkantojn vi volas esperantigi?
+
+Carsten
+
+: Ni ankoraŭ ne konas iun, kaj ni kutime ludas niajn proprajn kantojn nur.
+
+Aaron
+
+: Sed ni volonte koncertus kun esperantista rokgrupo el Ĉinio!
+
+Dankon pro la intervjuo!
+
+***
+
+La Mondanoj
+
+:
+
+Carsten - basgitaro, kantado
+
+Tom -  ĉefgitaro, kantado
+
+Aaron - ritmogitaro, ĉefkantado
+
+Niklas - tamburoj, kantado
+
+
+---
+
+# Aŭtovoja pasejo inter Ĉinio kaj Kazaĥio en Horgos
+
+**Published:** 2023-12-15
+
+**URL:** http://esperanto.china.org.cn/2023-12/15/content_116879656.htm
+
+**Categories:** Ekonomio
+
+En Horgos de Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio, troviĝas pasejo, tra kiu veturiloj povas transiri la landlimon kun Kazaĥio. Ĉiujare pli ol tri milionoj da tunoj da kargo kaj pli ol kvin milionoj da hom-fojoj trairas tiun pasejon, kontribuante por la disvolviĝo de interŝanĝoj kaj komerco inter ambaŭ landoj.
+
+Konstruaĵoj en la ĉina flanko de la landlimo
+
+Enirejo al Kazaĥio
+
+Kamionoj kaj aŭtoj atendas doganan inspekton ĉe la landlimo.
+
+Landlimo inter Ĉinio kaj Kazaĥio
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# El Popola Ĉinio serĉas e-istan redaktoron
+
+**Published:** 2023-12-18
+
+**URL:** http://esperanto.china.org.cn/2023-12/18/content_116886602.htm
+
+**Categories:** E
+
+Esperanta retejoEl Popola Ĉinio(http://www.espero.com.cn/aŭ http://esperanto.china.org.cn/) dissendas informojn pri socio, kulturo kaj ekonomio de Ĉinio per Esperanto kaj ankaŭ tiujn pri Esperanto-movado.
+
+El Popola Ĉinionun serĉas e-istan redaktoron, kiu respondecas pri verkado, lingvopolurado de artikoloj en Esperanto, muntado de filmetoj. La kandidato nepre:
+
+.Havi universitatan diplomon
+
+.Posedi tre bonan skriban kaj parolan lingvonivelon en Esperanto kaj la ĉinan lingvon aŭ la anglan lingvon (por faciligi la vivon en Ĉinio kaj instruadon)
+
+.Esti malpli-ol-45-jara
+
+.Esti sperta en redaktado, verkado kaj pli bone en muntado de filmetoj
+
+.Minimume havi du-jaran laboran karieron per Esperanto
+
+.Bone kompreni la ĉinan kulturon
+
+Por kandidatiĝi, oni sendu al la redakcio de El Popola Ĉinio (13693326472@163.com) elektronikan dokumentaron kun jenaj enhavoj:
+
+- sinprezenta letero, inkluzive de la motivoj por kandidatiĝi;
+
+- vivresumo (persona, eduka, profesia, movada);
+
+- mallonga artikolo en Esperanto aperigita en publikaj revuoj;
+
+- nomoj kaj kontakt-informoj de du rekomendantoj (nepre esperantistoj);
+
+- laŭplaĉe, aliaj dokumentoj kiuj atestas la redaktajn aŭ movadajn kapablojn de la kandidato.
+
+El Popola Chinio
+
+
+---
+
+# Sun Mingxiao estis elektita kiel Esperantisto de la Jaro 2023
+
+**Published:** 2023-12-18
+
+**URL:** http://esperanto.china.org.cn/2023-12/18/content_116886620.htm
+
+**Categories:** E
+
+Sun Mingxiao (Semio) estas 59-jara esperantisto el Ĉinio, kiu disvastigas la lingvon en universitataj rondoj. Antaŭ dek jaroj li iniciatis Esperanto-Muzeon en Zaozhuang-a Universitato, kiu rapide fariĝis la plej granda tiutipa institucio en Azio kaj unu el la plej grandaj en la mondo, kun 26 mil ekspoziciaĵoj sur 680 kvadrataj metroj. Dum pluraj jaroj Sun Mingxiao instruis Esperanton en la sama universitato, ekde 2018 kadre de la nova kvarjara bakalaŭra programo. En 2023 li emeritiĝis en sia laboro, sed daŭre aktivas por Esperanto.
+
+La Ondo de Esperanto
+
+iniciatis en 1998 ĉiujaran proklamadon de la Esperantisto de la Jaro. Al ĉi tiu projekto aliĝis reprezentantoj de diversaj tendencoj en la Esperanto-komunumo kaj sendependaj kompetentuloj. Plie: https://sezonoj.ru/2023/12/jaro-7/?_utl_t=fb&fbclid=IwAR0XMebiNtzlGShic5iL6P_Fw_SMx1iD9CN0uQSUhIm_DwnbImSWfdAYZaE
+
+Redaktoro: Sheng Min
+
+(el La Ondo de Esperanto)
+
+El Popola Chinio
+
+
+---
+
+# Kion ni faros pri tiuj fosilioj?
+
+**Published:** 2023-12-18
+
+**URL:** http://esperanto.china.org.cn/2023-12/18/content_116886653.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 7-an de decembro, la brazila ĵurnalo Estado de Minas publikigis raporton pri temo, kiu kaptis vastan atenton de brazilanoj en sociaj retejoj: la biologo Beatriz Hörmanseder iris al festo en la konata drinkejo Casa Sapucaí en la urbo Bel-Horizonto en Brazilo, kaj ŝi subite rimarkis makulojn sur la planko de la domo.
+
+Stromatolitoj en Casa Sapucaí de Bel-Horizonto. Fotis Ana Pisani
+
+Beatriz de dek jaroj laboras pri palentologio. Post pli atenta rigardo, ŝi konstatis, ke tiuj makuloj fakte estas stromatolitoj, fosilioj de antikvaj kolonioj de prabakterioj kiuj estas inter la plej antikvaj vivaĵoj sur la Tero. "Frumatene mi estis supreniranta la ŝtuparon, kiam mi subite rimarkis la makulojn sur la planko. Mi rigardis ĉirkaŭe kaj rimarkis, ke la tri etaĝoj de la domo estas plenaj de fosilioj," deklaris ŝi.
+
+Stromatolitoj estas tiom antikvaj, ke ili registras la ekaperon de la unuaj cianobakterioj, organismoj kapablaj je fotosintezo, kiuj ekliberigis oksigenon en la atmosfero de nia planedo antaŭ 3.5 miliardoj da jaroj. Cianobakterioj daŭre vivas en nia epoko!
+
+La domo, kie la stromatolitoj estis trovitaj estis konstruita en la 1920-aj jaroj en kvartalo protektata de la ŝtato kiel kultura heredaĵo, kaj konservas siajn originalajn arkitekturajn trajtojn. Jam de pli ol unu jaro estas proceso por deklari ĝin kiel histori-kulturan heredaĵon, aprobotan de Instituto pri Nacia Historia kaj Kultura Heredaĵo.
+
+La fosilioj estas sur planko, fenestroj, balkonoj kaj eĉ kolonoj de la domo en Be-Horizonto. Laŭ Lucas Almeida, posedanto de la domo, la ŝtonoj uzitaj en ĝia konstruado estas importitaj el Italio. Li esperas, ke la malkovro pri la fosilioj faciligos la agnoskon de la domo kiel protektata heredaĵo.
+
+Stromatolito kun mi gajnis de la Ŝtata Ĉeflaboratorio pri Palentologio kaj Stratigrafio de Ĉina Akademio pri Sciencoj.
+
+Ekde la malkovro de Beatriz, pli kaj pli da homoj iras tien por pli atente rigardi ilin, kaj en interreto aperis diskutojn pri trakto de ili. Kelkaj retanoj opinias, ke tiuj fosilioj devus esti en muzeo, dum aliaj aparte ŝatas la fakton, ke la domo konstruita el fosilioj devus esti konservata kiel tutaĵo.
+
+Legante pri tiu kazo, mi rememoris mian ĉi-jaran viziton al la Ŝtata Ĉeflaboratorio pri Palentologio kaj Stratigrafio de Ĉina Akademio pri Sciencoj, en Nankino. Tie troviĝas tiom da stromatolitoj, ke ili ankaŭ estas uzataj kiel dekoracio kaj eĉ vendataj en la muzeo kiel memoraĵoj por la turistoj.
+
+Stromatolitoj estas abundaj en la mondo, sekve muzeoj kaj sciencaj institucioj ne bezonas konservi ilin ĉiuj. Ĉu geologia instituto bezonas konservi ĉiujn ŝtonojn de la mondo por ilin studi? Kompreneble ne, estas kriterioj por decidi, kiujn specimenojn estos konservataj, kaj pluraj, inkluzive de tiuj importitaj de Brazilo el Italio por ornami la domon, estas uzataj en konstruado pro ilia unika beleco.
+
+Okaze de mia vizito al la laboratorio en Nankino, mi gajnis stromatolitan briketon kiel donaco kaj konservas ĝin en la redaktejo de EPĈ. Ili estas similaj al tiuj vendataj kiel memoraĵo en la apuda muzeo. Kiam vizitanto revenas hejmen kun stromatolito kaj montras ĝin al amikoj kaj parencoj, li kontribuas por interesigi homojn pri sciencoj.
+
+Stromatolitoj sur planko kaj muroj de Casa Sapucaí
+
+La domo dekoraciita de stromatolitoj en Bel-Horizonto devas sekvi similan vojon: ĝi jam estas loko kun kultura rolo, kie artistoj sin prezentas; sufiĉas aldoni kelkajn klarigojn pri la stromatolitoj por ke ĝi ankaŭ estu utila por scienca diskonigo.
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Li Weilun estis elektita kiel nova panteonano
+
+**Published:** 2023-12-18
+
+**URL:** http://esperanto.china.org.cn/2023-12/18/content_116886692.htm
+
+**Categories:** E
+
+Li Weilun, ĉina esperantisto, estas emerita vicprofesoro de Pekina Lingva kaj Kultura Universitato. Li lernis Esperanton en 1979 kaj komencis instrui la internacian lingvon en multaj ĉinaj urboj kaj en Meksiko kaj Korea Popoldemokretia Respubliko. Li estas dumviva membro de UEA, Honora membro de ILEI (2012) kaj eksprezidanto de Pekina Esperanto-Asocio.
+
+Koran dankon al ĉiuj en la mondo, kiuj instruas aŭ agadas por la disvastigo de nia lingvo. Plie:
+
+https://edukado.net/novajhoj?id=899
+
+Redaktoro: Sheng Min
+
+(el edukado.net)
+
+El Popola Chinio
+
+
+---
+
+# Jarfino: Rememoru dek gravajn okazaĵojn en Esperantujo en 2023
+
+**Published:** 2023-12-18
+
+**URL:** http://esperanto.china.org.cn/2023-12/18/content_116886731.htm
+
+**Categories:** E
+
+UEA anoncis la unuan UK-n en Afriko
+
+Komence de tiu ĉi jaro, la estraro de UEA unuanime elektis Tanzanion kiel kongreslandon de la 109-a Universala Kongreso (UK), okazonta en 2024. Tio signifas, ke unuafoje la kontinento Afriko gastigos UK-n. Per tiu decido la estraro de UEA plenumas devon de la asocio, kiu en la pasinta jardeko deklaris la okazigon de UK en Afriko kiel strategian elementon por UEA.
+
+Sukcese okazis la du kongresoj de UEA
+
+UEA okazigis siajn du kongresojn en 2023, la ĉeesta 108-a Universala Kongreso (UK) en Torino de Italio kaj la 4-a Virtuala Kongreso (VK) en interreto. Sub la temo "Enmigrado – kunfluo de homaj valoroj", ambaŭ kongresoj estis plensukcesaj kaj kun riĉa programo. Al VK aliĝis 1 236 homoj, dum UK-n partoprenis 1 318 homoj.
+
+Ankaŭ TEJO sukcese okazigis du kongresojn
+
+Internacia Junulara Kongreso (IJK) okazis en Lignano Sabbiadoro, Italio, sub la temo "Intergeneracia kunlaboro pri edukado". IJK okazis post la UK en Torino kaj estis busa karavano de unu kongreso al la alia. La reta evento de TEJO, nomita Retoso (kunmetaĵo de la vortoj reto kaj etoso), ĉi-jare okazis sendepende de UEA, male al la pasintjara, okazinta kune kun VK.
+
+Dekjariĝo de Esperanto-Muzeo en Zaozhuang de Ĉinio
+
+La Esperanto-Muzeo en la urbo Zaozhuang en Shandong-provinco de Ĉinio festis sian 10-jariĝon per ceremonio kun ĉeesto de pli ol 200 partoprenantoj, inkluzive de Liu Dawei, vicprezidanto de Ĉina Internacia Komunika Grupo (ĈIKG) kaj prezidanto de Ĉina Esperanto-Ligo (ĈEL), Duncan Charters, prezidanto de Universala Esperanto-Asocio (UEA), Ragnar Baldursson, eksa konsilisto de la islanda ambasadorejo en Ĉinio, Chimedtseren Enkhee, ĝenerala sekretario de Mongola Esperanto-Asocio, kaj gvidantoj de Administracio pri Kultura Heredaĵo de Ĉinio.
+
+Okazis kvar samtempaj kongresoj en Fortalezo
+
+La 10-a Tut-Amerika Kongreso de Esperanto (TAKE) okazis kune kun la 57-a Brazila Kongreso de Esperanto, la 41-a Brazila Esperantista Junulara Kongreso kaj la 8-a Cearaa Kongreso de Esperanto, en la urbo Fortalezo, Brazilo, sub la temo "Homaj rajtoj, solidareco kaj memdetermino de popoloj". La kongresego estis kunorganizita de UEA, Brazila Esperanto-Ligo, Brazila Esperantista Junulara Organizo kaj Cearaa Esperanto-Asocio.
+
+Nova hejmo por biblioteko de UEA
+
+UEA transdonis al la Nacia Biblioteko de Pollando la kolekton de sia biblioteko Hector Hodler, unu el la plej grandaj Esperanto-bibliotekoj en la mondo, kaj ankaŭ dokumentojn el la arĥivo de la roterdama oficejo de UEA. En Varsovio, la plej grava Esperanta biblioteko en la mondo estos konservata de fakuloj, kaj esploristoj el la tuta mondo povos uzi ĝin por siaj esploroj. Espereble la verkoj ankaŭ estos ciferigitaj en la estonteco, por faciligi la konservadon kaj aliron al tiuj valoraj heredaĵoj de Esperanto.
+
+Esperantujo funebris pro forpaso de tre valoraj samideanoj
+
+La jaro 2023 estis ankaŭ markita de forpaso de tre konataj kaj admirataj esperantistoj. En Brazilo forpasis Giuseppe Grattapaglia, itala samideano kiu dediĉis plejparton de sia vivo al la Bienlernejo Bona Espero; kaj Amarílio Carvalho, maljuna samideano kun longa barbo, kiu vojaĝis tra la mondo por prezenti sian monologon pri la brazila nacia heroo Tiradento. En Hispanio forpasis la fama Esperanto-aktivulo Augusto Carquero. En Pollando nin adiaŭis Halina Komar, kiu sin dediĉis por longa tempo al edukaj, kulturaj kaj turismaj projektoj ligitaj al Esperanto. Krom tiuj menciitaj ĉi tie, pluraj aliaj samideanoj ĉi-jare iris al la Verda Ĉielo. Ni sopiros ilin ĉiuj!
+
+Bona jaro por Esperanta muziko
+
+Por ŝatantoj de Esperanta muziko, 2023 estis bona jaro. Konataj muzikistoj kaj bandoj, kiel Kajto, Martin kaj la Talpoj kaj Kjara lanĉis novajn albumojn kun agrablaj surprizoj. Muzikistoj delonge konataj en kelkaj rondoj fine havis la ŝancon eldoni albumon, ekzemple la brazilano Mikel Klav', kaj novaj muzikistoj aperis en Esperanta muzika sceno, ekzemple Klarisa el Italio. Laste, sed ne balaste, Vinilkosmo eldonis kvaralbuman kolekton de kantoj de ĴeLe.
+
+Alparolo de UEA dum Ĝenerala Konferenco de Unesko
+
+Ĉiun duan jaron, Unesko kunvokas dusemajnan Ĝeneralan Konferencon en novembro (ĉi-jare: 7-22 novembro). Dum la unua semajno, reprezentantoj de kelkaj NRO-j estas elektitaj por alparoli la konferencon, kaj ĉi-jare UEA havis tiun ŝancon. La alparolo okazis matene de la 11a de novembro kaj estis farita de François Lo Jacomo, ĉefreprezentanto ĉe Unesko kaj estrarano de UEA. UEA prezidas la Komitaton pri Lingvoj de Unuiĝintaj Nacioj kaj diversflanke agadas por protektado de lingva diverseco, kontraŭbatalo al lingva diskriminacio kaj antaŭenigo de pli justa internacia komunikado.
+
+Premio Grabowski aljuĝita dum VK
+
+La ĵurio de Fondaĵo Antoni Grabowski aljuĝas la Premion Grabowski averaĝe ĉiun duan aŭ trian jaron, kaj ĉi-jare estis premiita la eldona teamo de Militrakonto, nome Javier Alcalde (Hispanio), Pascal Dubourg Glatigny (Francio), Catherine Gousseff (Francio) kaj Ulrich Lins (Germanio). Ili faris elstarajn kontribuojn al la scienca studo de la historio kaj kulturo de la Esperanto-movado kun aparta enfokusigo de la tutmondaj konfliktoj en la 20-a jarcento.
+
+Redaktis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Sep novaj samideanoj en la panteono de Edukado.net
+
+**Published:** 2023-12-18
+
+**URL:** http://esperanto.china.org.cn/2023-12/18/content_116886762.htm
+
+**Categories:** E
+
+La retejo Edukado.net antaŭ multaj jaroj kreis Panteonon por omaĝi samideanojn kiuj elstare kontribuis al la instruado kaj disvastigo de Esperanto. Tiu panteono estas ne nur por forpasintoj, sed ankaŭ por vivaj aktivuloj, kiuj povas eniri ĝin kun memverkitaj biografioj, honorataj la 15an de decembro, Zamenhof-tago.
+
+Edukado.net diskonigis la liston de ĉi-jaraj premiitoj. Ĉi-foje estis omaĝitaj entute sep novaj panteonanoj el sep malsamaj landoj:
+
+Ngoc Lan NGUYEN THI (Vjetnamio),
+
+Françoise NOIREAU (Francio),
+
+Inhye GIM (Ella) (Sud-Koreio),
+
+Elda DOERFLER (Italio),
+
+LI Weilun (Ĉinio),
+
+Vicente MANZANO-ARRONDO (Hispanio) kaj
+
+Heinz-Wilhelm SPRICK (Germanio).
+
+Gratulon al tiuj sep esperantistoj, kiuj elstare kontribuis por nia movado. Iliajn biografiojn vi povas legi ĉe https://edukado.net/novajhoj?id=899. Ni esperas, ke ilia modela agado inpiros kaj instigos aliajn esperantistojn labori por nia lingvo kaj nia movado.
+
+Redaktis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Dua impreso pri Horgos: pli bona ol la unua
+
+**Published:** 2023-12-19
+
+**URL:** http://esperanto.china.org.cn/2023-12/19/content_116886876.htm
+
+**Categories:** Ekonomio
+
+Fine de majo 2021 mi unuafoje vizitis la urbon Horgos, ĉe la landlimo de Ĉinio kun Kazaĥio. Tiu vizito estis rapida, mi atingis la urbon posttagmeze, faris kelkajn rapidajn vizitojn, tranoktis en hotelo kaj en la sekva mateno jam estis survoje al Yili.
+
+Homoj promenas en la liberkomerca zono ĉe la landlimo de Ĉinio kaj Kazaĥio.
+
+Tiam estis printempo, kaj la verdo de la belaj stepoj en tiu areo de Xinjiang-a Ujgura Aŭtonoma Regiono faris belan kontraston kun la neĝkovritaj montopintoj. Krom tio, Horgos ŝajnis al mi nur aro da konstruaĵoj, sen apartaj allogaĵoj. Stratoj estis preskaŭ dezertaj, ĉiutaga vivo ŝajnis esti nur inter hejmo kaj laborejo. Multo el tiu mia impreso estas pro la fakto, ke tiu vizito estis tre rapida kaj dum la pandemio de Kovim-19.
+
+En mia unua vizito al Horgos, mi rapide vizitis tri lokojn: unue mi iris al la pasejo inter Ĉinio kaj Kazaĥio, sed la postuloj por internacia vojaĝo kaj kvaranteno rezultis en portempa fermo de tiu pasejo kaj la loko aspektis forlasita, tute senhoma. Mi intervjuis fakulon de la loka registaro sur preskaŭ dezerta placo kaj konstante min demandis: Kial oni venigis min ĉi tien? Estis nenio okazanta kaj nenio por vidi en tiu loko. La intervjuon oni povus tutegale fari en ajna alia loko anstataŭ tie sub la forta suno.
+
+De tie mi iris al kargoterminalo de ĉin-eŭropa fervojo kaj tie vidis ekiron de ĉin-eŭropa kargotrajno. Sekve mi iris al la firmao pri internacia komerco Jinyi, bazita en Horgos. Tie mi vidis kaj gustumis produktojn importitajn kaj ankaŭ produktojn el tuta Ĉinio eksportataj al Centra Azio kaj Eŭropo. Laboristoj en kontakto kun trajnoj kaj kamionoj estis ĉiuj uzantaj protektajn vestojn.
+
+En 2021, plejparto de la laboristoj, kiujn mi vidis en Horgos estis vestitaj tiel. Nuntempe ili uzas normalajn uniformojn.
+
+Poste mi iris al hotelo por vespermanĝi kaj dormi. Alveninte en la hotelo, mi bezonis akcepti nukleacidan teston. Tiam estis deviga la uzo de maskoj, postulo pri skanado de dudimensia kodo por aliri kelkajn areojn, inter aliaj preventaj rimedoj.
+
+Ĉi-foje, la pejzaĝo komence de vintro estis aparte agrabla: arboj tra la tuta urbo estis plenaj de belaj flavaj folioj kaj sen la preventaj rimedoj de la pandemio. Homoj estis surstrate, mi vidis studentojn revenantajn hejmen post la lernejo, strato proksime al mia hotelo aspektis tre bela vespere kun multaj drinkejoj kaj restoracioj, kaj kompreneble ankaŭ multaj homoj. Mi povis libere iri tra la urbo sen la bezono montri rezulton de nukleacida testo nek skani dudimensian kodon.
+
+Mi refoje iris al la pasejo inter Ĉinio kaj Kazaĥio, vizitis la saman placon vizititan pasintfoje, sed tie estis pli da homoj, inter ili turistoj fotantaj. Apud la transirejo por aŭtoj, estas alia por piedirantoj, kaj pro tio estis multaj homoj kun valizoj surstrate, kaj ankaŭ taksioj kaj busoj. Sur la placo ĉi-foje estis du komercaj budoj vendantaj manĝetojn kaj trinkaĵojn.
+
+Mi promenis en la ĉirkaŭaĵo: estis vico de aŭtoj kaj kamionoj atendantaj doganan inspekton por eniri Kazaĥion. Ĉe la enirejo de la pasejo por piedirantoj estis alia placo plena de homoj, kelkaj irontaj al Kazaĥio, kelkaj alvenintaj de tie.
+
+En 2021, tiu placo ĉe la landlimo kun Kazaĥio estis dezerta pro la fermo de la pasejo inter ambaŭ landoj. Nun situacio renormaliĝis kaj homoj estas tiom multaj, ke tie prosperas surstrata komerco.
+
+De tie mi vizitis firmaon, kiu fabrikas vestaĵojn. Horgos allogas fabrikojn, pro la situo kiu faciligas eksportojn. Tie mi vidis la procezon de farado de vestaĵoj. Laboristoj ne estis tre okupataj, multaj el ili de tempo al tempo ŝatis kontroli siajn poŝtelefonojn. Tie laboras homoj el malsamaj etnoj de Ĉinio, en la sama funkcio kaj laborkondiĉoj. Mi aparte atentis pri grupeto de fraŭlinoj, videble el malsamaj etnoj, kiuj estis gaje interbabilantaj. Ili tre bone spegulas tiun spiriton de harmonio inter etnoj kiu donas al Xinjiang ĝian bonan etoson.
+
+En la sekva tago mi vizitis la liberkomercan zonon inter Ĉinio kaj Kazaĥio, la unua liberkomerca zono kreita de Ĉinio kun alia lando. Por eniri la zonon oni submetiĝas al elmigrada proceduro por internaciaj vojaĝoj. Parto de la areo de la liberkomerca zono estas en Kazaĥio, parto en Ĉinio, kaj la landlimon oni transiras senĝene. Tie oni rajtas senimposte aĉetumi, kaj poste oni devas submetiĝi al enmigrada kontrolo por eniri Kazaĥion aŭ Ĉinion.
+
+Tiu loko estas tre interesa, ĉar homoj el ambaŭ landoj venas por aĉetumi. Tie troviĝas pluraj senimpostaj vendejoj similaj al tiuj de internaciaj flughavenoj, sed ankaŭ estas simplaj butikoj kaj surstrataj budoj vendantaj neluksajn varojn. Aparte kaptis mian atenton la komerco de pneŭmatikoj surstrate. Poste mi rimarkis, ke en najbaraj vendejoj ankaŭ eblas aĉeti pecojn de aŭtoj kaj eĉ tutan aŭton!
+
+Senimposta komerco de pneŭmatikoj ĉe la landlimo inter Ĉinio kaj Kazaĥio allogas homojn el ambaŭ landoj.
+
+Kompreneble estas maksimuma elspezvaloro por la imposta escepto, kaj por foriri el la zono oni bezonas pagi imposton surbaze de la elspezo super tiu limo. Mi nur aĉetis ĉokoladojn kaj ne bezonis pagi impostojn. En la liberkomerca zono estas komerco de varoj el la tuta mondo, inkluzive de aliaj landoj krom Kazaĥio kaj Ĉinio.
+
+Horgos, la urbo kiu ŝajnis al mi kvazaŭ sen socia vivo en 2021, ĉi-jare montriĝis plena de homoj, viveco kaj ĝojo!
+
+Verkis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Okazis forta tertremo en Gansu, Ĉinio
+
+**Published:** 2023-12-19
+
+**URL:** http://esperanto.china.org.cn/2023-12/19/content_116889831.htm
+
+**Categories:** Socia Vivo
+
+Je la 23-a horo kaj 59 minutoj de la 18-a de decembro okazis 6.2-magnituda tertremo kun la hipocentra profundeco de 10 kilometroj en la gubernio Jishishan de la provinco Gansu de Ĉinio. La tertremo kaŭzis la morton de 100 homoj en la provinco Gansu kaj 11 homoj en la provinco Qinghai. Infrastrukturoj pri servoj kiel akvo, elektro, trafiko kaj komunikado estis damaĝitaj. Savado estas farata enorde kaj rapide.
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Malnova kanto de La Mondanoj gajnis novan tekston
+
+**Published:** 2023-12-21
+
+**URL:** http://esperanto.china.org.cn/2023-12/21/content_116895038.htm
+
+**Author:** Rafael Henrique Zerbetto
+
+**Categories:** E
+
+La 15-an de decembro, kiam Esperantujo festis la naskiĝtagon de nia majstro Zamenhof, oficiale aperis la nova unuopaĵo de La Mondanoj "La Junularo de Hodiaŭ".
+
+La Mondanoj estis fondita en 1983 de la germanaj esperantistoj Aaron Koenig kaj Carsten Kindermann. En 1984, Tom Wunderlich aliĝis al la grupo kiel ĉefgitaristo. La Mondanoj ankaŭ havis tamburiston nomitan Marcus ĝis la fino de 1985, kiam ili faris plurajn koncertojn en Esperantujo. Fine de tiu jaro la grupo ĉesis, ĉar ili estis studentoj fokusiĝantaj pri siaj karieroj kaj ne havis tempon por sin dediĉi al muziko.
+
+La Mondanoj ankoraŭ sinprezentis unufoje duope aŭ unufoje triope en la 1980-aj jaroj, kaj la tri muzikistoj fariĝis bonaj amikoj. Inter la pluraj kantoj komponitaj de La Mondanoj tiutempe, "Muskola Belulino", ankoraŭ konata de esperantistoj tra la mondo, estas la nura profesie registrita.
+
+Post 36-jara paŭzo, la triopo decidis reunuigi la bandon, sed la kantofolioj perdiĝis laŭ tempopaso kaj pro tio ili devis memore rekonstrui la kantojn kaj foje verki novajn. "La Junularo de Hodiaŭ" gajnis novan tekston, kiu miksas la pasinton kun la nuno.
+
+En la nova teksto, la rememoroj de la aŭtoroj pri ilia junularo, kun verboj en pasinta tempo, miksiĝas kun deklaroj en nuna verba tempo pri la nuntempa junularo, laŭ la perspektivo de maljunaj hipioj kiuj ilin mokas. Tamen necesas substreki, ke tiu moko estas nur ironia.
+
+La komparo inter la nuna kaj la pasinta junularoj en la teksto de tiu ĉi kanto estigas apartajn interesajn konsiderojn pri la malsamaj realoj trovitaj de malsamaj generacioj: la nunaj gejunuloj, kun siaj poŝtelefonoj, videoludoj kaj tipaj hobioj de tiuj kreskintaj en interkonektita mondo, ne plu havas la idealisman spiriton kiu markas la generacion de la muzikistoj, nek ĝuas sian junecon sam-maniere.
+
+Unuavide tiuj du generacioj estas tre malsamaj, ĉu ne? Sed la vero estas, ke la muziko de La Mondanoj same plaĉas al la junularo de hodiaŭ kiel ĝi plaĉis al tiu de la 1980-aj jaroj. Malgraŭ tiom malsamaj realoj, tiuj du junularoj kundividas la idealojn de nia movado kaj ĝuas ĝian amikecan kaj kulturriĉan etoson. Plie, La Mondanoj mem konstatis, ke almenaŭ unu tradicion la nuna esperantista junularo heredis: la "La Bambo-rito" tipa de IJK.
+
+La melodio de "La Junularo de Hodiaŭ" estas danciga kaj plaĉa al orelo, kio igas ĝin tre taŭga por koncertoj dum Esperantaj aranĝoj. La unuopaĵo eldonita de Vinilkosmo prezentas ne nur la kanton, sed ankaŭ ĝian instrumentan version por ke vi kaj viaj amikoj kantu kune dum Esperantaj renkontiĝoj!
+
+En la retejo de Vinilkosmo vi povas senpage aŭskulti peceton de la kantoj kaj aĉeti la bitan unuopaĵon:
+
+https://www.vinilkosmo-mp3.com/eo/popo-roko-hiphopo-elektronik/la-mondanoj/1-la-junularo-de-hodia%C5%AD.html
+
+Abonantoj de Vinilkosmo-ABONKLUBO povas senpage aŭskulti la tutan katalogon de Vinilkosmo per elsendfluo. Vi povas aboni ĝin ĉe
+
+https://www.vinilkosmo-mp3.com/eo/vinilkosmo-abonklubo.html
+
+Verkis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Kaŝgaro: Mirinda progreso en kelkaj jardekoj!
+
+**Published:** 2023-12-22
+
+**URL:** http://esperanto.china.org.cn/2023-12/22/content_116895087.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Komence de la 1990-aj jaroj, brazila televidkanalo Manchete faris dokumentan filmon pri Ĉinio, kiu kaptis grandan atenton en Brazilo kaj estis plurfoje elsendita per televido. En tiu filmo mi unuafoje informiĝis pri la urbo Kaŝgaro. Tie mankis pavimitaj vojoj kaj abundis malgrandaj azenoj uzataj kiel transportilo kaj ŝarĝobestoj. Kvankam la dokumenta filmo entenas stereotipojn kaj antaŭjuĝojn pri Ĉinio kaj islamo, tamen ĝi havas sian valoron, kaj per ĝi mi ekinteresiĝis pri Ĉinio.
+
+La antikva urbo Kaŝgaro: bela kaj vigla post granda reformado
+
+Pluraj jaroj post la vizito de brazilaj raportistoj, estis la vico de la ĉinoj Wang Miao kaj Shi Baoxiu viziti kaj foti la urbon kiel parton de projekto pri refaro de la itinero de Marco Polo de Pamiro ĝis Pekino. El ilia vojaĝo rezultis tre interesa libro en la angla, kun belaj fotoj kaj rakontoj kiuj dokumentas la vivon en la lokoj vizititaj, inkluzive de Kaŝgaro, fine de la 1990-aj jaroj.
+
+Ilia raporto havas elstaran historian kaj kulturan valoron. Ekzemple, ili prezentas la kutimojn de malsamaj etnoj vivantaj en tiu regiono kaj ankaŭ la tradiciojn de lokaj islamanoj. Ekzemple, ujguraj islamaj fraŭlinoj neniam havis la kutimon uzi kaptukon, nur tiuj edziniĝintaj kovras la hararon, kaj tio kongruas kun kion mi mem vidis en Xinjiang dum miaj vizitoj al la regiono. Tiu kutimo esence ne ŝanĝiĝis.
+
+Ili ankaŭ rimarkis, ke islamanoj en Kaŝgaro havas malsamajn kutimojn kompare kun tiuj de aliaj lokoj en Xinjiang. Ekzemple, ili fotis kelkajn kaŝgarajn virinojn uzantaj burkon aŭ kaptukon pli longan ol tiuj uzataj en norda Xinjiang. Ankaŭ mi mem konstatis, en la pasintaj tri jaroj, ke sude de Tianshan homoj ĝenerale estas pli konservemaj en siaj vivkutimoj kompare kun tiuj de la nordo.
+
+La malnovaj filmoj kaj bildoj de Kaŝgaro estis freŝaj en mia memoro, kiam mi enaviadiliĝis survoje al tiu urbo: virinoj kun kapo kovrita per longaj vualoj, azenoj surstrate, manko de pavimitaj vojoj, manko de infrastrukturo kaj kaosaj merkatoj.
+
+Sed nuna Kaŝgaro tute ne estas tia: mi estis mirigita de la progreso de tiu urbo en la pasintaj du jardekoj. Tie viroj kaj virinoj daŭre sin vestas pli konserveme, sed burkoj ne plu troveblas. Stratoj estas kovritaj de asfalto, antikvaj domoj estis renovigitaj kaj infrastrukturo multe piboniĝis. Azenojn oni tute ne vidas surstrate: ili estis anstataŭitaj de aŭtoj, motorcikloj kaj tricikloj, similaj al tiuj kiujn mi ĉiutage vidas en Pekino.
+
+Kaŝgaro estas antikva urbo kun pli ol 2 mil jaroj, kiu laŭlonge de historio kreskis sen taŭga laboro de urboplanado, kaj en ĝia historia urbocentro restis sen gravaj strukturoj por certigi sekurecon kaj komforton de la loĝantoj. Pro manko de subgrundaj galerioj por pluvakvo, domoj kaj stratoj inundiĝis dum pluvtagoj, kaj pluvakvo kuranta surstrate ankaŭ kaŭzis erozion. Savado estis tre malfacila pro la mallarĝaj aleoj inter la domoj, ne taŭgaj por aŭtoj.
+
+Plie, la antikvaj domoj, konstruitaj ĉefe el ligno, estis tute malkonformaj al la kontraŭincendiaj normoj de Ĉinio: mankis strukturoj por estingi fajron, evakui homojn kaj faciligi la laboron de fajrobrigado. Kaze de incendio en tiu areo, miloj da homaj vivoj facile perdiĝus. Tiuj domoj, improvize modifitaj laŭ tempopaso, ankaŭ estis aparte vundeblaj de tertremo, alia minaco al la antikva urbo.
+
+En aŭgusto 2010, estis aprobita la Ampleksa Skemo por Pritrakti Transformadon de Damaĝitaj Domoj de la Antikva Urbo Kaŝgaro. Dum la sekvaj sep jaroj, la laboro pri plibonigo de infrastrukturo, rekonstruado kaj protektado de la antikva urbo estis realigita. La rekonstruitaj domoj rezistas al tertremo kaj konformas al normoj pri preventado de katastrofo. Antikvaj problemoj, kiel kolektado de pluvakvo kaj kloako, estis solvitaj, kaj la renovigo de la antikva urbo estis kombinita kun laboro pri mildigo de malriĉeco, plibonigo de vivkondiĉoj kaj diskonigo de ujgura historio kaj kulturo.
+
+Antaŭ la renovigo de la antikva urbo, lokanoj bezonis uzi sitelojn por forĵeti la akvon el siaj domoj okaze de pluvo.
+
+En julio 2015, la antikva urbo Kaŝgaro estis agnoskita kiel 5A-nivela turismejo, kio kontribuis por ekonomia revigliĝo de loka turisma industrio kaj donis al lokanoj ŝancojn pri dungo kaj entreprenado.
+
+Ne nur turistoj, sed ankaŭ lokanoj ŝatas promeni en la antikva urbo. Iuvespere mi per taksio iris tien por viziti bazaron kaj surpriziĝis pri la granda nombro de turistoj kaj lokanoj. Dumvoje la ŝoforo, babilema kaj simpatia, rakontis, ke benzino estas bonpreza kaj plena benzinujo sufiĉas por 200 kilometroj, sekve li enspezas sufiĉe bonan sumon. Ankaŭ por mi estis bona negoco: simila vojaĝo per taksio en Pekino kostus al mi trioble la prezon kiun mi pagis al li.
+
+En la bazaro kiun mi vizitis, eblas aĉeti manĝaĵojn kaj trinkaĵojn, kaj ankaŭ metiartaĵojn kaj aliajn lokajn produktojn. Estis tiom da bongustaĵoj tie, ke mi pentis pro tio, ke mi vespermanĝis antaŭ ol iri tien. Iel ajn, en la bazaro mi gustumis rostitajn ovojn, rostitan viandon kaj lakton de kamelo.
+
+Mi volis profiti la okazon por aĉeti vintran kapveston por mi, ĉar lokaj ĉapeloj estas altkvalitaj kaj efikaj kontraŭ malvarmo, sed la dezajno ne estas taŭga por mi. En vendejo de maljuna ujguro, li persvadis min aĉeti ĉapelon similan al tiu uzata de li mem. Poste, en alia vendejo, du junaj vendistoj diris al mi, ke nuntempe nur maljunuloj uzas tiajn ĉapelojn, kaj proponis al mi mojosan ĉapon, kiu tamen ne kovras la orelojn. Fine mi ne aĉetis kapveston, ĉar en Pekino mi povas trovi ion pli taŭgan kaj bonprezan, kvankam ne tiom bonkvalitan.
+
+Noktovivo en Khan-bazaro en la antikva urbo Kaŝgaro
+
+Mi ankaŭ pasigis tempon rigardante la lokajn vendejojn de metiartaĵoj. En vendejo de kupraj manartaĵoj de ujgura avo, mi trovis lian nepon okupatan pri sia lerneja hejmtasko. La avo diris, ke li mem faris tiujn kuprajn objektojn: potoj, tetasoj, manĝiloj, ĉiuj el kupro kaj ornamitaj de motivoj, ja ŝajnis manfaritaj. Sed mi ne certas, ĉu la ŝlosilingoj kaj memoraĵoj por turistoj estis ankaŭ faritaj de li.
+
+Ujguroj estas aparte multnombraj en Kaŝgaro, sed aliaj etnoj ankaŭ vivas tie. Dum mia promenado en la bazaro mi rimarkis plurajn junajn parojn promenantajn kiel gekoramikojn. Preterpasante ilin, mi aŭdis almenaŭ du lingvojn krom la ĉina, verŝajne la ujgura kaj la taĝika. Ankaŭ kelkaj grupoj de junaj amikoj estis tie promenantaj, kaj samkiel la paroj, ili interparolis per etna lingvo. Kvankam ĉinaj gejunuloj scipovas la ĉinan, tamen ili ne forlasas siajn gepatrajn lingvojn, kaj en la ĉiutaga vivo ili uzas du aŭ eĉ pli da lingvoj. La argumento, ke instruado de la ĉina en lernejoj kaŭzas perdon de lingva diverseco en Ĉinio, ne akordiĝas kun la realo.
+
+Fakte okazas la malo, etnaj kulturoj de Ĉinio estas pli viglaj ol antaŭe: ĉie en Ĉinio junuloj pli interesiĝas pri la tradicia ĉina kulturo, kaj tio inkluzivas etnajn kulturojn. Kreskis la nombro de homoj en Xinjiang, kiuj ŝatas uzi etnan vestaĵon, kaj samtempe kreskas la komerco de tiaj produktoj, kaj por lokanoj, kaj por turistoj. Tradiciaj metiartoj de Xinjiang, kiuj antaŭ nelonge riskis malaperi, nun estas protektataj de la ŝtato kaj populariĝas.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Yili: Ĉiam bela kaj ĉarma
+
+**Published:** 2023-12-22
+
+**URL:** http://esperanto.china.org.cn/2023-12/22/content_116895097.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+Yili, ankaŭ skribata kiel Ili (La unua formo estas preferinda en Esperanto por eviti konfuzon kun la pronomo), estas kazaĥa aŭtonoma subprovinco en Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio. Tie troviĝas la rivero Yili kaj belegaj stepoj, inkluzive de la stepo Nalati, unu el la plej belaj lokoj kiujn mi vizitis.
+
+Lokaj akordionistoj el malsamaj etnoj koncertas kune en Yining.
+
+En tiu prefektejo vivas multaj aliaj etnoj krom kazaĥoj, interalie hanoj, ujguroj, rusoj, tataroj, mongoloj, ŝibeoj, huioj, uzbekoj kaj taĝikoj. En 2021, dum vizito al Akordiona Muzeo Aleksander en Yining, la plej granda urbo de la prefektejo, mi spektis koncerton de 13 akordionistoj el malsamaj lokaj etnoj, inter ili estis Aleksander Zazurin, fama rus-etna Yili-ano kiu dum sia vivo sin dediĉis al ludado, riparado kaj kolektado de tiu muzikilo. Lia privata kolekto de akordionoj el la tuta mondo, inkluzive de raraĵoj, originis tiun muzeon. Ĉi-jare mi refoje vizitis la muzeon kaj tie koncertis nur sep el la 13 muzikistoj, kaj Aleksander ne estis inter ili.
+
+Tre allogas min tio, ke la etna diverseco de Yili entenas fortan spiriton de malfermeco: tie estas ne nur granda diverseco de etnoj, ĉiu kun apartaj lingvo, festotagoj kaj kulturaj trajtoj, sed ankaŭ multaj geedziĝoj inter homoj de malsamaj etnoj. En tiuj pluretnaj familioj, kutime miksiĝas tradicioj de ĉiu koncerna etno, ekzemple manĝi tipajn pladojn de ĉiu etno kaj kune celebri ĉiujn festotagojn. Mi ne scias detalojn, kiel ili elturniĝas de komunikaj problemoj, sed tie regas plurlingva medio kaj multaj Yili-anoj estas poliglotoj.
+
+Speciala trajto de Yining estas tio, ke ĝia urbocentro estis konstruita laŭ la formo de seslatero, laŭ la plano de germana arkitekto. Ses stratoj komenciĝas ĉe la centra punkto de la urbo, kreante ses sekciojn, kie troviĝas la kvartalo Liuxinjie, nuntempe fama turismejo kaj pro sia unika arkitekturo, kaj pro ĝia pluretna loĝantaro, kiu kreas unikan kaj buntan kulturan etoson. Tie vizitantoj povas vidi kaj aĉeti lokajn manartaĵojn kaj manĝaĵojn. Alia trajto de la kvartalo estas la abundo de blua koloro: lokanoj ŝatas ĝin, ĉar ĝi simbolas feliĉon kaj viglecon. Aŭtomobiloj estas malpermesataj en la areo entenata de la tria ringoforma strato ĉe la urbocentro, kaj en tiu areo -- kie troviĝas pluraj kulturaj hereĵoj -- registaro subtenas disvolvadon de turismo kaj komerco por alporti ŝancojn je dungo kaj entreprenado al la loka loĝantaro.
+
+La kazaĥa estas oficiala lingvo -- kune kun la ĉina -- en Yili, sed en Xinjiang ĝi estas skribata per la persa alfabeto, samkiel la ujgura, do estas malfacile por turistoj distingi inter tiuj du lingvoj. En Kazaĥio, la kazaĥa estas skribata per la cirila alfabeto, kaj en Horgos, urbo inter Kazaĥio kaj Yili, ĉie oni vidas ŝildojn en la kazaĥa skribita per la cirila por faciligi la ĉiutagan vivon de homoj venintaj el la najbara lando, ekzemple ŝoforoj kaj komercistoj.
+
+Ŝibea majstro instruas al mi la bazan teknikon pri arkpafado.
+
+En Yili ankaŭ estas kelkaj etnaj aŭtomataj gubernioj, kie aparta etna lingvo estas oficiala. Ekzemple, en la Ŝibea Aŭtonoma Gubernio Qapqal, la ŝibea lingvo estas oficiala; tio signifas, ke tie oni povas vidi oficialajn dokumentojn kaj ŝildojn en la ŝibea. Kiam mi unuafoje vidis skribaĵon en la ŝibea mi erare supozis, ke ĝi estis en la mongola aŭ manĉuria, ĉar la signoj estas tre similaj.
+
+La gubernio Qapqal de Yili estas la nura ŝibea aŭtonoma gubernio en Ĉinio. Dum la regado de imperiestro Qianlong de Qing-dinastio, multaj ŝibeoj -- origine el nordorienta Ĉinio -- migris al Yili sub malfacilegaj kondiĉoj. Tiel estiĝis komunumo de 4 mil ŝibeoj, kaj nuntempe loĝas 19 mil ŝibeoj.
+
+Ŝibeoj estas aparte famaj pro lerteco pri arkpafado, kaj pluraj ĉinaj arkpafistoj premiitaj en internaciaj konkursoj estas ŝibeoj naskiĝintaj en Qapqal. En la muzeo, kiu prezentas la historion kaj kulturon de ŝibeoj, troviĝas specimenoj de malsamspecaj arkoj kaj sagoj.
+
+Ŝildo en Qapqal-a Ŝibe-a Aŭtonoma Gubernio montras la nomon de strato en la ŝibea, ĉina skribo kaj pinyin.
+
+En tiu gubernio estas publikigata la nura ĵurnalo en la mondo en la ŝibea lingvo, nomita Qapqal-a Novaĵo. Vizito al ĝia redaktejo estas nepra por esperantisto, ĉar ilia flegado por teni vivanta la lingvon kaj la kulturon de ŝibeoj estas ja bonega instigo por ke ni daŭrigu nian agadon por Esperanto. La ĵurnalo estas disponebla surpapere kaj en reta versio, kaj estas ankaŭ legata de ŝibeoj vivantaj en aliaj lokoj.
+
+Mia pasinta vizito al Yili okazis dum printempo, epoko tre oportuna por viziti la belajn pejzaĝojn de lavendokampoj kaj verdaj stepoj kun ŝafoj, ĉevaloj kaj bovoj paŝtantaj kune. Ĉi-foje la pejzaĝo en la kamparo havis alian aspekton, kun homoj okupataj je kolektado kaj stokado de furaĝo por manĝigi la bestojn dum vintro.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# La beleco de metalaj metiartaĵoj de Xinjiang
+
+**Published:** 2023-12-25
+
+**URL:** http://esperanto.china.org.cn/2023-12/25/content_116895115.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+De antikveco, Xinjiang-a Ujgura Aŭtonoma Regiono de Ĉinio kreas belajn tasojn, kuirilojn kaj aliajn objektojn por la ĉiutaga vivo, faritaj ĉefe el kupro, sed ankaŭ el aliaj metaloj. Dum reformo de la antikva urbo Kaŝgaro, registaro aranĝis apartan lokon por kunigi metiistojn por montri sian metion al turistoj kaj vendi siajn kreaĵojn. Turismo kreskigis la enspezon de tiuj metiistoj, kontribuante por konservado de tiu kultura heredaĵo de Xinjiang kaj ankaŭ por malaperigo de malriĉeco en la urbo.
+
+Forĝisto prilaboras metalon per fajro kaj martelo.
+
+Forĝisto klarigas la teknikon al vizitantoj.
+
+Metiisto per martelo kreas reliefon sur metalo .
+
+Manartaĵoj sur breto atendas aĉetanton.
+
+Raportis kaj fotis: Rafael Henrique Zerbetto
+
+El Popola Chinio
+
+
+---
+
+# Printempa Festo estis enlistigita kiel flosanta ferio de UN
+
+**Published:** 2023-12-26
+
+**URL:** http://esperanto.china.org.cn/2023-12/26/content_116903861.htm
+
+**Categories:** Kulturo,Scienco kaj Sporto
+
+La 22-an de decembro la 78a Ĝenerala Asembleo de la Unuiĝintaj Nacioj (UN) adoptis rezolucion por difini la Printempan Feston kiel flosantan ferion de la Unuiĝintaj Nacioj.
+
+Dai Bing, diplomatia komisiito de konstanta misio de Ĉinio al UN, diris post la adopto de la rezolucio, ke la Printempa Festo, kiel tradicia ĉina festo kun familia rekuniĝo kaj bondeziroj por la venonta jaro, ne nur portas la ideojn de la ĉina civilizacio de paco kaj harmonio, sed ankaŭ portas la komunajn valorojn de la homaro, kiel harmonian familion, socian inkluzivecon kaj solidajn rilatojn inter homo kaj naturo.
+
+Dai diris, ke la klopodoj de Ĉinio por antaŭenigi la Printempan Feston kiel ferion de UN estas pragmata paŝo al la realigo de la Tutmonda Civilizacia Iniciato de Ĉinio kaj pledado por diverseco en civilizacioj.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Okazis kunveno memore al 60-jara jubileo de 1-a Tutlanda Esperanta Laborkunsido
+
+**Published:** 2023-12-28
+
+**URL:** http://esperanto.china.org.cn/2023-12/28/content_116907064.htm
+
+**Categories:** E
+
+La 22-an de decembro okazis en Pekino kunveno memore al la 60-jara jubileo de la 1-a Tutlanda Esperanta Laborkunsido. Ĉeestis kaj parolis Liu Dawei, vicprezidanto de Ĉina Internacia Komunika Grupo kaj prezidanto de la Ĉina Esperanto-Ligo (ĈEL), Chen Haosu, eksprezidanto kaj honora prezidanto de ĈEL, kaj Tan Xiuzhu, eksprezidantino de ĈEL. En julio de 1963 okazis en Pekino la 1-a Tutlanda Esperanta Laborkunsido, ĉeestis kaj faris parolon Chen Yi, tiama membro de la Politika Buroo de la Centra Komitato de Komunista Partio de Ĉinio, vicĉefministro de Ŝtata Konsilantaro kaj ministro pri eksteraj aferoj de Ĉinio.
+
+Liu Dawei faras parolon
+
+Liu Dawei diris, ke en la kunsido oni plene asertis la rolon de Esperanto, sisteme studis la metodojn kaj strategiojn de Esperantaj laboroj, faris postulojn por la disvastigo kaj teamkonstruado de Esperanto tra la lando kaj montris la direkton de la disvolviĝo de ĉina Esperanta afero. Dum la pasintaj 60 jaroj la Esperantaj laboroj de Ĉinio havis rimarkindajn atingojn, precipe plifortiĝis la konstruado de Esperanto-organizoj, formiĝis bona etoso por la diskonigo de Esperanto en la tuta socio, aperis grandnombro da Esperanto-fakuloj kiuj ludis gravan rolon en diskonigo kaj interŝanĝo inter nia lando kaj fremdlandaoj per Esperanto. Li diris, ke estontece, Esperanto-laboro en la nova epoko devas ĉiamteni la ĝustan vojon kaj mision pri la ŝtato, neniam forgesi la idealon kaj diligente labori, kaj konscie surŝultrigi la novan kulturan taskon de nia lingvo.
+
+Chen Haosu faras parolon
+
+Chen Haosu multjare servis kiel prezidanto de ĈEL, en la memora kunveno li tre ĝojis renkontiĝi kun la tri veteranoj, kiuj partoprenis en la laborkunsido en 1963. Li diris, ke kiam Chen Yi faris parolon por subteni Esperanto-laboron, liaj multaj ideoj poste realiĝis. Nun li esprimas gratulon al amikoj de la esperantistaro. Li ankaŭ verkis poemon, esperante, ke Esperanto-laboro en la nova epoko havos pli riĉajn rikoltojn.
+
+Tan Xiuzhu faras parolon
+
+Tan Xiuzhu estas unu el la unuaj studentoj, varbitaj por lerni Esperanton post la laborkunsido, ŝi poste rolis kiel vicĉefredaktoro de la revuo
+
+El Popola Ĉinio
+
+. Ŝi rememoris sian sperton dum ekstera komunikado per Esperanto sub la influo de la spirito de la laborkunsido. Ŝi diris, ke la idealo kaj celo de Esperanto igas ĝin reprezentanto de avantaĝa kulturo, estas honoro okupiĝi pri Esperanto. Ŝi esperas, ke Esperanto kaj esperantistoj daŭre konstruos la homaran komunumon de komuna estonteco por la tuta homaro en la nova epoko.
+
+ĈEL donas pokalojn pri "60-jaroj de Esperanta Laboro" al tri veteranoj Li Yuping (dekstre), Liu Junfang (meze) kaj Nan Youli (maldekstre).
+
+En la kunveno ĈEL donis pokalojn pri "60-jaroj de Esperanta Laboro" al tri veteranoj Li Yuping, Liu Junfang kaj Nan Youli. Li Yuping, kiel reprezentanto de la veteranoj, diris, ke kiel partoprenanto en la unua laborkunsido, ŝi multe profitis en la pasintaj 60 jaroj kaj esperas progresi kune kun junaj esperantistoj. ĈEL ankaŭ donis pokalon de "Speciala Kontribuanto por Esperanto-edukado" al Li Weilun, emerita vicprofesoro de Pekina Lingva kaj Kultura Universitato. Li Weilun diris, ke li neniam retiriĝos el Esperanto kaj pretas sindediĉi al Esperanta afero ĝis la lasta momento.
+
+Li Weilun faras parolon
+
+Li Yuping faras parolon
+
+Wang Hanping, vicprezidanto de ĈEL, prezidas la kunvenon
+
+La kunveno estis prezidita de Wang Hanping, vicprezidanto de ĈEL. La partoprenantoj spektis filmeton memore al la 1-a Tutlanda Esperanta Laborkunsido. Ankaŭ parolis Xiao Huoli, Yuan Ailin, Zhu Xueli kaj aliaj reprezentantoj de lokaj Esperanto-organizoj.
+
+El Popola Chinio
+
+
+---
+
+# Esperanto havas kiajn avantaĝojn en interkultura komunikado?
+
+**Published:** 2023-12-29
+
+**URL:** http://esperanto.china.org.cn/2023-12/29/content_116909921.htm
+
+**Categories:** Videoj
+
+
+
+
+---
+
+# Okazis kunsido de Centra Komitato de KPĈ memore al 130a naskiĝtago de Mao Zedong
+
+**Published:** 2023-12-29
+
+**URL:** http://esperanto.china.org.cn/2023-12/29/content_116910447.htm
+
+**Categories:** Socia Vivo
+
+Antaŭtagmeze de la 26a de decembro okazis kunsido en Pekino memore al la 130a naskiĝtago de Mao Zedong. Faris gravan paroladon Xi Jinping, ĝenerala sekretario de la Centra Komitato de la Komunista Partio de Ĉinio (KPĈ), ĉina prezidanto kaj prezidanto de la Centra Milita Komisiono. Li emfazis, ke kamarado Mao Zedong estas granda marksisto, granda proleta revoluciulo, strategiisto kaj teoriisto, granda pioniro ĉiniiganta la marksismon, granda fundamentometinto en la konstrua afero de la ĉina socialisma modernigo, granda patrioto kaj nacia heroo de Ĉinio ekde la moderna epoko, kerno de la unuageneracia centra gvidantaro de la partio, granda homo de la epoko, gvidanta la ĉinan popolon radikale ŝanĝi sian sorton kaj la aspektojn de la lando, granda internaciisto, kiu faris esencajn kontribuojn por liberigi subprematajn naciojn de la mondo kaj progresigi la homaron. La penso de Mao Zedong estas valora spirita riĉaĵo de KPĈ, kaj longe gvidos KPĈ. La plej bona memorigo al kamarado Mao Zedong estas ja plue antaŭenigi la aferon de li kreitan.
+
+Ĉeestis la kunsidon ankaŭ la membroj de la Politika Buroo de la Centra Komitato de KPĈ. Antaŭ la kunsido Xi Jinping kaj aliaj ŝtataj gvidantoj venis al la Memoriga Halo de Prezidanto Mao, kaj faris tri riverencojn antaŭ la sidstatuo de Mao Zedong kaj rigardis kun respektego la restaĵon de Mao Zedong.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Okazis en Pekino Centra Konferenca pri Laboro Rilata al Eksteraj Aferoj
+
+**Published:** 2023-12-29
+
+**URL:** http://esperanto.china.org.cn/2023-12/29/content_116910453.htm
+
+**Categories:** Socia Vivo
+
+La Centra Konferenco pri Laboro Rilata al Eksteraj Aferoj daŭris en Pekino en la 27a kaj la 28a de decembro. Xi Jinping, ĝenerala sekretario de la Centra Komitato de la Komunista Partio de Ĉinio, ĉina prezidanto kaj prezidanto de la Centra Milita Komisiono, faris gravan paroladon en la konferenco.
+
+En sia parolado Xi Jinping sisteme rerigardis la historiajn atingojn kaj valorajn spertojn de grandlanda diplomatio kun ĉinaj trajtoj en la nova epoko, eksplikis la internacian medion kaj historian mision de ĉina eksterafera laboro, kaj faris ampleksajn planojn por ĉina eksterafera laboro nune kaj estontece.
+
+(el ĈRI)
+
+Redaktoro: Xie Ruifeng
+
+El Popola Chinio
+
+
+---
+
+# Prezidanto de UEA: Ni esperas Ĉinion akiri pli grandan atingon en Esperanta eldono kaj eduko
+
+**Published:** 2023-12-29
+
+**URL:** http://esperanto.china.org.cn/2023-12/29/content_116910467.htm
+
+**Categories:** Videoj
+
+
+
+
+---

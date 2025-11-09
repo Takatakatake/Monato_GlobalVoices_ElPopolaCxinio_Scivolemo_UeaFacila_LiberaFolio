@@ -1,0 +1,3503 @@
+---
+source: "Libera Folio (liberafolio.org)"
+generated_at: "2025-11-08T15:40:30.218053+00:00"
+generator: "retradio_lib.py"
+time_range: "2025-01-07 – 2025-11-04"
+---
+
+
+# Ĉu la estraro kaj komitato de TEJO dormas?
+
+**Published:** 2025-01-07
+
+**URL:** https://www.liberafolio.org/2025/01/07/cu-la-estraro-kaj-komitato-de-tejo-dormas/
+
+**Categories:** TEJO, movado
+
+Nova estraro de TEJO ekoficis en septembro, sed la transdono ne estis glata kaj multaj gravaj dokumentoj malfruas. Sed ankaŭ la komitato ne estas aktiva kaj apenaŭ reagis al la malfruo. Ŝajnas ke la malfrueco parte rilatas al disputo kun la ekskasisto, kaj leviĝis akuzoj pri mensogado kaj pri kontraŭleĝaj proponoj.
+
+La 11-an de septembro oni anoncis la fakdividon de la nova estraro de TEJO, elektita en aŭgusto dum IJK 2024 en Litovio. La nova estraro havas sep membrojn. La prezidanto, Michal Matúšov (KuboF Hromoslav), raportis ke la transdono ”bone progresas.” Sed post tiam la komitata retlisto apenaŭ spertis iun ajn aktivecon. Preskaŭ la solaj afiŝoj estis anoncoj kiuj aperis senkomente. Dum la sekvaj monatoj la estraranoj apenaŭ raportis pri sia aktivado – sed la komitatanoj ne demandis, ĉu ili ĉiuj dormas.
+
+La 17-an de septembro Igor “Ikvero” Almeida, la ĝenerala sekretario, pardonpetis pro la malfruo de la protokolo de la komitatkunsido okazinta dum la IJK. Sed ĝis nun la protokolo daŭre mankas, malgraŭ ke oni kunsidis antaŭ pli ol kvar monatoj.
+
+Alia malfruo temas pri la elekto de novaj komitatanoj Ĉ. La elekto okazis dum la IJK. La 20-an de aŭgusto, daŭre dum la IJK, Matúšov raportis ke, pro malklareco pri la voĉdonrajto, oni refaros la voĉdonadon. La balotado finiĝis en la sekva tago, sed Matúšov skribis ke li plu dubis la ĝustecon de la rezulto, do li rekalkulos la voĉojn ”morgaŭ aŭ postmorgaŭ”.
+
+Sed fakte nur preskaŭ kvar monatojn poste, la 16-an de decembro li fine anoncis la rezulton. Li diris ke la prokrasto okazis ĉar ”mi malsanis kaj havis densan laboran programon”, kaj necesis rekalkuli la voĉojn ”permane” pro iu reta cimo.
+
+En oktobro , Almeida alvokis kanditatojn por iĝi komitatanoj B, kiuj ekoficu komence de decembro. Post unu monato, li pardonpetis pro prokrasto, kaj  la 21-an de decembro li anoncis ke li remalfermas la alvokon, ĉar estis malpli da kandidatoj ol vakaj lokoj kaj kelkaj kandidatiĝoj ne estis validaj.
+
+Tiam li diris ke oficiala informo pri la validaj kandidatiĝoj okazos la 29-an de decembro kaj la balotado komenciĝos je la sama tago. La anonco ĝis nun ne aperis, sed la balotiloj ja estis senditaj al individuaj membroj de TEJO. Estas naŭ vakaj lokoj sed nur kvin kandidatoj, kaj rimarkindas ke ĉiuj kandidatoj venas el Afriko.
+
+La 20-an de oktobro Mihary Andrianirina, la kasisto, raportis ke ŝi prilaboras la financan raporton kaj prezentos ĝin ”ĉirkaŭ la fino de novembro.” Ĝis nun ĝi tamen ne aperis.
+
+Oni prezentis la jarraporton al la komitato kaj komencis la debatan fazon je la 2-a de novembro. Sed neniu estrarano aŭ komitatano komentis, kaj ŝajnas ke oni forgesis okazigi la voĉdonadon pri la aprobo de la raporto.
+
+Ĉi tiuj prokrastoj kaj malfruoj pasis preskaŭ tute sen komento de la komitato, sed finfine en decembro Wojtek Oreszczuk, komitatano B, demandis pri la stato de la buĝeto, petis raportojn pri la estrar-kunsidoj kaj atentigis ke lia mandato kiel komitatano B finiĝis, sed nova elekto ne okazis.
+
+Ne venis respondo. Post unu semajno, la eksprezidanto kaj nuna komitatano Ĉ, Tyron Surmon demandis pri kelkaj gravaj dokumentoj kiuj ankoraŭ ne aperis. Temis pri la protokolo de la komitatkunsido dum la IJK, la financa raporto por 2023, la buĝeto por 2025, la protokoloj de estraraj kunsidoj, la voĉdono pri la jarraporto por 2023 kaj la elekto de komitatanoj B.
+
+La Ĝenerala Sekretario Almeida respondis:
+
+–Mi pardonpetas pro la malfruo; meze de aliaj taskoj, kiuj havis pli urĝajn limdatojn, kaj en TEJO kaj en BEJO (kie mi ankaŭ estraranas), mi ne sukcesis finpritrakti tion ĝustatempe.
+
+La Prezidanto Matúšov diris:
+
+– Kiel estis plurfoje menciite, la transdono ne okazis plej bone. La Financa raporto 2023 devus esti preta jam ĝis marto 2024, kaj dum KoKu dum IJK ni voĉdonis provizi ĝin ĝis la fino de oktobro 2024. Kiel mi estis informita, ĝi daŭre ne estas preta… Mi bedaŭras la prokraston.
+
+Unu kialo por la malfrueco de la financa raporto ŝajne estas disputo kun la ekskasisto, Patricio Iglesias. En septembro li skribis al la komitato pri konfliktoj de intereso, kiuj laŭ li estiĝis rilate al la eksa prezidanto Albert Stalin Garrido, kaj rilate al la ĝenerala sekretario Igor Almeida. Laŭ Iglesias, la duoblaj roloj de tiuj personoj ”damaĝas la reputacion de TEJO”.
+
+Tuj venis forta respondo de la eks-prezidanto Surmon:
+
+– Via konduto estas hontiga. Mi fortege bedaŭras ke vi ne kapablas akcepti kiam viaj proponoj malsukcesis. Remalfermi delonge solvitajn diskutojn post la fino de la mandato, kaj prezenti ĝin al la Komitato kvazaŭ ĝi estas skandalo, sole pro tio ke vi ne subtenis la finan rezulton, estas terura agadmaniero por eksestrarano.
+
+Surmon klarigis ke la temo jam estis diskutita ene de la estraro kaj ke ĉiuj krom Iglesias konsentis pri la decido subskribi kontrakton kun Garrido por helpi organizi IJK 2025 en Indonezio. Laŭ li, ne temas pri konflikto de interesoj, ĉar Stalin Garrido ne estas dungito de TEJO.
+
+En decembro komitatano C Espoir Ngoma Kasati demandis al la komitato pri aserto de Iglesias, laŭ kiu ties mesaĝoj nun estas moderigataj en la komitata listo, ”ĉar kelkaj stabanoj ne volas ke oni eksciu pri administra decido kiu povus kosti al TEJO ĉirkaŭ 20 mil eŭrojn”.
+
+Carlos Pesquera Alonso , la subvencipetisto de TEJO, respondis ke la asocio ja riskas perdi monon, sed ke kulpas ĝuste la eksa kasisto Patricio Iglesias, kiu ne ĝustatempe plenumis siajn taskojn – interalie mankas la deviga financa raporto de la pasinta jaro kaj buĝeto por la sekva jaro. La konsekvenco laŭ li povos esti ke TEJO dum longa tempo ne rajtos kandidati por ricevi novajn subvenciojn.
+
+– Patricjo (…) ade komunikas mensogojn. Pli specife, Patricjo jam menciis la mensogon pri kiu vi celas en ĉi tiu grupo kaj ricevis plurajn respondojn. La vera kialo moderigi Patricjon estas ke Patricjo minacis malkaŝi privatajn datumojn kaj de TEJO kaj de homoj. Tio estas kontraŭleĝa agado. En tiu senco, mi imagas ke vi ĉiuj konsentas ke ĉi tiu retlisto ne estas spaco kie permesi krimojn.
+
+Matúšov ankaŭ respondis ke la estraro:
+
+– ”konscias pri la menciita ideo de Patricio, kaj mi publike konfirmas, ke ni ne utiligos ĝin pro la supre menciita respekto al leĝoj kaj aliaj devoj. Aldone, laŭ mi kaj iuj aliaj homoj, tia agado estus ne nur kontraŭleĝa, sed ankaŭ malmorala.”
+
+Li ne klarigis pri kio temas la ideo de Iglesias, kaj neniu demandis.
+
+Robert Nielsen
+
+
+---
+
+# Premioj gravas por montri agnoskon al aktivuloj
+
+**Published:** 2025-01-14
+
+**URL:** https://www.liberafolio.org/2025/01/14/premioj-gravas-por-montri-agnoskon-al-aktivuloj/
+
+**Categories:** vidpunkto
+
+Stela Besenyei-Merger ĵus ricevis la unuan Premion Maertens de UEA por siaj originalaj, inspiraj kaj plurflankaj kontribuoj al la organiza kaj kultura vivo de la Esperanto-movado. Tuj antaŭ tio ŝi estis elektita la Esperantisto de la Jaro 2024. Laŭ ŝi, premioj gravas por kuraĝigi aktivulojn en Esperantujo kaj altiri atenton al ilia laboro.
+
+Okazis komence de decembro, ke mi ricevis mesaĝon pri bonaj novaĵoj. Mi havis nenian ideon pri kio povas temi. Eĉ pli granda surprizo estis kiam tre simila mesaĝo alvenis kelkajn tagojn poste. Mi devis gardi la sekreton dum kelkaj tagoj, semajnoj. Do mi havis sufiĉe da tempo pripensi kial precize nun venis tiom da atento al mia laboro. Kial estis tiu ĉi jaro alia ol la antaŭaj?
+
+Mi ricevis du premiojn ene de du tagoj. Anstataŭ verki pri mia laboro aŭ provi konvinki vin ĉu mi meritis la titolon Esperantisto de la jaro 2024 kaj la Premion Maertens mi deziras kuraĝigi vin agnoski la laboron de viaj kunlaborantoj kaj nomumi personojn ĉirkaŭ vi por la premioj kiuj ekzistas.
+
+Kion gravas mencii pri la sukcesoj estas tio, ke ambaŭ agnoskas iusence mian kontribuon al la komunumo de Esperantujo. La diversajn projektojn kiujn mi elpensis dum la jardekoj, dum kiuj mi aktivas memstare. Tiusence, ke mi partoprenas renkontiĝojn aŭ parolas Esperanton ne nur ĉar tio estis mia infanaĝa sorto. Mi trovis etan angulon de la movado kie mi bonfartas kaj decidis agi en manieroj kiuj plaĉis al mi. Laŭ la jaroj aspektis tiel, ke multaj homoj trovis miajn kontribuojn sufiĉe bonaj por uzi kaj sekvi.
+
+Mi supozas, ke mi ricevis la premiojn parte ĉar mi subtenas la laboron de multe da homoj kaj agnoskas ilian kontribuon, reliefigas aŭtorojn en legosalonoj, helpas al burĝonantaj verkistoj regule. Kaj faras tion jam de sufiĉe da jaroj por atingi pli vastan rekonon. Ankaŭ mia laboro estas grandparte bone videbla. Se oni volas, ke iu partoprenu en literatura konkurso, sencas varbi por tio, ne nur atendi, ke homoj subite sendu konkursaĵojn. Mi laboris multe por prezenti la Interkulturan Novelo-Konkurson kaj la novelarojn kiuj aperis dank’ al ĝi.
+
+La fakto ke du tre diversaj grupoj de homoj agnoskis mian laboron dum la jaroj estas granda honoro. Parton de miaj podkastoj, konsilaron pri organizado de Esperanto-renkontiĝoj kaj esploradon pri denaskuloj, intervjuojn, mi faris tute volontule, poste ricevis etan subvencion de ESF, fine estis dungita por labori oficiale por la Interkultura Novelo-Konkurso kaj por la vigligo de la literatura vivo de Esperantujo.
+
+Ĉiu kontribuas al la movado laŭ sia povo. Ne estas tiom da oficialaj instancoj, manieroj por agnoski la sukcesojn de individuoj en la movado. Malgrandas la movado, mi eĉ povus diri, ke ni ĉiuj konas unu la alian, sed tio ne veras. Por kio mi volas argumenti estas tio, ke premioj gravas. Parto de mia laboro kiel sekretario de konkurso estas disdoni premiojn, kaj tio estas unu el la plej bonaj partoj de miaj devigaj taskoj.
+
+Mi dankas la organizojn kiuj haltas fine de la jaro, rerigardas kaj agnoskas la laboron de la tiujaraj plej aktivaj personoj. Ankaŭ la kategorioj gravas kaj entute esti nomumita gravas. Mi plurfoje agnoskis tion, kaj faros denove: Tim Owen, Monika Molnár, Dorota Rodzianko same povus gajni Esperantiston de la jaro en 2024. Unu voĉo estis decida, do fine mi ricevis tiun premion. Mi povas sekvi la laboron de pluraj homoj de proksime, kaj ili faras same elstaran laboron, nur eble ne tiom videblan kiel mi.
+
+Kelkfoje en la sama kategorio oni povas havi plurajn elstarajn ricevantojn. Kaj oni malgajnas. Sed ankaŭ agnosko per nomumo gravas, se tiu listo iĝas publika. Ĝi donas eblon ekkoni la laboron de iu, pri kiu ni antaŭe ne aŭdis. Premioj igas nin serĉi, ĉirkaŭrigardi, rimarki kio okazis dum la jaro, trovi la taŭgajn personojn. Kaj mi pensas, ke ju pli da premioj, des pli bone. Estas loko por pli, ĉefe se unu kiun mi ĵus gajnis, malaperas ekde 2025.
+
+Se vi estas en pozicio fondi premion, vi havas ideon je kiu agokampo vi deziras fokusiĝi aŭ kiun lokan agadon vi volas vigligi, kiun aparte bone funkciantan asocion vi intencas danki, se vi volas subteni vian komunumon per publika danko por ties kontribuo, tiam faru! Se vi povas donaci ankaŭ monon kun la premio krom bela atestilo aŭ ion klare avantaĝan, eĉ pli bone. Se vi trovas manieron rekoni la laboron de viaj kolegoj en la plej malgranda maniero, ankaŭ notinde.
+
+Mi deziras pro tio alvoki vian atenton al ĵus fondita nova premio, kiu laŭ mi tre mankis en la komunumo. ”Instruistoj de la jaro 2025” estas iniciato de la 75-jariĝanta ILEI. La titolo esprimas pri kio temas.
+
+Mi aparte ĝojas pri la du kategorioj ”Juna Instruisto de la Jaro” (35 jarojn aĝa aŭ malpli, t.e. TEJO-aĝo) kaj ”Instruisto de la Jaro” (pli ol 35 jarojn aĝa). Krom la atestilo ankaŭ la premioj estas brilaj: senpaga aliĝo al la ILEI kaj TEJO-kongreso. Senpaga membriĝo en ILEI kaj TEJO. La gazetoj Internacia Pedagogia Revuo kaj Kontakto , aldone libropremio en ambaŭ kategorioj!
+
+La limdato por sendi kandidatiĝojn estas fine de marto. Legu pli en la retejo de ILEI .
+
+Stela Besenyei-Merger
+
+Legu pli: Stela ĉiam nur kritikas ~ mi kuraĝas paroli pri ĉio
+
+
+---
+
+# Ses esperantistoj batalas por Ukrainio
+
+**Published:** 2025-01-21
+
+**URL:** https://www.liberafolio.org/2025/01/21/ses-esperantistoj-batalas-por-ukrainio/
+
+**Categories:** movado
+
+Almenaŭ ses esperantistoj nun batalas por defendi Ukrainion kontraŭ la agreso de Rusio. Ne estas permesite malkaŝi detalojn pri ili, sed dum la IJK oni kolektis monon por helpi al ili kaj iliaj familioj. ”Mi esperas, ke en la venonta IJK ni povos organizi programeron pri lecionoj de la pasinta milito anstataŭ monkolekto”, skribas Alisa Nikitina.
+
+Mi decidis partopreni IJK-n du semajnojn antaŭ ĝia komenco kaj ekhavis la ideon organizi monkolektadon — ĉefe por subteni miajn amikojn, el kiuj kelkaj nun servas en la armeo, batalante kontraŭ la rusa invado. Mi jam dum multaj jaroj ne loĝas en Ukrainio, kaj la lasta fojo kiam mi vizitis Ukrainion en 2021, estis tago pasigita kun kijivaj esperantistoj, inkluzive de Vadim (kiu, bedaŭrinde, pereis , defendante Ukrainion) kaj lia edzino, Julia.
+
+Pro evidentaj kialoj (la reguloj de la ukraina militistaro kaj la ĝeneralaj reguloj de militoj), mi ne rajtas rakonti pri multaj detaloj, ekzemple, la nomojn de esperantistoj, kie ili troviĝas, aŭ iliajn okupojn dum aŭ antaŭ la militservo. Ĉio ĉi estas por eviti ajnan eblon transdoni informojn al rusaj spionoj, kiuj povus utiligi ilin por identigi malfortajn punktojn en la ukraina defendo.
+
+Jen la rezulto: dum la IJK en Šventoji, ni kolektis 436 eŭrojn por ukrainaj esperantistoj (kaj familioj), kiuj nun aktivas en la militservo. Kvankam la sumo ne estas grandega, ĉiu eŭro gravas kaj montras la solidarecon de la monda Esperanto-junularo. Mi elkore dankas ĉiujn, kiuj helpis – okazis, ke estis multege da homoj, kiuj volis esprimi sian subtenon al niaj esperantaj amikoj. Plejmulto donacis kontante al la skatolo en la trinkejo, sed kelkaj ankaŭ uzis Revolut-on aŭ PayPal-on. La plej sukcesaj noktoj por kolektado estis la Internacia Vespero kaj la fina nokto de la IJK.
+
+Specialan dankon meritas la organiza komitato de IJK, precipe Severija Marija Banaitytė, sen kies subteno tiu monkolekto ne eblus, kaj la helpantoj kaj organizantoj de la trinkejo. Grandan dankon ankaŭ al la german-ukraina dueto ĴeLe (Ĵenja Martínez Pérez kaj Lena Wilke), kiuj disvastigis la informon dum sia koncerto.
+
+La mono estis distribuita inter la ses ukrainaj esperantistoj en la armeo kaj la vidvino de Vadim. Ĝi estis uzata diversmaniere: unu esperantisto helpis sian familion, kiuj estas internaj rifuĝintoj en Ukrainio (ili devis translokiĝi al alia regiono pro la okupado; bedaŭrinde, la ŝtata subteno por rifuĝintoj estas tre limigita kaj apenaŭ sufiĉas por kovri bazajn kostojn).
+
+Alia persono rifuzis helpon por si mem kaj petis donaci sian parton al monkolekto por riparo de ambulanco por sia armea divizio. Unu uzis la helpon por zorgi pri sia novnaskita bebo (kiu dume kreskas sen sia patro), dum alia uzis ĝin por pagi psikologon pro traŭmatoj ligitaj al la milito. Krome, parto de la mono estis uzita por aĉeti protektan ekipaĵon por unu el la soldatoj.
+
+Antaŭ kelkaj semajnoj mi eksciis ankaŭ, ke ankoraŭ unu esperantisto aliĝis al la armeo. Mi regule (almenaŭ unufoje semajne) parolas kun mia amiko, kiu jam servas de kelkaj monatoj. Liaj rakontoj sugestas, kun iom da humoro (li ĉiam estis kaj estas la plej optimisma persono, kiun mi konas) ke la kondiĉoj en la armeo similas al tiuj de la IJK en Šventoji (almenaŭ al Energetikas) – ne tre komfortaj kaj tre bruemaj.
+
+Dum ni spertis motorciklistan festivalon kun laŭtaj rok-koncertoj ĝis la nokto-nokto-fin’, nian propran diskejon, kaj ronkantajn samĉambranojn, la soldatoj ĉe la fronto lernas dormi ne nur apud ronkantoj, sed ankaŭ kun la sonoj de eksplodoj tuj apude. Kaj dum ni spertis kelkajn malvarmajn noktojn ĉe la maro, ili dormas en vintro-vestaĵoj pro nesufiĉa hejtado.
+
+Tamen, mia amiko diris, ke kvankam la dormotempo estas limigita, la manĝado estas sufiĉe enorda, eĉ kun vegetaranaj opcioj (similas al IJK, ĉu ne?). Do ni esperas, ke tre baldaŭ, post 1 aŭ 2 IJKj, ni ĉiuj kune – ukrainaj kaj eŭropaj esperantistoj, iamaj soldatoj kaj diversaj homoj – festos la vivon en la sekva IJK – eble denove en Ukrainio.
+
+Mi esperas, ke en la venonta IJK ni povos organizi programeron pri lecionoj de la pasinta milito anstataŭ monkolekto. Sed, bedaŭrinde, tiu tempo ankoraŭ ne alvenis, kaj ĝis tiam, Ukrainio bezonas kontinuan subtenon de siaj eŭropaj amikoj. Plej ofte tiu subteno estas financa. Jen la ekzemplo de unu esperantisto, kiu estis sendita pli proksime al la fronto: li ricevis neadekvatan ekipaĵon: lia kasko ne taŭgis por lia kapformo kaj ne plene protektis lin, do li bezonis aĉeti novan, kiu kostas ĉirkaŭ 300 eŭrojn. Krome, li bezonis pliajn protektilojn (por ŝultroj, talio, ingveno) kaj aliajn necesajn aĵojn.
+
+Mi petas vin disvastigi ĉi tiun informon al aliaj esperantistoj, kiuj ne ĉeestis la IJK-n, por ke ili helpu ĉi tiujn homojn. Se iu havas pliajn demandojn kiel subteni ĉi tiujn sep homojn aŭ Ukrainion ĝenerale, bonvolu kontakti min retpoŝte . Kvankam mi ne rajtas publike malkaŝi detalojn, iuj informoj povas esti menciitaj en persona konversacio.
+
+Mi volas mencii ankaŭ aliajn gravajn iniciatojn de esperantistoj rilate al Ukrainio: la Esperanta organiza teamo de Roskilde Festivalo, precipe Jacob Nordfalk, kiuj jam de kelkaj jaroj donacas grandan parton de siaj enspezoj por necesoj de ukrainaj esperantistoj, kaj Viktor Vilĥa, kiu kolektas monon por diversaj necesoj de ukrainaj soldatoj kaj estas vera ĉampiono de helpo al ukrainaj esperantistoj en la militservo.
+
+Alisa Nikitina
+
+
+---
+
+# Demisio kaŭzas malordon en la TEJO-estraro
+
+**Published:** 2025-01-26
+
+**URL:** https://www.liberafolio.org/2025/01/26/demisio-kauzas-malordon-en-la-tejo-estraro/
+
+**Categories:** TEJO, movado
+
+Pro malaktivado, la dua vicprezidanto de TEJO demisiis. Tamen TEJO momente ne havas elektan komisionon, do ne eblas elekti novan anon al la estraro laŭ la kutima maniero. Provizore la ĝisnuna ĝenerala sekretario anstataŭas la demisiinton. La antaŭa vicprezidanto Snehaja Venkatesh, kiu nun ne membras en la estraro, provizore laŭ decido de la prezidanto transprenis la taskojn de ĝenerala sekretario.
+
+Dimanĉe la 19-an de januaro la dua vicprezidanto de TEJO, Shneur Agronin skribis al la komitato por anonci sian demision:
+
+Post monatoj da preskaŭ aŭ tuta silento aŭ minimuma partoprenado miaflanke, kies kulpo apartenas al mi, mi decidis finfine rezigni mian postenon por ne ĝeni nek malhelpi plu la gravan laboron de la Estraro.
+
+Estraranoj donas raporton pri sia aktivado ĉiumonate per la cirkulero , sed dum sia mandato Shneur Agronin neniam raportis. La prezidanto, Michal Matúšov (KuboF Hromoslav), respondis ke li “ gratulas vin pro via respondeca traktado de neaktivado en la Estraro .”
+
+Pasintjare , la sama problemo okazis kiam estrarano Abhinav Varma demisiis pro malaktivado. Dum diskuto, iuj plendis pri la problemo kiam homoj sen sufiĉa sperto iĝas estraranoj kaj ne plenumas sian rolon. Ŝajnas ke la problemo daŭras.
+
+Post la demisio Matúšov skribis al la komitato ke Ikvero Almeida siavice ne plu volas esti ĝenerala sekretario, sed ke li restos en la estraro. Kutime, la elekta komisiono serĉus kaj rekomendus anstataŭanton, sed la elekto de nova elekta komisiono estis prokrastita dum la pasintaj monatoj. Laŭ la reglamento, oni bezonas almenaŭ 23 tagojn por elekti la komisionon: 7 tagojn por la alvoko, 7 tagojn por la debata fazo kaj 9 tagojn por la voĉdona fazo.
+
+Post tiam, estus alvoko por kandidatoj al la estraro, debata fazo kaj voĉdona fazo. Laŭ la kalkulo de Matúšov, entute oni devus atendi 39 tagojn ĝis la nova ĝenerala sekretario estus elektita. Ĉar tiu estus tro longa prokrasto, Matúšov citas la reglamenton laŭ kiu “la Estraro povas laŭnecese asigni aŭ transdoni oficon al estrarano.”
+
+Pro tio, prezidanto Matúšov anoncis ke Almeida iĝos vicprezidanto kaj Snehaja Venkatesh (kiu pasintjare estis vicprezidanto) tuj prenas la oficon de ĝenerala sekretario. Li substrekas ke ŝi ne iĝas la ĝenerala sekretario sed nur tenas la oficon kaj ŝi “baldaŭ lanĉos retan voĉdonon por esti alelektita al la Estraro.”
+
+La 25-an de januaro la provizora ĝenerala sekretario anoncis la voĉdonadon por komitatanoj pri ŝia elekto al la posteno. Malkutime, ne estis alvoko por kandidatoj, kaj nur unu kandidato – ŝi mem – estas prezentita al la komitato, kiu respondas jese aŭ nee.
+
+– Estas iom amuze, ke mia unua tasko estas lanĉi retan voĉdonon por esti alelektita al la Estraro! ŝi mem skribis.
+
+Venkatesh ne prezentis sin per vivresumo kaj motiviga letero, kiel kandidatoj al la estraro kutime faras, nek estis la kutima fazo por la komitato debati pri ŝia kompetento aŭ fari demandojn.
+
+Ĝis nun, nur unu komitatano respondis: Espoir Kasati, komitatano C, kiu diris ke li volas ”gratuli la kuraĝon de la nuna Estraro ĉefe pro sincereco agi kiam necese cele al antaŭenigo de nia movado.”
+
+Mankas kandidatoj ankaŭ por aliaj postenoj en TEJO. En decembro, TEJO faris publikan alvokon por kandidatoj por 12 komisionoj sed sukcesis elekti nur 3 komisiitojn.
+
+Daŭre ne aperis la buĝeto por la jaro 2025, financa raporto pri la jaro 2023, protokoloj de la estraraj kunsidoj, aŭ eĉ la protokolo de la komitatkunsido okazinta dum la IJK. La voĉdonado por novaj komitatanoj B ja okazis kaj oni planis anonci la rezultojn ĝis la 19-a de januaro, sed ili ĝis nun ne aperis.
+
+Robert Nielsen
+
+
+---
+
+# Forpasis Renato Corsetti
+
+**Published:** 2025-02-01
+
+**URL:** https://www.liberafolio.org/2025/02/01/forpasis-renato-corsetti/
+
+**Categories:** UEA, movado
+
+En la aĝo de 83 jaroj forpasis Renato Corsetti, iama prezidanto de TEJO kaj UEA kaj honora prezidanto de ambaŭ asocioj. Corsetti ĝis sia forpaso restis la plej aktiva ano de la komitato de UEA. Li estis ankaŭ membro de la elekta komisiono de UEA, kiu preparas la elekton de la sekva estraro.
+
+Renato Corsetti dum la lastaj monatoj fartis malbone kaj estis regule flegata en malsanulejo. Sabate la 1-an de februaro lia edzino Anna Löwenstein en la retlisto UEA-membroj publike respondis al esperantistoj, kiuj petis informojn pri lia farto:
+
+”Antauhieraŭ li telefonis al mi en la vespero, kaj ni tre bone interparolis. Lia voĉo estis pli forta, kaj ĝenerale li ŝajnis farti pli bone. Do mi estis tre kuraĝigita, kaj komencis esperi, ke finfine li superis la problemojn. Kaj tamen, kiam mi revenis al la malsanulejo la postan matenon (hieraŭ), li estis nekonscia. Li restas nekonscia ĝis nun.”
+
+Tuj post kiam ŝi skribis la leteron, en kiu ŝi petis esperantistojn sendi kuraĝigajn mesaĝojn, ŝi informis , ke Renato forpasis.
+
+Renato Corsetti naskiĝis en Romo la 29-an de marto 1941, kie li dum multaj jaroj laboris kiel bankdirektoro. Ekde 1990 ĝis sia emeritiĝo en 2011 li estis profesoro pri psikolingvistiko en la universitato La Sapienza, kie li mem studis.
+
+Esperanton li lernis en la komenco de la 1960-aj jaroj. Li aktivis en TEJO, kies prezidanto li estis 1971–1973. Ekde 1973 li estis honora prezidanto de TEJO.
+
+Poste li dum jardekoj diversflanke aktivis en UEA, kiun li prezidis de 2001 ĝis 2007. Li estis membro kaj sekretario de Akademio de Esperanto. Li estis honora membro de UEA ekde 2011.
+
+En 2023, dum la Universala Kongreso en Torino, la estraro de UEA nomis lin honora prezidanto de la asocio. Samtempe kiel honora membro de UEA estis elektita lia edzino Anna Löwenstein.
+
+Kun Anna Löwenstein Renato Corsetti havis du komunajn filojn. Ĝis 2015 li loĝis en Palestrina apud Romo, poste en Londono.
+
+
+---
+
+# Al la urbo, al la mondo
+
+**Published:** 2025-02-07
+
+**URL:** https://www.liberafolio.org/2025/02/07/al-la-urbo-al-la-mondo/
+
+**Categories:** historio
+
+”Renato estis romano sed, tra Esperanto, ankaŭ civitano de la mondo.” Tion skribas Federico Gobbo, kiu ekkonis Renato Corsetti en la 1990-aj jaroj, unue per retmesaĝoj. Corsetti membris en Akademio de Esperanto, afable korektis lingvajn erarojn de novuloj kaj dum sia tuta plenkreska vivo aktivis en preskaŭ ĉiuj sferoj de Esperantujo. En la reto li estis tiel aktiva, ke oni foje nomis lin ”Retano Corsetti”, kaj iuj kredis, ke li havas helpantojn kiuj skribas mesaĝojn lianome – laŭ ili ja ne eblus, ke li mem farus ĉion.
+
+”Mi ne supozis, ke la norma prononco de Esperanto estis tiu de Romo.” Jen rimarko de itala novulo kiu unuafoje aŭskultis prelegon en Esperanto. Tiu rimarko kaptis mian atenton antaŭ pli ol dudek jaroj, sed ĝi estas bone fiksita en mia memoro. Ĝi okazis post dulingva prezento de la preleganto, en Esperanto kaj la itala.
+
+La okazo estis kongreso de la Itala Esperanto-Federacio, en la jaro 2004, kaj la preleganto estis gravulo, pli precize la prezidanto de UEA, kaj do – memkompreneble! – lia prononco devis esti la norma, ĉu ne? Legantoj kiuj memoras lian neforgeseblan voĉon certe rekonis en la naiva sed interesa rimarko de la itala novulo klaran aludon al Renato Corsetti.
+
+Mi konatiĝis kun Renato unue per retmesaĝoj en la 1990-aj jaroj. Tiam mi estis freŝbakita esperantisto kaj iĝis estrarano de la Itala Esperantista Junularo, sen sperto pri Esperantujo. En tiu iel saŭra epoko de la verda interreto, ne estis multaj esperantistoj kiuj kutimis sendi retleterojn por helpi la organizadon de eventoj, kaj mi vere bezonis helpon. Renato ĉiam estis je dispono, ne nur respondante al demandoj, sed, eĉ pli grave, li instigis kaj subtenis agadon kun aliaj aktivuloj el diversaj partoj de la mondo kontaktante unu la alian por kunlabori.
+
+Krome, li afable korektis evidentajn lingvajn erarojn de novuloj kiel mi, diskrete, sen humiligi la korektiton, iel ajn. Laŭ mia supozo, multaj esperantistoj, kiuj havis la ŝancon kunlabori kun li povus rakonti similajn spertojn. Unu fojon li diris al mi ridetante, ke iu demandis lin, ĉu li havas helpanton respondi retleterojn lianome, ĉar ne eblas, ke ununura homo povas respondi tiel rapide al tiom da helpo- kaj informpetoj, konsiloj kaj agadproponoj. Estis jam evidente al freŝbakito de la 1990-aj, ke Renato estas gvidosigno por la tutmonda Esperantujo.
+
+La jardekoj poste nur konfirmis tiun evidenton. Dum multaj jaroj li estis respondeculo pri librorecenzoj de la revuo LPLP ( Language Problems and Language Planning, Lingvaj Problemoj kaj Lingvoplanado ), eldonata de John Benjamins en Amsterdamo sub la aŭspicioj de CED, Centro de Esploro kaj Dokumentado de UEA. Je difinita momento, li petis al mi transpreni tiun torĉon, kiam mi ankoraŭ estis en miaj unuaj paŝoj de la akademia kariero, ĉar mi estis ĉasanta la ŝancon doktoriĝi. Mi neniam forgesos kiugrade tiu rolo helpis al mi. Flanknote, la unua retletero en Esperanto titolita Habemus redactorem! alivorte ”Ni havas redakcianon!” por certigi la transdonon de la taskoj datiĝas de la jaro 2004; ekde tiam, mi havas pli ol kvar mil retmesaĝojn en kiuj aperas lia nomo.
+
+Fronte al la okuloj de homo kreskinta en la norda parto de Italio, Renato aperis plene rekonebla en la stereotipo de romano. En liaj popularigaj artikoloj en Esperantujo, li ofte uzis esperantigitajn latinaĵojn, ĝuste rimarkante sian ligon al piliero de la okcidenta civilizo – kaj jen la inspiro por la titolo de ĉi tiu artikolo, kiu rekte esperantigas la tute romeklezian esprimon Urbi et Orbi, al la urbo (tio estas Romo) kaj al la mondo.
+
+Fakte Renato estis romano sed, tra Esperanto, ankaŭ civitano de la mondo. Miaopinie, lia aliro al la Esperanto-Movado estis profunde influita de komunismaj idealoj en la plej alta senco de la esprimo. Li ĉefe aktivis kadre de la tielnomata neŭtrala Movado, tamen kun la ideo en la menso, ke Esperanto disvastiĝu en ĉiuj anguloj de la mondo, ne nur en la riĉa kaj burĝa okcidento, alivorte Eŭropo kaj norda Ameriko. Kune kun homoj kiel Hans Bakker aŭ Claude Gacond, Renato estis pionira en sia Esperanto-agado por la tuta mondo.
+
+Renato estis plene kaj ĝisoste intelektulo de Esperantujo; sed, male al multaj aliaj, li ĉiam strebis komuniki kun ĉiuj esperantistoj, sen pezigi sian klerecon kaj universitatan titolon, sen preferi intelektulajn rondojn. Li tion atingis parolante per simpla sed efika lingvaĵo, kaj ĉiam por konkretaj rezultoj, ĉefe en la plej foraj anguloj de la verda mondo.
+
+Por montri lian malpompan intelektulecon, mi permesas al mi esperantigi eltiron el intervjuo publikigita en la jaro 2021, originale en la itala, en kiu li klarigis la signifon de la Zamenhofa interna ideo responde al specifa demando de la intervjuanto, en la oficiala organo de la Komunista Partio en Italio, La Riscossa (itale ”la reakiro”), kies esperantigita titolo estas ”Esperanto por la fratiĝo kaj justeco inter ĉiuj popoloj”:
+
+[Por klarigi la internan ideon] hodiaŭ eble ni dirus solidarecon kaj justecon inter ĉiuj popoloj, kaj ni devus aldoni la rekonon pri egala digno inter ĉiuj popoloj kaj kulturoj, grandaj kaj malgrandaj, riĉaj aŭ malriĉaj. Unuvorte, en la kapo de esperantistoj ne ekzistas rangovico kiu normale estas en ĉies kapo: unue estas la amerikanoj el Usono, kiuj estas la plej bonaj, modernaj, ktp: poste la svedoj, poste la italoj kaj ĉiuj aliaj, kun la bengalanoj kaj similaj je la lasta vico.
+
+Ĉiuj kulturoj havas ion dirindan al la mondo. Post kiam mi ekkonis homojn el multaj kulturoj kaj sociaj tavoloj, mi estas pli kaj pli konvinkita, ke ĉiuj homoj estas egalaj, ke ne ekzistas elektitaj kaj malelektitaj popoloj, ne ekzistas grupoj ĉefe bonkoraj kaj grupoj ĉefe malbonkoraj, sed, ke ĉiuj homoj reagas al la materiaj situacioj en kiuj ili troviĝas, kiel asertis la ne plu multe citataj Markso kaj Engels.
+
+En 2010 li publike elpaŝis por agnoski la falon de la membronombro al UEA kaj la neceson agadi: “neniu individua homo kulpas pri la stato de UEA. Simple la mondo ŝanĝiĝis kaj UEA ne. Ni provu kune ŝanĝi ĝin.” ( La Ondo de Esperanto 2010, n-ro 12). Tiam, li jam ne plu respondecis pri la sorto de la Movado, laŭ formala vidpunkto, sed li neniam ĉesis zorgi pri ĝi.
+
+En la lastaj jaroj, li turnis sian atenton al la lulilo de Esperantujo, Eŭropo, starigante “Hamletan demandon” por la landaj asocioj tieaj, nome ”Aperi aŭ malaperi” (jen la titolo), celante havi novan generacion de junuloj kiuj subtenu la idealon de Esperanto por batali kontraŭ la lingva diskriminacio “kiu estas komplete forgesita, kune kun la savo de la planedo mem”. Ne nur Afriko kaj Azio, sed ankaŭ Eŭropo estu la agadkampo de esperantistoj.
+
+Renato estis pionira ankaŭ kiel esploristo je universitata nivelo. Aparte grave, li esploris ĉefe familian trilingvecon uzante kiel laborkampon la familion kiun li formis kun sia edzino Anna Löwenstein: temas pri unu el la plej famaj paroj de Esperantujo, kaj prave, pro ilia nelacigebla kaj bunta agado. Lia priskribo de la familia trilingveco laŭ la principo ”unu persono, unu lingvo”, en kiu Renato parolis Esperante, Anna angle, kaj la medio itale, estis publikigita fake en la angla, en la itala kaj Esperanto.
+
+Nefake, li prezentis sian sperton kun Gabrielo, la unua filo de la paro, en artikolo en Kontakto (n-ro 206, 2005:2, p. 7), kiam Gabrielo jam estis dudekjarulo; antaŭ dudek jaroj, la temo ”Esperanto kiel familia lingvo” ne estis populara, male al la nuna situacio. Do, denove, Renato pioniras, eĉ tiukampe.
+
+Dum interparolo en itala junulara kongreso kiam li estis adoleskanto, la perspektivo de Gabrielo pri la familia lingvopolitiko estis interese iom malsimila, ĉar laŭ li la ĉefa familia lingvo, kiam la familianoj estis kune, estis fakte Esperanto, do pli situaci-baza. Foje Renato verkis ankaŭ pri lingvopolitikaj aspektoj, aparte pri la rajtoj de minoritataj lingvoj kaj kiel Esperanto povas kontribui en la kampo kiun oni nomas nun lingva justeco. Dum trarigardo de lia verkaro, frapis min la multaj kunaŭtoritaj verkoj, kaj la varieco de la aŭtoroj, el kiuj mi menciu nur la ĉefajn: Giorgio Cardona, Mauro La Torre, Maria Antonietta Pinto, Traute Taeschner, Nino Vessella.
+
+Krome, oni ne forgesu liajn kontribuojn pri la lingvistiko de Esperanto. Li pioniras kiel leksikografo, ekzemple en la kampo de tabuaj vortoj, insultoj, sakroj kaj simile; laŭ mia persona gusto, temis pri kampo en kiu li povis esprimi sian subtilan ironion kaj humuron – pripensu la titolon Knedu min, sinjorino! , spritan aludon al la romano Kredu min, sinjorino! , ĉefverko de klasika E-aŭtoro Cezaro Rossetti.
+
+Mi deziras fini ĉi tiun memoraĵon menciante la intelektan kuraĝon de Renato Corsetti per mencio de tabua temo en Esperantujo: lingvovariado laŭ la repertuaro de la parolanto, kiun li aŭdace nomis ”naciaj variaĵoj de Esperanto”. En la enkonduko de tiu ĉi libro pri tabuaj vortoj, li mencias ”ĝeneralan problemon” kiu laŭ mi ankoraŭ tre aktualas kaj indas je plua esplorado, per solidaj tekstarbazaj analizoj:
+
+Ĉefe en ĉi tiu kampo, kie la vort-provizo estas malstabila, ekzistas en la reala uzo inter samlingvaj esperantistoj amaso da esprimoj, kiuj estas rektaj tradukoj el nacilingvaj esprimoj.
+
+La parolantoj mem konscias ke temas pri neinternaciaj esprimoj, kaj ili uzas ilin nur inter si. Ekzemple: inter italoj direblas sen timo pri miskomprenoj “tranĉi la ŝnuron”, inter katalunoj oni povas “fotri la kampon”, ktp.
+
+La plej malnova mesaĝo de Renato al mi, la 6-an de oktobro 2004, iamaniere havas universalan signifon, kiun mi volas donaci al la legantoj: ”Bondezirojn por la ekzamenoj. Por ĉio alia, ĉiam estas tempo.”
+
+Federico Gobbo
+
+
+---
+
+# TEJO-estraranoj volas eksigi la prezidanton
+
+**Published:** 2025-02-07
+
+**URL:** https://www.liberafolio.org/2025/02/07/tejo-estraranoj-volas-eksigi-la-prezidanton/
+
+**Categories:** TEJO, movado
+
+En verŝajne senprecedenca okazaĵo, kvar el ses estraranoj skribis komunan leteron petante la eksigon de la prezidanto de TEJO. Laŭ ili, li agis en ”malĝentila” kaj ”malrespekta” maniero al oficistoj, ne aŭskultis la estraranojn kaj devas pardonpeti. La komitato nun voĉdonos pri la eksigo de la prezidanto.
+
+En januaro la vicprezidanto de TEJO demisiis pro malaktiveco kaj la ĝenerala sekretario diris, ke li ne plu volas resti en sia posteno. Sed la maltrankvilo en la estraro ne finiĝis je tio, ĉar nun kvar el ses estraranoj postulas ke la komitato eksigu la prezidanton.
+
+La 5-an de februaro Igor ”Ikvero” Almeida, la eksa ĝenerala sekretario kaj nuna vicprezidanto, skribis mesaĝon al la komitato, kiu laŭ li havas la apogon de la vicprezidanto Lucía Fernández Barrera kaj de la senoficaj estraranoj Adam Żyłka kaj Michael Vrazitulis. En la mesaĝo li petis ke la komitato voĉdonu pri eksigo de la prezidanto de TEJO, Michal Matúšov (KuboF Hromoslav).
+
+Laŭ Almeida dum la pasintaj du semajnoj estis ”forta debato” ene de la stabo de TEJO pro konflikto inter la prezidanto kaj unu oficisto de TEJO. Li ne menciis la nomon de la oficisto, nek klarigis, pri kio temas la konflikto, nur ke la oficisto ”sentis sin ege malkomforta pro la negativa eco de la interagoj inter si kaj la prezidanto.”
+
+Laŭ la letero ”vere la komunikmaniero (ĉefe al la Oficistoj, sed ankaŭ al la Estraranoj mem) de la prezidanto ne estis taŭga, multfoje sonante malĝentila, malrespekta kaj ofte menciante hierarkion kaj alparolante la Oficisto(j)n ekde vertikala vidpunkto, laŭ kiu la prezidanto estus en pli alta loko ol la aliaj teamanoj. Motivite de la diskuto okazanta, surfaciĝis ankaŭ plendoj similaj de aliaj teamanoj pri similaj okazaĵoj antaŭ tiu ĉi nuntempa konflikto. Evidentiĝis, ke la staba dinamiko ne funkciis, kaj ni petis ŝanĝon.”
+
+La estraranoj aranĝis eksterordinaran retkunsidon kaj post tio supozis, ke ili trovis solvon al la konflikto. Sed la problemo daŭris, laŭ Almeida ĉar ”la prezidanto faris decidon, kiu iris rekte kontraŭ la laboro de aliaj du Estraranoj.” Laŭ Almeida tio ne estis la ĉefa kaŭzo de la konflikto, sed nur unu ekzemplo de la sinteno de la prezidanto. Laŭ li la estraranoj sentas sin neaŭdataj:
+
+”Dum tiuj du longaj semajnoj, ni multfoje devis ripeti niajn vortojn, ĉar ni ne estis aŭdataj de la prezidanto.”
+
+La estraranoj eĉ postulis pardonpeton de la prezidanto – sed ne klarigis pri kio temas: ”Aldone, ni ankaŭ plurfoje petis de la prezidanto, ke li pardonpetu pri kelkaj specifaj vortoj kaj agoj siaj, sed sensukcese. Eĉ post diri ege dolorigan diraĵon pri personaj kondiĉoj de stabanoj, al kio mi reagis vere vundite, ne venis pardonpeto de la prezidanto.”
+
+La estraranoj unue petis ke la prezidanto demisiu, sed restu en la estraro, kaj Lucía Fernández Barrera iĝu la prezidanto. Sed ĉar Matúšov rifuzis, la estraranoj nun petas ke la komitato voĉdonu por eksigi lin.
+
+Prezidanto Matúšov responde al demando de Libera Folio diris, ke li bedaŭras la mesaĝon ĉar ”la postulo de kelkaj aliaj estraranoj (ŝajne) baziĝas ankaŭ sur pluraj miskomunikoj, miskomprenoj kaj malveraĵoj.”
+
+Laŭ li, la konflikto kun la oficisto estis kaŭzita ĉar ”la Oficisto blokis mian laboron de porokaza kunordiganto de volontuloj, ĉar li rifuzis provizi min per informoj pri sia laboro, kiujn mi bezonis por povi bone prioritatigi laboradon de volontuloj.”
+
+Li skribis ke estas ”rekta malveraĵo” aserti, ke li ne aŭskultis la aliajn estraranojn, kaj ke tio ”fakte bele montras pli grandan komunikan problemon, kiun ni nun (kaj evidente daŭre) spertas en la stabo – misprezentado de subjektivaj personaj opinioj kaj sentoj kiel objektivaj, eksteraj, mezureblaj faktoj.” Laŭ li, tiuj misprezentoj similas al ”sofismoj kaj malveraĵoj.”
+
+Li konsentis pri la aserto ke li kredas je hierarkio en TEJO. Li diris ke ”estas klara hierarĥio, kiu ekzistas ne nur reale, sed eĉ eksplicite en niaj regularoj, kiuj estis aprobitaj fare de komitato. Malobei ilin estas malobeado de komitataj decidoj, kaj laŭ mi, homoj, kiuj intence malobeas komitatajn decidojn devus ne esti en estraro, nek en oficistaro.”
+
+Al la demando ĉu li rezignos, li respondis:
+
+– Kiam mi kandidatiĝis por prezidanto, estis neniu pli bona kandidato por la posteno. Sed nun, aliaj estraranoj jam pli spertiĝis, kaj ili povus transpreni tiun postenon, kiun mi volonte transdonos. La aferon ni traktas interne en la estraro kaj baldaŭ vi vidos rezultojn.
+
+Vicprezidanto Barrera en mesaĝo al Libera Folio diris ke la estraranoj prenis sian decidon ĉar ”la plej multaj el ni sentis nin neaŭskultataj, ne aprezataj, aŭ eĉ trompitaj, por ke ni ne povu realigi nian laboron en agrabla kaj efika maniero.”
+
+– La peto pri la demisio de la prezidanto estas la rezulto de monatoj, en kiuj multaj stabanoj sentis sin malrespektataj kaj ne plene aŭskultataj, kaj de la lastatempaj du semajnoj da intensa diskuto kaj de la komuna sento de ĉiuj stabanoj, ke li ne vere engaĝiĝis al la ŝanĝoj kaj bezonoj, pri kiuj ĉiuj konsentis, ke ili estas necesaj por plibonigi la efikecon de la organizo kaj la bonan laboretoson.
+
+La aganta ĝenerala sekretario, Snehaja Venkatesh, komencis septagan debatan fazon por la komitato, sed ŝi rimarkigis ke la komitato estas ”tro malaktiva”. Malpli ol duono de la komitatanoj ĝustatempe voĉdonis pri ŝia elekto kiel ĝenerala sekretario, kaj pro tio ŝi devis plilongigi la voĉdonadon por sep pliaj tagoj.
+
+Robert Nielsen
+
+
+---
+
+# TEJO-oficisto demisiis pro la prezidanto
+
+**Published:** 2025-02-10
+
+**URL:** https://www.liberafolio.org/2025/02/10/tejo-oficisto-demisiis-pro-la-prezidanto/
+
+**Categories:** TEJO, movado
+
+Pli ol du horojn en dimanĉo daŭris publika komitata forumo de TEJO, dum kiu pluraj estraranoj akre kritikis la prezidanton, kies demision ili postulis. Poste evidentiĝis, ke pro la konflikto jam demisiis la oficisto de TEJO kiu respondecas pri subvencioj. Prezidanto Michal Matúšov insiste defendis sin kontraŭ la akuzoj pri maltaŭga konduto. Li aliflanke aludis, ke li forlasos sian postenon, sed diris ke la estraro traktos la demandon poste.
+
+Merkrede, en senprecedenca okazaĵo, kvar estraranoj de TEJO skribis al la komitato de la asocio kaj petis la eksigon de la prezidanto Michal Matúšov (KuboF Hromoslav). La komitatanoj petis respondon de la prezidanto, sed anstataŭ skribi al la komitato, li alvokis publikan forumon por diskuti la temon. La forumo tamen allogis nur kvin komitatanojn, kaj plejparte la diskuto okazis inter estraranoj.
+
+La mesaĝo de la estraranoj, kiuj postulis la eksigon de la prezidanto, menciis konflikton inter Matúšov kaj iu sennoma oficisto. Dum la kunsido oni eksciis, ke temas pri Carlos Pesquera Alonso, la oficisto pri projektoj kaj subvencioj.
+
+Li mem ne ĉeestis la forumon, sed en la cirkulero per kiu la stabo de TEJO raportas pri sia agado ĉiumonate, li skribis ke li ”demisiis de TEJO post daŭrigo de la minacoj kaj toksa agado 1 Noto de la provleganto: “toksa” estas metafora uzo, probable sub anglalingva influo, de la faka vorto por “veneno” – tamen, kun neklara signifo. Unu difino de la angla vorto toxic estas: ”kaŭzanta multe da damaĝo kaj malfeliĉo dum longa tempo”. de KuboF.” Responde al demando de Libera Folio Carlos Pesquera Alonso konfirmis, ke li jam forlasis sian postenon.
+
+En la sama cirkulero Matúšov enigme skribis, ke unu el la taskoj kiujn li nun faras estas ke li ”forlasas la oficon de Prezidanto”. Kiam Libera Folio demandis lin pri tio, li respondis ke ”la fina aranĝo dependos ankaŭ de la aliaj estraranoj kaj la komitato. Sed veras, ke mi forlasas la postenon.”
+
+Enkonduke al la forumo, Matúšov rakontis, ke ĉirkaŭ kristnasko TEJO afiŝis bildon pri la pintaj esperantistoj de la jaro, kie li mem estis en la tria loko (sub Zamenhof kaj Duncan Charters). Matúšov rakontis, ke aliaj membroj de la stabo diris al li ke li meritus eĉ pli altan lokon. Li ŝatis la rakonton tiel multe ke li poste eĉ ripetis ĝin, sed ŝajnas ke la stabanoj ne plu havas tiel altan opinion pri li.
+
+Dum la kunsido, kiu daŭris du kaj duonan horojn, la estraranoj esprimis sian malkontenton pri Matúšov kiel prezidanto. Adam Żyłka diris ke lia agado estis ”vere hontinda”, ke li komunikis ”perforte” kaj li ”respektas neniun en la estraro.”
+
+Li diris, ke la estraro klarigis la problemon multfoje al Matúšov, sed ke tiu rifuzis aŭskulti. Laŭ Żyłka, dum la estrarkunsido ”dum du horoj ni parolis al vi kiel al iu infano, ke viaj agoj kaj viaj vortoj kaj maniero per kiu vi komunikas povas dolorigi homojn”.
+
+Matúšov malkonsentis kaj diris ke estis ”malveraĵo” aserti ke li ne respektas aŭ aŭskultas homojn. Li diris ankaŭ, ke estas malveraĵo ke li minacis maldungi Pesquera Alonso. Laŭ Matúšov li parolis pri la maldungo de Pesquera Alonso dum unu horo. Tio laŭ li estis forta atentigo ke la dungito faris ion malbonan, sed ne vere estas maldungo.
+
+– Kiam oficisto ne faras sian laboron, konsekvenco estas ke tiu oficisto estas maldungita… Tio ne estas minaco, tio estas konsekvenco, Matúšov diris.
+
+Michael Vrazitulis diris ke ajnakaze, minaci maldungi iun oficiston, eĉ por unu horo, ne konsultinte la estraron, estas problemo. Li kritikis la prezidanton pro tio ke li ne provis amike solvi la problemon.
+
+Igor (Ikvero) Almeida diris al Matúšov ke ”ĉiu estrarano kaj stabano diras ke via agado estas nerespektema” kaj atentigis ke ”estas neniu persono en la stabo kiu volas defendi vin ĉi tie”.
+
+Lucía Fernández Barrera diris ke Matúšov skribis en ”minacema, malrespektema” maniero al la estraranoj kaj oficistoj.
+
+Ŝi diris ke ŝi ne hontas konfesi: ŝi ploris multe dum la estrarkunsido. Ankaŭ nun ŝi preskaŭ ploris, kiam ŝi parolis pri tio, kiel ŝi multege laboris kun la aliaj estraranoj por solvi la problemon, sed ke Matúšov ”agis kontraŭ ĉio, kion ni faris”.
+
+Manuela Burghelea, la ĝenerala direktoro de TEJO, diris ke ŝi ricevis mesaĝojn de Matúšov kiuj minacis maldungi Alonso. Laŭ ŝi la oficistoj ne sentas sin aŭdataj de Matúšov:
+
+– Mi povas diri ke pluraj oficistoj konsideras ke via tono ne estas respektema al ni.
+
+Albert Stalin Garrido, oficisto kaj eks-prezidanto, kritikis la agadon de Matúšov rilate al la stabo kiel ”diktatorecan paŝon por aserti kvazaŭ vian regon super la organizo.” Garrido diris, ke li mem neniam agis tiel dum sia prezidanteco.
+
+Al rekta demando de Libera Folio pri tio, ĉu li demisios, Matúšov respondis, ke la celo de la forumo ne estis fari iun decidon, sed nur diskuti la temon. Li diris, ke oni traktos la decidon ene de la estraro, kaj ke se la estraro voĉdonus por eksigi lin, li respektus tion. Laŭ li eblus okazigi kunsidon de la estraro dum la sekva semajnfino.
+
+Robert Nielsen
+
+1 Noto de la provleganto: “toksa” estas metafora uzo, probable sub anglalingva influo, de la faka vorto por “veneno” – tamen, kun neklara signifo. Unu difino de la angla vorto toxic estas: ”kaŭzanta multe da damaĝo kaj malfeliĉo dum longa tempo”.
+
+
+---
+
+# La estraro de TEJO eksigis la prezidanton
+
+**Published:** 2025-02-11
+
+**URL:** https://www.liberafolio.org/2025/02/11/la-estraro-de-tejo-eksigis-la-prezidanton/
+
+**Categories:** TEJO, movado
+
+La estraranoj de TEJO plenumis sian ribelon kontraŭ la prezidanto kaj eksigis lin. Anstataŭ atendi voĉdonadon de la komitato, la estraro decidis reasigni la rolon de prezidanto al Lucía Fernández Barrera. Matúšov restas en la estraro, almenaŭ por nun.
+
+Dum la pasinta semajno okazis vigla debato ene de TEJO pri la agado de la prezidanto Michal Matúšov (KuboF Hromoslav). Kvar estraranoj – Igor ”Ikvero” Almeida, Lucía Fernández Barrera, Adam Żyłka kaj Michael Vrazitulis – skribis komunan leteron al la komitato , petante la eksigon de Matúšov pro lia “malĝentila” kaj “malrespektema” agado. Oni kunvokis publikan forumon por diskuti la temon.
+
+Dum la forumo, kiu okazis dimanĉe, kvar estraranoj kaj du oficistoj parolis kontraŭ Matúšov kaj petis lian demision, dum neniu parolis favore al li. Je la fino de la forumo, eks-prezidanto kaj nuna komitatano Ĉ Tyron Surmon atentigis ke oni ne devas atendi ĝis la voĉdonado de la komitato (kiu okazos post almenaŭ 11 tagoj) por eksigi Matúšov.
+
+Laŭ la reglamento nur la komitato rajtas eksigi la prezidanton, sed la estraro mem rajtas reasigni iun oficon kaze de la “nefunkciado” de iu estrarano. Sekve la estraro rajtas decidi ke alia estrarano anstataŭu Matúšov kiel prezidanto. Se ĉiuj estraranoj voĉdonus, oni bezonus voĉojn de kvar el la sep estraranoj por tio.
+
+Ŝajnas ke la estraranoj aŭskultis Surmon kaj samtage okazigis voĉdonadon kontraŭ Matúšov, sed anoncis la rezulton nur marde. Laŭ la decido, Matúšov iĝas senofica estrarano, dum Fernández Barrera iĝas prezidanto. Ŝi estas la unua virina prezidanto en kvar jaroj. Almeida, kiu estis la dua vicprezidanto, nun iĝis la unua. La senofica estrarano Vrazitulis siavice iĝis dua vicprezidanto.
+
+Tri estraranoj voĉdonis favore al la decido, dum neniu voĉdonis kontraŭ ĝi. Malgraŭ ke kvar estraranoj publike parolis kontraŭ Matúšov, ŝajnas ke unu finfine ne voĉdonis kontraŭ li. La rezulto ankaŭ pensigas ke eĉ Matúšov mem ne kontraŭis sian eksigon.
+
+La kasisto, Manohimiharintsara (Mihary) Andrianirina, ĉeestis la forumon sed ne partoprenis la debaton pri la prezidanto.
+
+Kvankam Matúšov ne plu estas la prezidanto, la voĉdonado de la komitato por eksigi Matúšov de la estraro tamen okazos.
+
+La nova prezidanto Lucía Fernández Barrera skribis al la komitato:
+
+“Ni daŭrigu la bonan laboron kaj trovu novajn manierojn kaj dinamikojn por ankoraŭ pli plibonigi nian efikecon kaj daŭre defendi la interesojn de la organizo. Ĝi estas defia momento kun multaj ŝanĝoj, sed mi(ni) fidas, ke per la partopreno kaj kunlaboro de ĉiuj ni sukcesos multe ĝui TEJO-n en ĉi tiu 2025.”
+
+Robert Nielsen
+
+
+---
+
+# Esperantistoj naskiĝas mezaĝaj
+
+**Published:** 2025-02-18
+
+**URL:** https://www.liberafolio.org/2025/02/18/esperantistoj-naskigas-mezagaj/
+
+**Categories:** movado
+
+Kie estas la junuloj? Tion oni ofte demandas en esperantistaj renkontiĝoj. Malmultas fidindaj statistikaĵoj pri la aĝostrukturo en la Esperanto-movado, sed se rigardi la statistikojn ĉe Edukado.net, oni trovas ke nur dekono el tiuj, kiuj indikis sian aĝon, estas malpli ol 30-jaraj. Se tiu estus la aĝopiramido de ordinara lando, ĝi antaŭvidus rapidan malaperon de la tuta popolo. Tamen novaj esperantistoj plej ofte ne estas beboj, infanoj aŭ eĉ junuloj.
+
+Ne malofte la plej juna partoprenanto de lokaj kunvenoj estas mezaĝulo, pli ol 40 jarojn aĝa. Kaj de tempo al tempo oni renkontas la ideon ke la esperantistaro maljuniĝas kaj mankas junuloj el Esperantujo. Ĉu tio estas vero aŭ nur supozo? Malfacilas decidi ĉar mankas fideblaj statistikoj per kiuj oni povus tion aŭ konfirmi aŭ malkonfirmi.
+
+Sed kion oni povas fari se oni scivolas? Estas fama ŝerco, kiun sciencistoj ofte citas en similaj situacioj: Ebriulo diligente serĉadas ion ĉe stratlampo, vidas tion policano, kiu tien iras kaj demandas:
+
+– Kion vi serĉas? – Mian ŝlosilon, respondas la ebriulo. – Kie vi perdis ĝin? – Du stratojn for. – Tiam kial ĝin vi serĉas tie ĉi? – Ĉar ĉi tie estas lumo.
+
+Do faru ni kiel la ebriulo de tiu ĉi ŝerco kaj rigardu tie kie estas iom da lumo. El la informeroj kiujn anoj povas trovi ĉe Edukado.net eblas fari la sekvan statistikon kaj aĝopiramidon.
+
+10-20 jaroj:  1 % 20-30 jaroj:  9 % 30-40 jaroj: 17 % 40-50 jaroj: 15 % 50-60 jaroj: 15 % 60-70 jaroj: 18 % 70-80 jaroj: 16 % 80-90 jaroj: 7 % 90-100 jaroj: 2 %
+
+Jes, en tiu statistiko sendube preskaŭ mankas veraj junuloj (aĝogrupo 0-20). Sed eble tie trompas nia statistiko pleje, ĉar ekzemple eblas ke neplenaĝuloj malpli emas registriĝi ĉe Edukado.net. Tamen sen pli bona ideo, ni supozu ke la statistiko ne trompas multe.
+
+Ĉu ni devus ektimi kaj konkludi ke tiu grafikaĵo antaŭdiras la formorton de Esperantujo? Se Esperantujo estus normala lando, tiam sendube tiu statistiko estus timigega kaj sugestus ke Esperanto verŝajne ne havas pli ol cent jarojn antaŭ ol ĝi preskaŭ tute malaperos. Tamen ni ne forgesu ke ne estas tiel. La aĝopiramido de Esperantujo plejparte kreskas ne desube sed deflanke. Tion pruvas ke denaskuloj estas nur eteta malplimulto de la tutaĵo de Esperantujo.
+
+Memkompreneble, tiu kiu ellernas Esperanton kiel mezaĝulo, tute ne havas ŝancon esti parto de la Esperantista junularo. Kaj ekzistas nemalmultaj eĉ tiaj kiuj esperantiĝas kiel pensiuloj. Ĉiuokaze, se veras ke Esperanto malpli allogas homojn el la junaj aĝgrupoj estus bone scii tion, kaj eĉ pli bone estus scii kial la afero estas tia.
+
+Ni reiru al la temo de manko de nemaljunuloj ĉe lokaj kunvenoj. La aĝogrupo 0-40 ĉe Edukado.net konsistigas 27 % el la tuto, kio ne estas tiel malgranda kiel oni konjektus el la aĝodistribuaĵo ĉe lokaj kunvenoj. Ĉu eblas ke tiu aĝogrupo malpli emas iri al lokaj kunvenoj? Ĉu eble ili simple preferas esperantumadi interrete? Malfacilas diri ĉar ni ne scias kiel la malsamaj aĝgrupoj uzas Esperanton.
+
+Se oni komparas tiun ĉi aĝpiramidon kun tiu de la mondo, oni vidas kelkajn aliajn klarigendajn kuriozaĵojn:
+
+– La mallarĝiĝado de la supro komenciĝas multe pli malfrue kaj aperas nur en la du lastaj etaĝoj de la piramido de Edukado.net. Ĉu lernado de Esperanto estus la sekreto de longviveco? Aŭ ĉu tiun ĉi aferon kaŭzas simple la deflanka kresko de la piramido?
+
+– La malsimetrio de la seksa distribuaĵo estas okulfrapa: dum en la tutmonda piramido la distribuo estas egala, ĉe Edukado.net 70 % el la homoj estas iĉaj, 21,3 % estas inaj, kaj ĉe 8,7% la sekso estas alia aŭ nekonata. Estus bone scii, ĉu tio validas ĝenerale en Esperantujo, kaj se jes, kial la afero statas tiel.
+
+Gravas rimarkigi ke oni ne saltu al konkludoj surbaze de tiu ĉi statistiko. Ĝi tre facile povas esti trompa, ĉar el la pli ol ses mil uzantoj de edukado.net nur ĉirkaŭ mil entute donis informon pri sia aĝo. Kaj ni ne scias kiel emo kaŝi informon pri sekso aŭ aĝo varias depende de aĝo kaj sekso.
+
+Do ni ne scias, kiel bone tiuj mil homoj reprezentas la uzantaron de Edukado.net, kaj ni same ne scias kiel bone tiu uzantaro reprezentas la tutaĵon de la Esperantistaro. Ĉiuokaze vidi nebule estas pli bone ol vidi neniel. Nun ni almenaŭ havas kelkajn interesajn konjektojn kaj esplorindajn demandojn.
+
+Por respondi al tiuj ĉi demandoj, ni bezonus pli bonan kaj fideblan statistikon. Kaj post tiu ĉi malperfekta analizo nature ekaperas la demando: Ĉu UEA kune kun TEJO ne povus fari ian regulan oficialan interretan popolnombradon de Esperantujo?
+
+Kompreneble eĉ tiu statistiko ne estus perfekta, ĉar Esperantujo ne estas ŝtato kaj ne povas devigi sian tutan popolon partopreni. Aliflanke, kredeble oni povus instigi sufiĉe multajn homojn partopreni, malfacilas imagi ke estus multaj samideanoj kiuj ne ŝatus esti nombrataj en tia oficiala popolnombrado. Kaj eĉ se tio estas naiveco, tia oficiala statistiko sendube estus multoble pli bona kaj fidebla ol tiu ĉi.
+
+Ekzistas ankoraŭ aktuala enketo pri la uzo de Esperanto ĉe Kunfarejo . Ĝi ne estas oficiala popolnombrado, sed se ĝi havos sufiĉe multajn respondojn, ĝi povos konfirmi aŭ malkonfirmi la konjektojn de tiu ĉi statistiko. Kaj eĉ respondi kelkajn demandojn, ĉar ĝi enhavas demandojn ne nur pri sekso kaj aĝo sed ankaŭ pri la uzado mem.
+
+Tamen por tio gravas ke kiel eble plej multaj el ni respondu ĝin.
+
+Gergej Sekej
+
+
+---
+
+# La Akademio havas naŭ novajn membrojn
+
+**Published:** 2025-02-24
+
+**URL:** https://www.liberafolio.org/2025/02/24/la-akademio-havas-nau-novajn-membrojn/
+
+**Categories:** kulturo
+
+La Akademio de Esperanto post la ĵusa balotado nun havas naŭ novajn membrojn. Tri el la novaj Akademianoj estas virinoj, sed aliflanke eliris el la Akademio du virinoj.
+
+La Akademio de Esperanto konsistas el 45 membroj, kiuj estas elektataj por periodo de 9 jaroj. Kandidato al membreco devas esti proponita de almenaŭ kvin ekzistantaj akademianoj reprezentantaj almenaŭ tri malsamajn lingvojn. Kutime temas pri renomaj esperantologoj, pedagogoj aŭ verkistoj.
+
+La elekto de novaj Akademianoj okazas ĉiun trian jaron, do principe tiam finiĝas la mandato de triono el la anoj, t.e. de 15 membroj. Ofte ili estas elektataj por nova naŭjara mandatperiodo, do la renovigo de la Akademio okazas sufiĉe malrapide, kiel ja decas por institucio kies ĉefa tasko estas konservi kaj protekti la fundamentajn principojn de la lingvo.
+
+Pro mortoj kaj demisioj oni tamen kutime dum ĉiu balotado elektas aŭ reelektas iom pli ol 15 Akademianojn. Ĉi-foje, pro la morto de Erich-Dieter Krause en 2023 kaj la demisio de Boris Kolker en 2024, kiuj ambaŭ havis mandaton ĝis 2028, oni krom la kutimaj 15 akademianoj por plena naŭjara mandato elektis du personojn kiuj oficos ĝis 2028.
+
+El la 17 elektitoj naŭ estis novaj – tri inoj kaj ses viroj. Tamen samtempe du virinoj (Tatjana Auderskaja kaj Barbara Pietrzak) forlasis la Akademion, do la ekvilibro de la seksoj ne multe ŝanĝiĝis. Nun estas 7 inoj en la Akademio, do 16 procentoj el la tuta kvanto, kio estas ioma egaligo kompare kun la situacio antaŭ kvin jaroj , kiam estis 5 inoj (12 procentoj).
+
+Eniris la Akademion la jenaj naŭ novaj membroj: Eckhard Bick, Cho Sung Ho, Gong Xiaofeng (Arko), Abel Montagut, Jorge Rafael (Rafa) Nogueras, Jukka Pietiläinen, Maria Rosaria (Sara) Spanò, José Antonio Vergara (ĉiuj ĝis 2034) kaj Birke Dockhorn (ĝis 2028).
+
+Ne rekandidatis kaj tial forlasis la Akademion Tatjana Auderskaja, Jouko Lindstedt, Vilhelmo Lutermano, Georgi Mihalkov kaj Barbara Pietrzak. El ili plej longe membris Jouko Lindstedt, kiu iĝis Akademiano en 1998. Kandidatis sed ne estis reelektita Nikolao Gudskov.
+
+Rekandidatis por nova mandatperiodo Renato Corsetti, kiu sendube estus reelektita, se li ne forpasus la 1-an de februaro. Krom li estis pliaj 28 kandidatoj por la 17 liberaj lokoj, kio estas nombro escepte granda.
+
+
+---
+
+# Matúšov demisiis du minutojn antaŭ eksigo
+
+**Published:** 2025-02-25
+
+**URL:** https://www.liberafolio.org/2025/02/25/matusov-demisiis-du-minutojn-antau-eksigo/
+
+**Categories:** TEJO, movado
+
+Antaŭ du semajnoj la estraro de TEJO decidis eksigi Michal Matúšov el la posteno de prezidanto. Nun la komitato voĉdonis por tute eksigi lin el la estraro – sed li mem fine anoncis sian demision el la estraro nur du minutojn antaŭ ol la voĉdonado finiĝis.
+
+Dum la pasintaj semajnoj TEJO alfrontis krizon ene de la estraro. Je la 5-a de februaro kvar estraranoj sendis komunan leteron al la komitato, petante la eksigon de la prezidanto Michal Matúšov (KuboF Hromoslav) pro lia ”malĝentila” kaj ”malrespekta” agado.
+
+Kelkaj komitatanoj subtenis la eksigon, kiel Jaime Tapia Zaragoza, komitatano Ĉ, kiu komentis:
+
+– Persone mi ankaŭ spertis fare de la Prezidanto la malĝentilecon, malrespekton kaj vertikalecon pri kiuj vi parolas (eĉ se mi ne havis iun hierarkian ligilon kun li), kaj mi ankaŭ aŭdis aliajn homojn plendi pri tio antaŭe.
+
+Pol Jimenez Isach, Komitatano A, parolis pri malbona sperto de Kataluna Esperanto-Junularo (KEJ) kun Matúšov. Laŭ li ” la traktado fare de la prezidanto de TEJO estas malrespekta, kaj ni sentas nin tute ne zorgataj”.
+
+Rimarkindas ke la du komitatanoj kiuj publike subtenis la eksigon estas el Katalunio, same kiel Lucía Fernández Barrera, la vicprezidanto, kiu poste transprenis la postenon de Matúšov.
+
+Unu homo kiu ne partoprenis la debaton estis la Prezidanto mem. Espoir Kasati, Komitatano C, rimarkis tion kaj demandis:
+
+– Ĉu KuboF povus almenaŭ reagi, aŭ la silento trafe pravigas la akuzojn?
+
+Du tagojn post la apero de la komuna letero, Matúšov skribis ” mi nun ne reagos kaj mi lasas al la koncernaj Estraranoj iom da tempo por mem korekti la maltaŭge prezentitajn aferojn ”. Anstataŭe li invitis ĉiujn al publika forumo por diskuti la temon.
+
+Dum la publika forumo, estis longa kaj vigla debato inter la estraranoj, oficistoj kaj prezidanto, sed ili ne atingis konsenton. Post la kunsido la estraro voĉdonis por reasigni la oficon de prezidanto al Lucía Fernández Barrera pro la ”nefunkciado” de Matúšov.
+
+Nur tiam, kiam li ne plu estis prezidanto kaj pli ol unu semajnon post la apero de la kritika letero, Matúšov respondis al la komitato. Li skribis pli ol 8 000 vortojn pri diversaj temoj kiel la ”estonteco de hierarĥio en TEJO”, la strategia plano, kaj faris publikan alvokon al Barrera por mediacio. Li optimisme anoncis ke ” en la Estraro ni finfine denove proksimiĝas al interna solvo de la staba krizo!”.
+
+Li skribis ke la aliaj estraranoj disvastigas malveraĵojn, kaj li plendis ke eĉ post tiom da debatado, iuj estraranoj ankoraŭ ne klarigis siajn kritikojn pri li. Li diris ke ” mi ja efektive havas certajn aŭtismajn trajtojn”. Pro tio la vero laŭ li pli gravas al li ol al aliaj homoj:
+
+”…strebado pri vero kaj sekvado de reguloj, sed ankaŭ rekta parolado kaj bona akceptado de rekta parolado. Bedaŭrinde, mi forgesis, ke multaj aliaj homoj ne estas tiaj, kaj ili miksas faktojn kun opinioj, bezonas iom nerektajn klarigojn, ĉirkaŭvolvon de vero en ’sukeron’.”
+
+La komitata voĉdonado pri lia eksigo finiĝis je 13.00 en la 23-a de februaro, sed du minutojn antaŭ la fino, je 12.58, Matúšov sendis sian demision al la komitato. Li diris ke li planas anstataŭe kandidati por la komitato kaj por posteno de komisiito:
+
+”Estis mia laboro kiel prezidanto gvidi miajn estrarajn kolegojn kaj oficistojn por bone kaj harmonie kunlabori, klare komuniki, kaj provizi fruan kaj klaran retrokuplon (kaj iniciateme ripeti se ĝi estis nesufiĉe aŭ neniom ricevita). Bedaŭrinde, tiujn ĉi miajn laborojn mi malsukcesis fari tiom bone kiom mi volis, pro kio mi pardonpetas. La respondeco pri tio estas plene mia.”
+
+Malgraŭ lia demisio, la voĉdonado ja okazis, kaj entute 15 komitatanoj voĉdonis por eksigi lin, 3 voĉdonis kontraŭ la eksigo kaj 2 sin detenis. Laŭ raporto en la komitata diskutejo , el la 33 komitatanoj 13 tute ne partoprenis la voĉdonadon pri la eksigo de la prezidanto.
+
+Robert Nielsen
+
+
+---
+
+# Rusaj esperantistoj verkos pri milito
+
+**Published:** 2025-03-03
+
+**URL:** https://www.liberafolio.org/2025/03/03/rusaj-esperantistoj-verkos-pri-milito/
+
+**Categories:** movado
+
+La landa asocio de UEA en Rusio aranĝas literaturan konkurson pri ”la Granda Venko, heroismo de nia popolo”. Ankaŭ ”nunaj militeventoj” povas esti prilumataj, laŭ la reguloj de la konkurso.
+
+La 9-an de majo oni en Rusio solenos la 80-an datrevenon de la fino de la dua mondmilito. Lige kun tio Rusia Esperanto-Unio, la landa asocio de UEA, anoncis literaturan konkurson kun la titolo ”Tiu Tag’ de l’ Venko”.
+
+En la konkurso povas partopreni ”ĉiuj esperantistoj de la lando”, do supozeble nur rusianoj. La konkurso laŭ la anonco okazas ”omaĝe al la 80-a datreveno de la Granda Venko super faŝismo”. Tamen la tekstoj povas temi ne nur pri la dua mondmilito, sed ankaŭ pri la  nuna agresa milito de Rusio en Ukrainio:
+
+Akceptatas: Rakontoj, eseoj, noveloj, versaĵoj, rememoroj originale verkitaj en Esperanto aŭ tradukitaj, laŭteme ligitaj kun la Granda Venko, heroismo de nia popolo. Ankaŭ nunaj militeventoj povas esti prilumitaj.
+
+La plej bonaj verkoj estos publikigitaj en Cerbe kaj Kore , la literatura suplemento al Ponto , la revuo de REU. Al la aŭtoroj oni promesas libro- aŭ monpremiojn.
+
+Iniciatinto de la projekto estas Svetlana Smetanina. Ŝi ne rajtis daŭrigi kiel ĉefdelegito de UEA en Rusio, pro kio REU proteste ĉesis pagi kotizon al UEA. Daŭra nepago de la kotizo fare de landa asocio laŭ la statuto de UEA kaŭzos perdon de la aliĝinta statuso.
+
+Smetanina longe estis la reprezentanto de REU en la komitato de UEA, sed nun ŝia nomo ne plu aperas en la listo de la komitatanoj.  Rusia Esperanto-Asocio konsideras la okupitan teritorion de Ukrainio parto de Rusio , kaj pretas aktivi tie.
+
+
+---
+
+# Usono volas pli da potenco en UEA
+
+**Published:** 2025-03-04
+
+**URL:** https://www.liberafolio.org/2025/03/04/usono-volas-pli-da-potenco-en-uea/
+
+**Categories:** UEA, movado
+
+La landa asocio de UEA en Usono proponas ŝanĝi la statuton de UEA tiel, ke jam ekde 251 membroj landaj asocioj havu ne unu, sed du komitatanojn. Nun la limo estas 1 000 membroj – cifero, kiun Esperanto-USA ne havas ŝancon atingi.
+
+Laŭ la nuna statuto de UEA, ĉiu aliĝinta asocio kun minimume 100 membroj elektas unu komitatanon A, kiu reprezentas la asocion en la supera decida organo de UEA, la komitato. Ĉiu plena milo da membroj donas unu plian komitatanon A, ĝis maksimume ses komitatanoj.
+
+Iam tio eble havis sencon, sed nun tre malmultaj landaj asocioj havas pli ol mil membrojn, dum eĉ la plej etaj asocioj raportas cent membrojn kaj kotizas por ili, por rajti je almenaŭ unu komitatano. Esperanto-USA, la landa asocio de UEA en Usono, tial proponas ŝanĝi tiun regulon.
+
+Laŭ la propono sendita al la komitato, por du komitatanoj sufiĉu 251 membroj kaj por tri sufiĉu 501. Asocioj kun pli ol mil membroj laŭ la propono havu kvar komitatanojn, tiuj kun pli ol du mil havu kvin, kaj tiuj kun pli ol tri mil membroj havu ses komitatanojn.
+
+Tiamaniere oni respektos la intencon de la originala statuto, sed samtempe malfermos la komitaton al novaj fortoj kaj motivigos landajn asociojn havigi pli da membroj, Esperanto-USA argumentas.
+
+”Por asocio kun ekzemple 200 aŭ eĉ 400 membroj, estas nerealisme eĉ strebi por mil; sed estas realisme strebi por 250 aŭ 500, kaj zorgi ne iri sub tiu limo”, la landa asocio skribas en sia motivigo. Krome, pli vaste reprezenta komitato disponigos pli da kandidatoj por la estraro de UEA, laŭ la teksto de la propono.
+
+Laŭ Brandon Sowers, la prezidanto de Esperanto-USA, kun la enkonduko de tia ŝanĝo en la statuton de UEA povus veni ”nova sango kaj novaj ideoj kaj energioj en la komitato”.
+
+– Ŝajnas al mi, ke unu el la problemoj pri la komitato en ĝia nuna formo estas ke apenaŭ okazas ŝanĝiĝo en ĝia konsisto. Mi ne certas, kiom el la landaj asocioj nun havas pli ol 250 membroj, sed mi supozas, ke devas esti almenaŭ iuj, Brandon Sowers diras.
+
+Esperanto-USA nun havas proksimume 550 membrojn, do post la proponata statutŝanĝo ĝi ricevus du pliajn komitatanojn.
+
+– Certe multe dependos de tio, kiel la respektivaj landaj asocioj elektos siajn aldonajn komitatanojn. Mi esperas, ke ĝenerale la LA-oj prioritatigos diversecon en siaj komitatanaroj, do, se jam estas ekzemple iu veterano kiu servis tre longe, la dua estu iu pli juna, kiu povos mem longe servi. Krome, mi opinias, ke ĝi donos modere pli fortan voĉon kaj rolon al la asocioj kiuj havas iom da karno, se oni permesos al vegano paroli tiel.
+
+Libera Folio: Kiajn iniciatojn laŭ via opinio la komitato devus entrepreni por plibonigi la staton de UEA?
+
+– Mi pensas, ke la komitato kaj la estraro devus entrepreni multajn iniciatojn por plibonigi la staton. Efektive, estus tre bone havi kampanjon por peti sugestojn tiurilate. Eĉ pli interese estus, se la diversaj landaj asocioj, kaj la diversaj individuaj membroj, komencus demandi sin ”kiel la stato de UEA povas pliboniĝi, kaj kion mi povas proponi aŭ fari por helpi tion”, kaj eventuale el tio povus estiĝi debato. Konsideru tion ĉi unu kontribuo al tio.
+
+Ĉu tamen ne estas aliaj aferoj en UEA, kiujn necesus pli urĝe ŝanĝi ol la statuton?
+
+– Se organizo bonstatas, ne tre gravas modifi la statuton. Se organizo malbonstatas, ĝenerale statut-modifo en si mem ne solvos la problemojn. Kaj mi supozas ke similas ankaŭ ĉi-kuntekste. Tamen, ni ankaŭ konsideras ke estas konvena momento proponi tiun ĉi modifon, ĝuste pro tio ke baldaŭ renoviĝos la komitato, do, estas taŭga momento pensi pri ĝia konsisto kaj ĝia stato kiel instanco, kiu supozeble devas esti viva kaj vigla.
+
+– Ni, Esperanto-USA, intencas esti pli aktiva en la internacia sfero, inkluzive de UEA, kaj do ni ankaŭ volas havi pli aktivan rolon en la komitato, enplekti pli da niaj membroj en ĝin, tiel ke ni ne dependu je unu sola persono por scii, kio okazas, aŭ por influi ĝin.
+
+Grava problemo laŭ Brandon Sowers estas, ke malmultaj scias, kio okazas ene de UEA kaj kiuj estas la gravaj aferoj traktendaj.
+
+– Mi tre volus vidi viglan debaton pri tio, kiuj estas la plej urĝaj ŝanĝoj por UEA, kaj mi tre kuraĝigas tiujn, kiuj havas ideojn, verki pri ili, provi konvinki aliajn, ĉar kompreneble povus estiĝi proponoj kiuj iras en malsamaj direktoj.
+
+Li atentigas, ke la propono pri statutŝanĝo neniel malhelpas aliajn sugestojn pri bezonataj ŝanĝoj en la asocio.
+
+– Male, mi eĉ diros, ke mi esperas, ke la propono igos aliajn esti pli kuraĝaj pri ŝanĝoproponoj. Finfine, la Asocio apartenas al ni ĉiuj (al ĉiuj individuaj kaj aligitaj membroj, sed laŭ mi ĝi apartenas morale ankaŭ al la movado ĝenerale), do, se estas io, kion ni konsideras plibonigebla, ni provu igi ĝin pli bona.
+
+
+---
+
+# Trump donis novajn argumentojn por Esperanto
+
+**Published:** 2025-03-04
+
+**URL:** https://www.liberafolio.org/2025/03/04/trump-donis-novajn-argumentojn-por-esperanto/
+
+**Categories:** vidpunkto
+
+Tra la mondo ni dependas de Usono en multaj internaciaj aferoj, kaj tio fariĝas aparte evidenta en momentoj, kiam Usono ne plu volas ludi la rolon de policisto sed tiun de mafiestro de la mondo. Tio validas ankaŭ pri la angla lingvo. Eble en ĉi tiuj malcertaj tempoj ne plu estas tiom absurda la ideo pri lingvo, kiu povus unuigi anstataŭ disigi la homaron, skribas Marc van Oostendorp.
+
+La usona prezidanto Donald Trump kaj vicprezidanto JD Vance lerte uzis la ilon de potenco nomatan ’lingvo’ dum sia renkontiĝo kun la ukraina prezidanto Volodimir Zelenskij lastvendrede. Ilia celo estis timigi kaj superruzi sian kunparolanton, kaj la fakto, ke la konversacio okazis en la angla, donis al ili klaran avantaĝon.
+
+Aŭskultante anglalingvajn paroladojn de Zelenskij en la lastaj jaroj, oni rimarkas, ke li plibonigis sian lingvaĵon por pli efike plenumi sian diplomatian rolon. Ĉu Trump aŭ Vance regas alian lingvon krom la angla, restas nekonate. Ili profitis de sia denaska lingvo por starigi lingvan baron kontraŭ Zelenskij, kiu bezonis frakcion de sekundo pli por vortumi siajn pensojn. Tiun mallongan momenton la usonanoj lerte utiligis.
+
+La mondo jam kutimiĝis al la angla kiel la lingvo de la internacia ordo – ŝajne neŭtrala ilo por komunikado. Sed kiel la esperantistoj certe scias, tio signifas, ke la plimulto de la homaro devas lerni ĝin kun granda penado, nur por trovi sin superita de homo, kiu havas la naturan avantaĝon paroli sian denaskan lingvon.
+
+Tra la mondo ni dependas de Usono en multaj internaciaj aferoj, ne nur lingvaj, kaj tio fariĝas aparte evidenta en momentoj, kiam Usono ne plu volas ludi la rolon de policisto sed tiun de mafiestro de la mondo. Multaj kernaj aspektoj de la interreto restas en usonaj manoj. Eŭropaj registaroj kaj entreprenoj stokas vastajn kvantojn da sentemaj datumoj en usonaj serviloj, kiujn usonaj aŭtoritatoj povas aliri sub certaj kondiĉoj.
+
+Sed la sama problemo validas por la angla lingvo. Oni ofte prezentas ĝin kiel neŭtralan lingvon, sed kiel ni scias, ĝi estas la lingvo de malgranda grupo de ŝtatoj, kiuj devenas de la brita imperio. Donald Trump komprenas ĉi tiun potencon pli bone ol multaj: en la tago de la renkontiĝo kun Zelenskij, li dekretis, ke la angla fariĝu la sola oficiala lingvo de Usono.
+
+Nun, kiam la monda ordo ŝanceliĝas, ni havas la ŝancon rekonstrui ĝin pli juste kaj demokratie – tiel ke ne unu sola popolo havu specialajn privilegiojn en internacia interagado. Alivorte, la klasikaj argumentoj de Zamenhof pri neŭtrala mondlingvo ree fariĝas aktualaj.
+
+Dum longa tempo oni mokis tiun ideon, konsiderante ĝin naiva, ĉar la mondo ja elektis la anglan. Sed eble, en ĉi tiuj malcertaj tempoj, ĝi ne plu estas tiom absurda: lingvo, kiu povus unuigi anstataŭ disigi la homaron. Lingvo, kiu jam dum pli ol jarcenton funkcias en malgranda, sed dediĉita komunumo, kaj en kiu oni povas ĉion fari kion oni bezonas en internacia komunikado sur pli justa bazo.
+
+Ĉu tio signifas, ke tiam ne plu ekzistus politikistoj, kiuj misuzas sian potencon? Ankaŭ pri tio ni jam trovis la respondon: kompreneble ne estus tiel. Sed unu potenca ilo estos forprenita el iliaj manoj.
+
+Marc van Oostendorp
+
+Nederlanda versio de la artikolo aperis en de Volkskrant
+
+.
+
+
+---
+
+# Ĉu UEA kunvenos konstitucie?
+
+**Published:** 2025-03-11
+
+**URL:** https://www.liberafolio.org/2025/03/11/cu-uea-kunvenos-konstitucie/
+
+**Categories:** UEA
+
+Universala Esperanto-Asocio aranĝu ”konstitucian kunvenon” por ĉion refari desube. Tian ideon prezentas la antaŭa estrarano de la asocio Orlando Raola, responde al la propono de Esperanto-USA pri statutŝanĝo. Duncan Charters opinias ke la ideo venas en konvena momento kaj kredas ke la plimulto de la membroj konsentas pri la bezono.
+
+Antaŭ semajno Libera Folio raportis pri la propono de Esperanto-USA ŝanĝi la statuton de Universala Esperanto-Asocio tiel, ke la pli grandaj landaj asocioj havu pli da komitatanoj. En la komitata diskutejo la temon post la apero de la artikolo levis José Antonio del Barrio, kiu prezentis malan opinion, nome ke ne la landaj asocioj sed la individuaj membroj estas subreprezentataj en la supera organo de UEA:
+
+– Fakte, mi tre dubas ke indas nun dediĉi penojn al ŝanĝo de statuto, sed se oni decidus tion entrepreni, mi favorus la altigon de nombro de B-komitatanoj, kaj ne de reprezentantoj de landaj asocioj, kiuj krome ofte ne renoviĝas. Almenaŭ tion mi pretas subteni se la propono alvenas dum mia deĵorperiodo, li skribis.
+
+Stefan MacGill konsentis kun la proponintoj, ke neniu landa asocio plu atingas mil membrojn, kio laŭ la nuna statuto necesus por havi duan komitatanon, kaj proponis malaltigon de la limo al 800. Ankaŭ la komitatanoj B, kiuj reprezentas la individuajn membrojn, laŭ li povus esti iom pli multaj.
+
+– La relativa pezo de la landaj asocioj kaj la individuaj membroj treniĝas en la movado jam de cent jaroj! Sed por kreskigo de la nombro, devas esti pli da kandidatoj!
+
+Samtempe li atentigas, ke pli granda komitato iĝos eĉ malpli kapabla liveri rezultojn. Ĝuste pro tio li en 2013 proponis la kreon de malpli granda organo, ”konsilio”, kiu aldonu laborfortojn al la estraro. Listo de la anoj de tiu konsilio plu troveblas en la retejo de UEA, sed efektive okazis nenia aktivado en ĝi post 2018.
+
+– Bedaŭrinde, tiu organo vere ne aktive sukcesis, eble pro mia kapablo dediĉi tempon al ilia funkciigo, eble ĉar temis pri malbona ideo dekomence, Stefan MacGill skribas.
+
+Kiel ajn, ŝanĝi la statuton de UEA laŭ li postulus multe da laboro:
+
+– Humphrey Tonkin sukcesis en ĉ. 1980, sed neniu poste alprenis tiun preskaŭ maleblan sizifan taskon.
+
+Orlando Raola, iama estrarano de UEA, entuziasmas ke fine okazas diskuto pri la strukturo de la asocio. Laŭ li estas nun tempo por granda kunveno kiu diskutu la fundamentojn: ĉu plu indas, ke UEA estu bazita sur landaj asocioj, ĉu la komitato en sia nuna formo kapablas plenumi sian taskon, kaj ĉu la celo de la asocio unuavice estu servi la membrojn aŭ antaŭenigi Esperanton. Laŭ li necesas novaj statutoj kaj regularoj por racia stirado de la ŝipo UEA:
+
+– Ĉiu demandu  sin: ĝis la kioma ni lasos la barkon drivi, forturnante nian atenton de la vere atentindaj ”elefantoj en la salono”?
+
+Prezidanto Duncan Charters plusendis la proponon de Orlando Raola al la tuta komitato kaj promesis aldoni ĝin kiel diskutindan temon en la strategia laborplanado:
+
+– Efektive, necesas minimume komisiono pri statutŝanĝoj, ne nur pro lastatempaj proponoj, sed ankaŭ por ke ĝi konformiĝu al la novaj nederlandaj leĝoj rilate neprofitcelajn asociojn.  Do via ripetata ideo revenas en tute konvena momento, ĉar mi supozas ke plimulto el niaj membroj konsentas pri la bezono.
+
+La planado de la strategia laborplano de UEA daŭras de 2017 , sed konkretaj rezultoj apenaŭ videblas.
+
+Aliĝis al la diskuto ankaŭ honora prezidanto Humphrey Tonkin, kiu konsentas, ke la nuna statuto de UEA estis kreita por tute alia monda situacio antaŭ 45 jaroj. Tamen la kreado de nova statuto laŭ li forrabus tempon kaj riskus bremsi la pozitivan laboron de UEA, en tempo kiam aktivado por Esperanto devus havi pli altan prioritaton.
+
+– Cetere, se ĉiuj komitatanoj aktive engaĝus sin en la laboro de la Asocio, ni povus multon atingi. Ĉu la nuna statuto malbone funkcias pro la malbona funkcio de la komitatanoj – aŭ inverse?  Aŭ nek-nek?
+
+
+---
+
+# AI necesigis interpretadon al Esperanto
+
+**Published:** 2025-03-18
+
+**URL:** https://www.liberafolio.org/2025/03/18/ai-necesigis-interpretadon-al-esperanto/
+
+**Categories:** movado
+
+Esperanto-Ligo de Bosnio kaj Hercegovino estis la organizanto de dutaga popularscienca ronda tablo pri la temo ”Lingvo kaj artefarita intelekto” en Sarajevo fine de februaro. La federacia ministerio pri edukado kaj scienco estis la aŭspicianto kaj ĉefa financanto de la renkontiĝo. La diskutantoj konsentis interalie, ke algoritmoj neniam estas neŭtralaj, kaj ke la AI-motoro ne komprenas la frazojn kiujn ĝi generas, rakontas nia aŭtoro Federico Gobbo.
+
+Imagu esti invitita aliĝi al prelegantaro pri la temo de generipova artefarita intelekto (genAI). Ĉiu alia preleganto venas de lando en kiu oni parolas lingvon kiun la aliaj komprenas, kaj la celo de la prelegantaro estas trovi manierojn kunlabori inter la respektivaj institucioj kaj trans la landaj limoj. Poste estas vi, kiu parolas lingvon ĝisoste internacian, sed kiun preskaŭ neniu el la aliaj prelegantoj parolas aŭ komprenas, kaj pro tio estas organizata skipo de tri interpretistoj por ebligi al vi sekvi la prelegojn kaj diskutojn de ĉiuj aliaj per aŭskultiloj, dum al ĉiuj aliaj la interpreta servo utilas nur kiam parolas vi.
+
+Jen kio okazis al mi dum la ronda tablo pri la temo ”Lingvo kaj artefarita intelekto”, kiu okazis en la tagduo 20-21-a de februaro. Ne, la aliaj prelegantoj ne parolis Esperanton (krom unu, Samir Ribić, profesoro pri komputiko kaj esperantisto, kiu tamen ne instruas la lingvon en sia universitato). Ĉiuj prelegantoj parolis la bosnan, ĉar la rondan tablon organizis Esperanto-Ligo de Bosnio kaj Hercegovino, en Sarajevo.
+
+La tri interpretistoj estis esperantistoj, kiuj elesperantigis mian penson al respektive la bosna, la serba kaj la kroata. Kaj la sufiĉe amuza paradokso de la tuta situacio estis la temo pri kiu ni estis invititaj paroli: la lastatempa furoraĵo en la bitteknologia mondo, tio estas la generipova artefarita intelekto kaj kiel ĝi influas la lingvojn. Partopreninte la situacion, do, mi povas unue rimarki, ke genAI tute ne kapablas anstataŭi homajn interpretistojn.
+
+La starpunkto de la ronda tablo estas, ke AI ĝenerale ne povas solvi problemojn anstataŭante homojn, sed ja povas esti valora helpilo. Kelkaj prelegantoj atentigis, ke la termino ”intelekto” aŭ ”inteligento” en la esprimo AI, siatempe inventita fare de John McCarthy en 1956 en Usono, efektive ne estis la plej taŭga por eviti la nuntempan miskomprenon pri la kapabloj de ĉi tiu bitteknologio. Alia kuniga opinio estas, ke AI devas esti uzata ne facilanime sed atente, konsidere kaj zorge.
+
+Unu el la problemoj malantaŭ tio estas, ke la datumoj kaj la fontokodo ofte ne estas malfermitaj por esti analizataj sub lupeo. Flanke al tio, konsiderendas la malsimileco inter la kvanto de datumoj por trejni la AI-motoron je dispono en la angla kaj la datokvanto en ĉiuj aliaj lingvoj, kaj, aparte grave, en malgrandaj lingvoj kiel la bosna kaj Esperanto – ”malgrandaj” laŭ la vidpunkto de la ĉeesto en la bitmondo, kiel precizigis prave profesoro en la Universitato de Sarajevo pri la bosna, serba kaj kroata lingvoj, Halid Bulić.
+
+Paradokse, mi klarigis, ke Esperanto estas pli videbla kaj subtenata bitmonde ol multaj lingvoj laŭ aliaj kriterioj pli vivipovaj ol ĝi, ekzemple laŭ la nombro de parolantoj.
+
+En sia prelego, Samir Ribić celis malmistifiki la aŭron de mistero kiu ĉirkaŭas AI, rakontante ĝian historion. Fakte ni nun vivas la lastan ŝtupon, tiun de genAI, sed pleje la problemoj restas la samaj de jardekoj. La unua ”babileja roboto” (jen la signifo malantaŭ la vorto ”ĉatboto”) nomiĝis Eliza, kaj estis eksperimento farita en la 1960-aj.
+
+Tiutempe la babilejo salutis la uzanton asertante, ke ĝi estas psikoterapiisto. Se la uzanto restas je tiu ĉi iluzio, la AI-motoro povas esti surprize verosimila dum iom da tempo, kaj fakte efektive helpi la uzanton, antaŭ ol enui, se la uzanto iras al kompleksaj temoj. La algoritmo tiam estis simpla, ĉar la asertoj estis turnitaj al demandoj reprenante la samajn vortojn.
+
+Fidi je la AI-maŝino kvazaŭ ĝi reale komprenus la demandojn de la uzanto restas same probleme hodiaŭ, eĉ se la akurateco de genAI estas multe pli alta ol tiu de la primitiva Eliza. Gravas refari la pensan eksperimenton de la usona filozofo John Searle, konatan kiel la Ĉina Ĉambro: la eksperimento pruvas, ke la manipulado de la homa lingvo fare de AI estas pure sintaksa, sen ajna semantiko.
+
+Alivorte, la kompreno pri la enhavo de la frazoj kiujn proponas al la uzanto la AI-motoro estas tute kaj nur en la kapo de la uzanto, ne de la maŝino. Do, la ĉefa demando finfine, pri kiu ĉiuj prelegantoj akordiĝas, estas: kion homoj gajnas per genAI kaj kion malgajnas? Kaj ĉu estas specifaj homgrupoj kiuj gajnas super aliaj?
+
+Tio malfermas alian dimension al la disvastiĝo de genAI, kiel rimarkigis Amila Akagić, profesorino pri informadiko en la Universitato de Sarajevo, nome la timon perdi laborpostenojn pro la anstataŭado fare de genAI. Eĉ tiu ĉi timo estas malnova, ĉar ĉiuj teknologioj, kiam ili alvenas la socion, estas suspektindaj por partoj de la socio kiuj ne komprenas la teknikaĵojn malantaŭ ilia funkciado.
+
+En la kazo de AI, ne facilas kompreni tiajn teknikaĵojn, kaj pro tio la strebo malmistifiki valoras la penon hodiaŭ pli ol antaŭe. La fakto ke malantaŭ la kurteno troviĝas neŭroretoj, kiujn homo ne povas inspekti, ne faciligas la forigon de la timo, eĉ pratimo, perdi la politikan kontrolon de tiu ĉi bitteknologio.
+
+La estro de la Departemento pri komunikado kaj ĵurnalismo ĉe la Fakultato de politikaj sciencoj en la Universitato de Sarajevo, profesoro Fahira Fejzić-Čengić, montris, ke de kiam industrio forprenis la gvidan rolon en la disvolviĝo de AI de la akademiaj instancoj, kiel ekzemple universitatoj kaj esplorcentroj, pli kaj pli malfacilas esplori pri ĝi, pro la netravideblo de la fontokodoj kaj de la konar-bazo malantaŭ la funkciado de genAI-motoroj.
+
+Spertulas pri ili specife profesoro Razija Turčinhodžić Mulahasanović, kiu esploras kaj instruas en la sama universitato. Ŝi proponis respondi la demandon ”Ĉu AI estas pli inteligenta ol ni?”.
+
+Al ŝi mia respondo estis inversigi la demandon jene: ĉu homoj iĝas pli stultaj pro AI? Mi menciis epizodon por klarigi la inversigon. En la historio de la Turing-a Testo, estas fama la misjuĝo pri spertulo pri Ŝekspiro, Cynthia Clay, kies kono pri la poeto estis tiel perfekta, ke ŝi estis konsiderita nehoma (por interesatoj: temas pri la unua eldono en 1991 de la Premio Loebner, kiu nun ne plu ekzistas).
+
+Nasir Muftić, docento pri juro en la Universitato de Sarajevo, atentigis, ke estas jura vakuo pri la respondeco de la respondoj de AI, ĉar ne klaras al kiu iras la kreditokapablo kaze de aŭtomata decido. Ekzemple, se kuracisto fidas je konsulto de AI por diagnozi malsanon kaj finfine la paciento mortas pro misdiagnozo, kiu respondecas? La kuracisto, aŭ la entrepreno malantaŭ la genAI-babilejo?
+
+Tiu ĉi rimarko instigis diskuton pri la supozata neŭtraleco de genAI, pro manko de morala konscio en la maŝino. Tamen, algoritmoj neniam estas neŭtralaj, ĉar ili estas fasonataj laŭ plano kaj celo, fare de la homoj kiuj fine programas ilin. Se la rezulta programo estas parte aŭtonoma, kiel en la kazo de genAI, la morala flanko de la tuta afero estas eĉ pli grava.
+
+Kelkaj utilaj aplikoj de tiuj algoritmoj estas jam uzataj, kiel montris la raporto de Senija Šehanović, docento en la Universitato de Zenica pri komunikado kaj amaskomunikilaro, pri la uzo de genAI fare de bosnaj universitataj studentoj. Ekzemplon donis Semir Hambo, ĉefredaktoro de populara retportalo en la bosna: AI helpas trovi malamparoladon en komentoj al novaĵaj artikoloj en ĝi kaj forigi ilin aŭtomate.
+
+Mia repliko estas, ke, laŭ mia sperto, malutilaj uzoj pli gravas ol la utilaj, almenaŭ en la kunteksto de la studentoj en la Universitato de Amsterdamo. Fakte, foje ili uzas la helpon de genAI por verki siajn eseojn sen agnoski ties helpon, kaj ne ĉiam facilas pruvi, ke ili kondutis tiel. Tio estas malferma problemo, kies solvo ne klaras: almenaŭ agnosko de la uzo de genAI povus esti etike pli akceptebla ol tute intenca kaŝo.
+
+Je la fino de la ronda tablo, estiĝis planoj kunverki manifeston pri etika uzo de genAI en la publika spaco, kiu instigu pli da kunlaboro inter la prelegantoj de la areo, dum la traduko al Esperanto faciligu la disvastigon al aliaj spertuloj tra la mondo kaj espereble al propono kunlabori fruktoplene. Finfine, ni jam pavimis longan vojon el la antikveco, kiam sklavoj estis kvazaŭ iloj anstataŭ homoj kaj havis neniun rajton, atentigis prof-ino Fahira Fejzić-Čengić.
+
+Prof-ro Samir Ribić proponis adopti en la manifeston kibernetikan difinon de la afero: la diferenco inter genAI kaj la antaŭa situacio estas la centriĝo de la maŝin-maŝina komuniko, kies dinamiko stiras la hom-maŝinan. Kaj tio movas la homajn estaĵojn en la periferion de la komunik-sistemo, kaj neniu el la prelegantoj volus ion similan.
+
+La laboro de la interpretistoj estis grandioza, kaj mi estas dankema al ili, sed mi devas konfesi, ke aŭskulti dum du labortagoj preskaŭ ĉiun prelegon tra interpretado per aŭskultiloj estas vere laciga tasko. Ĉiuokaze, la sperto estis tre interesa kaj povas iĝi modelo por konstrui ponton inter esperantistaj kaj neesperantistaj spertuloj pri difinita interesplena temo serioze diskutinda.
+
+Federico Gobbo
+
+
+---
+
+# Ĉu AI riĉigas la Esperantan kulturon?
+
+**Published:** 2025-03-24
+
+**URL:** https://www.liberafolio.org/2025/03/24/cu-ai-ricigas-la-esperantan-kulturon/
+
+**Categories:** kulturo
+
+Artefarita intelekto helpas riĉigi la Esperanto-kulturon. Tion opinias Georg Jähnig, kiu uzis AI-ilon por muzikigi poemojn de Zamenhof. Sed ĉu muzikaĵoj kreitaj tiel vere apartenas al la Esperanto-kulturo?
+
+Ĵus aperis en la reto Ludovika Poezio – muzikalbumo kreita per artefarita intelekto fare de Georg Jähnig, germana esperantisto loĝanta en Prago. Laŭ li temas pri la unua muzikalbumo en Esperanto, kiu estas kreita per AI.
+
+La albumo estas la unua ero en la projekto Nova Tonaro, de Georg Jähnig. Ĝi tamen ne estas la unua muzika projekto en Esperanto produktita per AI – pliaj eksperimentaj verkoj de alia aŭtoro troveblas ĉe Bitoj kaj Dopamino.
+
+La nova albumo enhavas dek kantojn en tre diversa stilo, de roko kaj diskoteka muziko ĝis ĵazo kaj balado. La tekstoj de la kantoj baziĝas sur poemoj de Zamenhof. Aperas interalie funka versio de Ho mia kor’ , ĵaza versio de Al la fratoj kaj energia tekno-versio de En sonĝo princinon mi vidis .
+
+La albumo estas ”senpage disponebla en streaming- [elsendfluaj] servoj kiel Spotify, Apple Music kaj YouTube ktp, por ke ĉiuj povu sperti la eksperimentan kombinaĵon de Zamenhofa poezio kaj modernaj muzikaj ĝenroj”, Georg Jähnig skribas en gazetara komuniko.
+
+Libera Folio: Ĉu vi volus rakonti, kun kiu celo vi kreis la muzikaĵojn, kaj ĉu vi kredas, ke esperantistoj volos aŭskulti muzikaĵojn kreitajn per AI?
+
+– Certe. Mi eltrovis la ilon Suno antaŭ unu jaro kaj tuj ŝategis kiel facile oni povas krei sufiĉe altnivelan muzikon. Kaj komencis krei mallongajn kantojn por amikoj , kiujn ankaŭ ili ŝatis.
+
+– Intertempe, la kvalito de Suno ege kreskis, kaj mi kredis, ke tia muziko povas plaĉi eĉ pli al multe da homoj. Ĉefe inter parolantoj de relative malgrandaj lingvoj, la homforto estas nevasta, do ankoraŭ ne ekzistas tiom da specifaj Esperantaj muzikaĵoj, ekzemple en funko, triphopo aŭ etosmuziko, laŭ mia scio. AI tie povas facile helpi kreskigi la proponadon kaj tiel riĉigi la Esperanto-kulturon.
+
+Sed ĉu produktoj kreitaj per AI vere estas Esperanto-kulturo?
+
+– Kial ili ne estu?
+
+Nu, la demando estas ĉu produktoj kreitaj per AI entute estas kulturo, aŭ io tute alia.
+
+– Mi kredas ke plej gravas la rezulto: ĉu eblas ĝui, aŭskulti AI-kreitan muzikon aŭ danci al ĝi? Certe jes. Ĉu AI-kreinto povas verki sian propran tekston kaj nur uzi AI por krei nur la muzikon? Ankaŭ jes. Imagu kiom da esperantistoj eble tute ne konis la poezion de Zamenhof kaj nun povos eltrovi ĝin.
+
+– Laŭ mi tio estas iom la sama debato kiel kiam aperis elektronikaj muzikiloj. Kaj la demando iom similas al ”Ĉu Esperanto entute estas lingvo, aŭ io tute alia?”
+
+
+---
+
+# Usonanoj planas Operacon Invado en Kanado
+
+**Published:** 2025-04-01
+
+**URL:** https://www.liberafolio.org/2025/04/01/usonanoj-planas-operacon-invado-en-kanado/
+
+**Categories:** movado
+
+Usonaj esperantistoj, inspirite de sia nova prezidanto, planas invadon de Kanado. La operaco laŭ informoj de Libera Folio okazos en julio ĉi-jare. La celo estas igi Esperantujon bonega denove, kaj grandigi la merkaton por La Kanada Verkaro.
+
+Libera Folio eksciis el la plej konfidenca fonto pri la sekreta operaco, kiun usonanoj planas en Kanado. Por pli bone informiĝi pri tio, kio okazas inter la landoj, kiuj kunhavas la plej longan landlimon en la tuta mondo, Libera Folio faris siajn proprajn esplorojn kaj turnis sin al kelkaj aktivuloj de ambaŭ landoj por klarigoj.
+
+– Jes! Ni absolute intencas la Operacon Invado. Ni fakte planas la aferon jam iom da tempo kaj ĝi, absolute certe, okazos ĉi-julie,  fiere konfirmis la cirkulantajn onidirojn Brendan Sawyers, la prezidanto de Usona Esperanto-Asocio.
+
+Brendan, devena el la sudo de Usono kaj ne ema al malvarmo, diris ke la temperaturo estis gravega faktoro en la decido pri la dato:
+
+– Vidu, ni ne volas kaptiĝi en la neĝo veturante, do ni decidis ke la sola taŭga tempo por invado estas somero. Kaj krome, ni ne havas spacon en niaj valizoj por neĝoŝoveliloj, jakoj, ĉapoj kaj varmaj ŝtrumpoj, ĉar ni devas alporti niajn gitarojn-banĝojn-ukulelojn por la arta vespero, librojn kaj diversajn varojn por la foiro.
+
+Vendi De Bleury, la estro de la Propaganda Subkomitato de la Invada Komitato (PSIK), diris, ke la vendado de diversaj objektoj devus pagi grandan parton el la kostoj de la operaco.
+
+– Ni aparte fieras pri la ĉi-jara aro de produktaĵoj kaj ni antaŭvidas ke la verda ĉapeto kun la vortoj ”Igu Esperantujon bonega denove” estos aparte bone vendata kaj ke…
+
+Vendi De Bleury ne povis fini la komenton, ĉar ekestis du paralelaj debatoj: ĉu ”bonega” aŭ ”grandioza” kaj ĉu tiu vorto necesigas la akuzativon. S-ro De Bleury rekomendis ke la propaganda subkomitato dividiĝu je du subsubkomitatoj: unu pri la akuzativo (PSIK-n) kaj la alia pri la adjektivo (PSIK-a), kaj ke ambaŭ grupoj faru siajn rekomendojn en tempo sufiĉa por povi produkti ilin malmultekoste en Ĉinio.
+
+La LIK (Loka Invada Komitato) konfirmis, ke la operaco okazos en Toronto, la plej granda urbo de Kanado:
+
+– La tuta afero okazos apud la uson-kanada landlimo, kio faciligas la veturadon.
+
+Unu LIK-ano proponis nomi la operacon ”TOI-ronto”, sed la propono tamen ne pasis. La temposkemo estas jam ellaborita: Inter la 5-a kaj la 11-a de julio 2025 okazos la granda surloka preparado al la invado – temos pri intensa surloka trejniĝo por pli bone kompreni la terenon kaj sukcesi en la komunikado.
+
+La operaca trejnado estas konata sub la sekreta kodo ”NASK” — Neamika Subfosa Kampanjo. Post la sukcesa NASKo okazos, de la 11-a ĝis la 14-a de julio, la operaco mem. Oni antaŭvidas ke la kongresanoj unue invados la kongresejon kaj poste diversajn aliajn lokojn, kiel la famajn Niagarajn Akvofalojn.
+
+LIK petas ke la invadantoj tamen sekvu la instrukciojn, iru al la busoj ĝustatempe kaj sekvu la generalojn (rekoneblajn per la verd-flageta uniformo) kaj laŭeble ne perdiĝu, aparte ne ĉe Niagaro, kaj kontaktu la bazon, se tamen perdiĝo ne eviteblas.
+
+Por kompreni, kiel kanadanoj vidas la tutan aferon, ni turnis nin al Garry Mann, la prezidanto de Esperanto-Asocio de Kanado. Verŝinte teon kun acersiropo en elegantan tason kaj ĝentile proponinte acersiropajn kuketojn, Garry diris konfidence:
+
+– Momente tio estas plena sekreto, sed tamen sciu, ke la tutan aferon elpensis kanadanoj.
+
+Garry, profesia ekonomikisto, klarigas:
+
+– Ni faris malnetan kalkulon kaj konstatis, ke por plene disvendi al kanadanoj La Kanadan Verkaron , presitan por la Montreala UK de 2022, ni bezonos proksimume 35–40 jarojn. Kaj ĉar ĉiu kanadano jam posedas almenaŭ unu ekzempleron de ĝi, ni bezonas venigi ”freŝan sangon” — homojn, kiuj ankoraŭ ne posedas tiun bonegan libron. Jen brila okazo disradiigi la kanadajn kulturon kaj literaturon al niaj najbaroj el Usono.
+
+Dum Garry esperoplene demandis, ĉu la korespondanto de Libera Folio hazarde ankoraŭ ne posedas ekzempleron de tiu libro, en la salonon eniris lia edzino kaj demandis kun ioma grumblado, kiam finfine la skatolegoj de La Kanada Verkaro foriros el la kelo.
+
+La sekretaj kaj strikte konfidencaj informoj pri la Operaco Invado (OI) haveblas ĉi tie: OI: sekrete kaj konfidence
+
+Ĵenja Amis
+
+
+---
+
+# Profesia uzo de Esperanto disvendiĝis amase
+
+**Published:** 2025-04-02
+
+**URL:** https://www.liberafolio.org/2025/04/02/profesia-uzo-de-esperanto-disvendigis-amase/
+
+**Categories:** kulturo
+
+En 1992 Petro Chrdle neatendite por si mem fondis eldonejon. En tri jardekoj li eldonis 265 librojn, el kiuj proksimume cent en Esperanto. Pere de lia eldonejo aperis ankaŭ la plej freŝaj versioj de la Biblio kaj la biblieca Plena Ilustrita Vortaro – kaj lia propra libro pri profesia uzo de Esperanto, neatendite furora. Ĵus aperis la lasta el liaj esperantlingvaj eldonaĵoj en Ĉeĥio. Tamen la eldonado ne ĉesos, sed translokiĝos Ameriken.
+
+Libera Folio: Donu kelkajn bazajn faktojn pri via eldonejo: kiam ĝi estis fondita, kiuj estis la plej gravaj verkoj en Esperanto, kiujn ĝi eldonis, kaj kiom da verkoj aperis entute en diversaj lingvoj?
+
+Petro Chrdle: – En la jaro 1991 mi fondis Kongresan kaj klerigan agentejon, KAVA-PECH (mallongigo de la kompleta ĉeĥa nomo), kaj venis al mi eĉ ne unu ideo ke mi fariĝu eldonisto. Se tiam ekzistus kvalita cifereca preso, mia samnoma eldonejo ne naskiĝus. Sed tiutempe oni ĉiujn librojn presis ofsete, do la plej multekosta estis la antaŭpresa laboro, kaj la diferenco ĉu presi 50 aŭ 5 000 ekzemplerojn ne estis granda. Sed mi volis, ke miaj eldonaĵoj ekzistu, do estu en katalogoj kaj neforĵeteble en difinitaj bibliotekoj, kaj kiam mi diris al iu eldonejo, ke mi volas mendi ekzemple 150 ekzemplerojn, aŭ ili priridis min aŭ donis al mi astronomian prezon, kiu malebligus organizi la konferencon aŭ kongreson.
+
+– Mia saĝa edzino proponis, ke ni registriĝu kiel eldonejo por ekhavi propran vicon de ISBN-numeroj kaj produktu la prelegkolektojn surgenue per analoga kopiilo kaj mangluado. Tio okazis en 1992, do ekde tiam ekzistas la eldonejo KAVA-PECH. La eldonado de libroj plaĉis al ni (mi kaj mia edzino Stanjo), tial ni komencis eldonadi ankaŭ librojn en Esperanto, nia komuna hobio. Kaj post la forpaso de Stanjo kaj mia pensiiĝo mi forlasis ĉiujn ceterajn aktivadojn kaj restas nura eldonisto.
+
+– Mi posedas eldonejon malgrandan; dum tiuj pli ol 30 jaroj mi eldonis nur 265 librojn, el ili proksimume 100 en Esperanto. Proksimume, ĉar se ni enkalkulus tiujn verkitajn nur parte en Esperanto (lernolibrojn, vortarojn), tiam estas pli ol 100, nekaze preskaŭ 100. Tamen, malgraŭ la eteco de mia eldonejo, ĝi estas enskribita en la ĉeĥa libro de rekordoj kiel la eldonejo, kiu eksportas proprajn eldonaĵojn al plej multe da landoj de la mondo (pruveble 63). Klare, ke tio estas danke al la libroj en Esperanto, kio estas menciita en la libro kaj en la diplomo. Krom tiuj kun propra ISBN mi produktis pli ol 100 laŭmende por aliaj eldonejoj kaj individuoj. Cetere, dum librojn en la ĉeĥa mi plu eldonas, en Esperanto la nombro de eldonaĵoj jam estas definitiva.
+
+Kial vi ĉesas eldonadi la librojn en Esperanto?
+
+– Pro nekredeble stultaj burokrataĵoj en Ĉeĥio rilate al la internacia komerco (eĉ kiam en ridinde malgrandaj kvantoj). Kaj krome pro miaj tre seriozaj du malsanoj. Antaŭ ol mi feliĉe fuĝis el la ŝovelilo de entombigisto, mi pripensis, kiel mia plej aĝa filino, kiu heredos mian firmaon, freneziĝus, sciante nenion pri internacia komerco kaj ne scipovante Esperanton. Tial mi decidiĝis ne plu agi internacie, kio signifis ne plu zorgi pri Esperanto-libroj.
+
+– Feliĉe, la Esperanto-fako de la eldonejo kontinuos kiel la nove fondita eldonejo Les éditions KAVA-PECH de François Bolduc kun sidejo en Montrealo. Por la eŭropaj mendantoj gravas, ke ĝi havas filion en Budapeŝto, kiun prizorgas Stela Besenyei-Merger. Tial la ĝis nun eldonitaj libroj de KAVA-PECH, transprenitaj, nun troviĝas parte en Montrealo, parte en Budapeŝto.
+
+– Kaze ke oni volas aĉeti la librojn eldonitajn de KAVA-PECH aŭ proponi sian manuskripton kiel aŭtoro aŭ tradukinto, oni turnu sin retpoŝte al la nova eldonejo. Klare, ĉiujn librojn eblas mendi ankaŭ ĉe UEA aŭ pluraj aliaj libroservoj. Grava tiurilata rimarkigo: Antaŭ ol la nova eldonejo havos propran retejon, plu eblas serĉi kaj mendi la librojn ĉe la malnova retejo kaj mi plusendos la mendon.
+
+Kiujn de vi eldonitajn librojn en Esperanto vi konsideras gravaj kaj kial?
+
+– Mi havis la avantaĝon, ke mia kongresa agentejo bone prosperis kaj ke mi estas ulo vivanta modeste. Tial mi havis rimedojn por povi eldonadi ankaŭ librojn, pri kiuj mi sciis, ke ili portos malprofiton, sed ĉe kiuj mi volis, ke ili ekzistu. Kiel profesie teknikisto, mi emfazis la fakan literaturon, kiu ege mankas en Esperanto. Kiel ekzemplojn mi menciu la Ĉeĥan-Esperantan kaj Esperantan-ĉeĥan ĥemian vortaron aŭ prelegkolektojn el la konferencoj KAEST, aŭ mian Profesia uzo de Esperanto kaj ĝiaj specifaj trajtoj .
+
+– Ĉe la laste nomita okazis miraklo; ĝi disvendiĝis kaj jam ekzistas tria aktualigita eldono. Sed kiel jam menciite, eldonado fariĝis nia hobio kaj do ni komencis eldonadi ankaŭ beletron inkluzive de poezio. Kiel ĉeĥo mi konsideris grava prezenti la ĉeĥan kulturon, tial mi eldonis ankaŭ klasikaĵojn, ekzemple Aventuroj de la brava soldato Ŝvejk de J. Hašek kaj R.U.R. de K. Čapek (ambaŭ en la serio Oriento-Okcidento de UEA). Sed – mi ŝatas ĉion, kion mi eldonis, alimaniere mi ne estus eldoninta tion.
+
+Kiel evoluis la Esperanta libromerkato dum la jardekoj, dum kiuj vi aktivas? Kiajn pozitivajn kaj negativajn ŝanĝojn vi opinias plej signifaj?
+
+– Mi ne scias, ĉu mi kompetentas respondi tiun demandon, certe multe pli kompetenta estus Ionel Oneț , kiu havas trarigardon kompletan aŭ Aleksander Korĵenkov, kiu perfekte gvidas statistikaĵojn. Sed, surbaze de miaj propraj spertoj (kaj ankaŭ laŭ la eldonkvantoj, kiujn mi produktas laŭmende), daŭre malkreskas la aĉetado de libroj (ne nur esperantaj), kio kondukas al malpli kaj malpli grandaj eldonkvantoj.
+
+– Pozitiva trajto kompare kun miaj komencoj estas sendube la ekzisto de kvalita diĝita presmaniero, kiu ebligas produkti tiujn malgrandajn eldonkvantojn. Kaj kiel ĉefan negativan trajton mi vidas la ĉiam kreskantajn sendokostojn, kiuj foje transpaŝas la prezon de la senditaj libroj. Tradicie plej multajn librojn oni vendas dum aranĝoj, ĉefe post samtema prelego. Sed ofte mi aŭdas, ke por iu ne eblas aĉeti librojn, ĉar jam sen ili la valizo tro pezas, …
+
+Kiel vi vidas la estontecon de la Esperanta libromerkato? Kian signifon en tiu estonteco laŭ vi havos fizikaj libroj kaj fizikaj libroservoj, kiel tiu de UEA?
+
+– En la okdeka jaro de mia vivo mi estas dinosaŭro, kiu ne ŝatas legi sur ekrano kaj ĉiam restos fidela al paperaj libroj. Sed mi komprenas, ke la e-libroj havas multajn avantaĝojn: forfalas sendokostoj kaj forfalas pezigo de valizoj. Do verŝajne ili trovos siajn legantojn kaj deprenos parton de la klientaro por paperaj libroj. Tamen mi kredas, ke la paperaj libroj pluvivos paralele kun ili, same kiel vivas teatro apud filmoj kaj radio kaj televido apud interreto. Tial mi plu konsideras libroservojn, precipe tiun de UEA, kiu ofertas preskaŭ la kompletan disponeblan libraron, tre utilaj kaj subtenindaj.
+
+
+---
+
+# La buĝeto de TEJO: ĉu vere tutmonda?
+
+**Published:** 2025-04-03
+
+**URL:** https://www.liberafolio.org/2025/04/03/la-bugeto-de-tejo-cu-vere-tutmonda/
+
+**Categories:** vidpunkto
+
+Kial UEA neatendite kontribuos al la kosto de dungitoj de TEJO per la rekorda sumo de 22 000 eŭroj, sed donos nur 2 000 eŭrojn al la kampanjo ”Partoprenu IJK”? Tion demandas en sia vidpunkta artikolo Patricio Agustín Iglesias, la antaŭa kasisto de TEJO.
+
+La buĝeto estas kerna dokumento por ajna organizo. Dum per prelegoj, aktoj kaj jarraportoj oni havas sufiĉe da libereco por deklami ĉies gravecon kaj laŭdi ĉian agadon, buĝetoj estas konkretaj, lakonaj, seneŭfemismaj sintezoj de la prioritatoj de la gvidantaro. Analizante ilin oni povas kompreni al kiuj celoj oni pretas dediĉi la plej grandajn materiajn rimedojn. Sensurprize oni uzas en kelkaj lingvoj por ĝi la idiomaĵon ”patrina leĝo”, ĉar ĝi estas la baza normo sur kiu staras la ĉiutaga agado.
+
+Do kompari buĝetojn de malsimilaj jaroj povas esti maniero por konfirmi kiuj fakoj, agadoj aŭ regionoj gajnas aŭ perdas gravecon tra la tempo. Ni tion faros por Tutmonda Esperantista Junulara Organizo kiu, malgraŭ sia nomo, estas kritikata kiel tro fokusita sur Okcidenta Eŭropo. Fakte ĉi tiun jaron ĉiuj taksas speciala pro la okazigo de la unua IJK ekster Eŭropo ekde 2017, io kio devus esti ordinara por vere tutmonda asocio.
+
+Buĝeteroj kiuj rilatas al universala agado suferis gravajn fortranĉojn. Merkatiko, Fonduso Trampolino kaj Kontinenta Agado, al kiuj pasintjare oni aljuĝis 3 700 eŭrojn, estis kunigitaj ene de ”rezerva fonduso” de 2 000 eŭroj. Retaj eventoj pasis de 1 050 al 250 eŭroj. Tiuj de la paroliga Junaj Amikoj kaj la simbolvalora Pasporta Servo estis rekte nuligitaj. ”Partoprenu IJK” estis leĝere malpliigita, de 6175 al 6000 eŭroj.
+
+Tio klare signifus malpli da transkontinentaj stipendiatoj, ĉar ofte malpli kostas vojaĝigi afrikanon aŭ amerikanon al Eŭropo ol al Sudorienta Azio. Dume aktivula trejnado, kiu ekde 2017 neniam okazigis fizikan eventon ekster Eŭropo, pasis de 1 000 al 2 000 eŭroj ĉi-jare.
+
+Tamen la plej atentokapta punkto temas pri tute nova linio nomata ”Kontribuo de UEA al dungitoj de TEJO”, de 22 000 eŭroj. Ĝi estas, miakomprene, la plej granda mondonaco farita de ajna Esperanto-organizo en pli ol jarcento da verda historio (kaj verŝajne de ajna planlingva asocio). Ĝis nun nenia informo estis komunikita pri tiuj demarŝoj. Fakte la buĝeto de UEA por 2025 ne mencias ĝin.
+
+La financoj de TEJO ĝenerale estas tro kompleksaj (tion diras homo, kiu prokrastege liveris neperfektan financan raporton) kaj certe paroli pri la dungostrategio de TEJO meritas apartan artikolon. Ĝi rilatas al la regnoj de la oficistoj, al iliaj bezonataj lertoj (evidente laŭ la asociaj planoj) kaj al la eŭropa subvenciaro, aparato kun multnombraj pulioj kaj takeloj. Krome malfacilas analizi ĝin, ĉar estas la unua fojo en kiu oni ne konas la elspezojn po fako. Nur tiom ni kredas scii, ke la monsumo plialtiĝos de 135 850 al 189 100 eŭroj.
+
+Mi simple diros ke mi tre ĝojas, ke la nuna estraro decidis atingi la nombron de kvin laboristoj, pliprofesiigante la movadon. Kaj evidente mi aplaŭdas, ke la du ĉefaj Esperanto-asocioj kunigas fortojn en ĉi tiu kampo. Sed ne eblas al mi eviti la jenan komparon: UEA anoncis, ke ĝi akompanos la donackampanjon por ”Partoprenu IJK” per maksimume 2 000 eŭroj, dum por subteni la dungitojn de TEJO ĝi dediĉas 11-oblon de tiu sumo. ”La sola vero estas la realo”, aristotele asertis generalo Perón.
+
+Iu povus pensi, ke ”Partoprenu IJK” estas simple ilo por plidiversigi la tutmondecon de la kongreso, sed estas pli ol tio. Sufiĉas surface kontroli la liston de gajnintoj por ekscii, ke pluraj inter ili decidis proponi sin kiel gvidantojn de la Junulara post tiu riĉiga vojaĝo. Kaj estas nenia sekreto, ke multaj estraranoj de UEA akiris spertojn kiel funkciuloj de TEJO.
+
+Do per tre simpla rezono oni povas alveni al la konkludo, ke malavara subteno de ”Partoprenu IJK” estas trafa, statistike bazita semo de ontaj respondeculoj, io kio mankas al ambaŭ organizoj, kies komitatoj, komisionoj kaj estraroj kutime havas pli da vakaj postenoj ol da kandidatoj.
+
+Mi ja estos tre dankema, se la estraroj de TEJO kaj UEA havigos pluajn informojn pri tiu grava aranĝo kaj sukcesos liveri kromajn, vere signifajn rimedojn por Partoprenu IJK . Sed eĉ pli dankemaj estos la junaj esperantistoj kiuj, post spertiĝo en Cisarua, redonos tiun apogon per vigla, longdaŭra engaĝiĝo al la movado.
+
+Patricio Agustín Iglesias
+
+
+---
+
+# Mondpopolo manifestiĝas
+
+**Published:** 2025-04-10
+
+**URL:** https://www.liberafolio.org/2025/04/10/mondpopolo-manifestigas/
+
+**Categories:** kulturo
+
+Ni devas transformi la nebulajn valorojn al uzebla filozofio, kiu fortikigos nian komunan identecon. Tion diras en intervjuo de Libera Folio Johannes Genberg, la aŭtoro de La manifesto de la mondpopolo. Li esperas, ke la teksto povos iĝi elirpunkto por alternativa rolo de Esperanto en la moderna mondo.
+
+En 2020 Johannes Genberg kreis novan socian retejon nur por esperantistoj, Mia Vivo . Nun li publikigis Manifeston de la mondpopolo , tekston en kiu li strebas formuli idearon por alternativa rolo de Esperanto.
+
+Laŭ la manifesto la tradiciaj esperantistaj organizaĵoj troviĝas en krizo, kaj ekzistas la risko, ke Esperanto fariĝos historia kuriozaĵo.
+
+”En la pasinteco, la tradicia movadaro prosperis pro kombino de du dominantaj vidpunktoj: Esperanto kiel strikte scienca/ekonomia komunikilo kaj Esperanto kiel kvazaŭ-mistikisma esprimo de profundaj idealoj de paco, gefrateco kaj komuneco”, la manifesto asertas.
+
+Tiel laŭ la manifesto malgraviĝis la idealoj ĝis ili iĝis nur sloganoj, kaj la esperanta identeco ligiĝis al ties sukcesoj kiel internacia aŭ helpa lingvo. Tio tamen fine rezultigis nenion.
+
+Anstataŭ revoj pri ia fina venko aŭ kontraŭbatalado de la angla lingvo, la manifesto proponas la ”zamenhofecajn principojn” de kosmopolitismo, egalismo, humanismo, demokratio, pacifismo, toleremo kaj diverseco.
+
+Libera Folio: Kio estas nova pri via manifesto? Alivorte, kiu estas la esenca diferenco disde similaj ideoj pli frue prezentitaj, interalie en la Manifesto de Raŭmo, kiun vi mem mencias?
+
+Johannes Genberg: – Se ni parolas specife pri la Raŭma manifesto, la diferenco estas, ke ĝi celas krei esperantan identecon baze de la koncepto, ke la esperantistaro estas kvazaŭ memelektita lingva minoritato. La Raŭma manifesto mencias konstruon de nova internacia kulturo, sed ne kia ĝi estu, krom kulturo de egaleca interkontaktiĝo. La Mondpopola manifesto, male, celas konstrui identecon baze de la nebulaj, sed samtempe por ĉiu verdulo konataj valoroj de gefrateco, paco, egaleco kaj tiel plu. Mi celas konkretigi tiujn valorojn kaj fari ilin filozofio, kiu riĉigas nian kulturon kaj la vivon de la individuo.
+
+– Se ni parolas pri pli fruaj ideoj, ekde la komenco de la ora epoko de Esperanto, oni facile trovas similaĵojn. Dum miaj studoj pri la historio de Esperanto, mi trovis multajn ekzemplojn de homoj, kiuj havis pli-malpli la samajn ideojn. Ne fanatikulojn en la periferio de la movadaro, sed eminentulojn kiel Hector Hodler, Edmund Privat, kaj ankaŭ la Majstro mem. Iliaj vortoj estas tre konataj en Esperantujo, jes, sed pro la evoluo de la movadaro oni ne plu traktas ilin serioze. Mi do tute ne pretendas esti iniciatinto de io nova, sed eble “retrovinto” de io malnova, kion mi nun volas revigligi.
+
+Kiu estas la publiko, kiun vi volas atingi per via manifesto? Ĉu temas nur pri homoj kiuj jam scipovas Esperanton?
+
+– Jes kaj ne. Mi celas la esperantistaron, ĉar ni jam ĉiutage spertas la lingvon kaj la esperantan kulturon. Mi pensas, ke eĉ malaprobantoj povas aprezi la enhavon kiel ion esperantecan kaj ne strangan vidpunkton por esperantisto. Sed mi ankaŭ esperas, ke se ĉi tiu idearo sufiĉe disvastigos, ĝi povas esti alloga por ankaŭ certaj ne-esperantistoj, dononte al ili alian kialon por interesiĝi pri Esperanto kaj nia kulturo.
+
+Kion konkretan entreprenu homoj kiuj aliĝas al viaj celoj kaj subtenas la manifeston?
+
+– La projekto estas en sia infaneco, do la unua paŝo estas kunigi tiujn, kiuj sentas sin inspiritaj de la manifesto kaj volas diskuti la sekvajn paŝojn. Ni devas transformi la nebulajn valorojn al uzebla filozofio, kiu fortikigos nian komunan identecon. Tio devas esti komuna laboro, kaj ĉies konstruema opinio gravas. Do, se vi samopinias, aŭ estas scivolema prie, mi invitas vin aliĝi al unu el la diskutogrupoj listigitaj en la retejo (en Telegramo kaj Mia Vivo).
+
+Kion vi celas dirante, ke la taŭgeco de Esperanto kiel internacia lingvo ”ne koncernas nin”?
+
+– Estas homoj, precipe freŝbakitaj esperantistoj, kiuj plendas pri tiu aŭ alia difekto de Esperanto, kaj ke tio malhelpas la adoptiĝon de Esperanto kiel la internacia lingvo. Laŭ mi, ili povas esti tute pravaj. Tiu aŭ alia difekto eble fakte estas problemo. Mi tamen dum la jaroj lernis aprezi Esperanton ekzakte tia, kia ĝi estas. Ne gravas, ĉu iu dirmaniero estas maltro internacia, ĉu iu gramatikaĵo estas tro arbitra aŭ ĉu io alia. Mi ne eĉ malŝatas la ”abomenan” ĥ-sonon. Ili ĉiuj, male, donas al Esperanto certan guston, kiun oni povas ĝui se oni ĉesas peni fari Esperanton ”perfekta internacia lingvo”.
+
+– Esperanto estas jam nia lingvo, kaj min ne interesas ties oficialiĝo fare de registaroj aŭ adopto fare de respektataj organizoj. Adopto estus bonvena, certe, sed ne plu prilaborinda, nek realeca, celo.
+
+Kial vi pensas, ke viaj celoj estas atingeblaj aparte bone ĝuste per Esperanto, kaj ne iu ajn alia lingvo?
+
+– Ne estas alia konstruita lingvo kiu estas tiel sukcesa kaj kun kiu ĉi tiuj celoj tiel bone kongruas. Kiun avantaĝon havus alia lingvo? Se mi decidus prezenti miajn ideojn per kaj por alia lingvo, mi esence devus refari pli ol cent jarojn da laboro por atingi la nunan staton de Esperanto. Se oni volas solvi problemon, la plej saĝa maniero estas esplori ĉu iu alia jam solvis ĝin.
+
+– Mi ankaŭ pensas, ke se mi ne estus esperantisto, ĉi tiuj ideoj neniam venus al mi. Esperanto kaj Esperantujo profunde influis mian pensadon dum la jaroj en maniero, kiun mi dubas ke alia lingvo povus fari.
+
+Ĉu estas pliaj homoj krom vi kiuj kunverkis la manifeston aŭ jam esprimis sian subtenon al ĝi?
+
+– La manifeston mi verkis sola. Mi montris ĝin al kelkaj homoj, kiuj afable donis al mi sugestojn kaj kritikojn. Kelkaj ne konsentis pri la enhavo (tion mi atendis), sed iliaj komentoj gvidis min reesprimi min pli klare. Tio helpis min multe. Kelkaj el ili diris, ke ili samopinias, kaj volas helpi min pri la projekto. Unu eĉ diris, ke li retrovis kialon por daŭre uzi Esperanton danke al la manifesto.
+
+– Dum la lastaj jaroj, mi pli kaj pli perdis mian emon uzi Esperanton, kaj lastjare mi decidis kabei. Tio estas, ĝis tiam, kiam ĉi tiu ideo pri manifesto aperis en mia kapo. La estingita fajro reflamis. Mi komencis verki la manifeston por helpi min vortigi miajn sentojn, kaj por trovi homojn kun similaj ideoj kaj emoj. Homojn, kiuj same kiel mi bezonas alian kialon por esti esperantistoj ol tiujn jam bone konatajn. Kun tiuj homoj mi volas kunlabori por evoluigi la koncepton de la Mondpopolo al io altvalora. Mi kredas, ke se mi ne estus esperantisto, ĉi tiu vizio neniam venus al mi. Kaj la ĝisnunaj respondoj sugestas, eĉ inter la kritikoj, ke en Esperantujo mi ne estos tute sola.
+
+Legu pli: La manifesto de la mondpopolo
+
+
+---
+
+# La komitato de TEJO denove rifuzis al Matúšov
+
+**Published:** 2025-04-16
+
+**URL:** https://www.liberafolio.org/2025/04/16/la-komitato-de-tejo-denove-rifuzis-al-matusov/
+
+**Categories:** TEJO, movado
+
+Post la samtempa eksigo kaj eksiĝo de la prezidanto, TEJO serĉis novan estraranon. Surprize, unu el la kandidatoj estis la eks-prezidanto mem, sed denove la komitato voĉdonis kontraŭ li. Plia polemiko okazis kiam unu kandidato asertis, ke seksismo malhelpas ties kandidatiĝon. Fine du novaj estraranoj estis elektitaj.
+
+La 23-an de februaro la komitato de TEJO voĉdonis por eksigi la prezidanton, Michal Matúšov (KuboF Hromoslav) pro lia ”malĝentila” kaj ”malrespekta” agado. Tiam Lucía Fernández Barrera ekanstataŭis lin kiel prezidanto kaj TEJO malfermis alvokon por nova estrarano, kiu plenumos la mandaton ĝis la 31-a de aŭgusto.
+
+Venis kandidatiĝoj de tri homoj, kaj pro tio oni proponis elekti du novajn estraranojn anstataŭ nur unu. La tri kandidatoj estis:
+
+Ana Ribeiro , 28, el Brazilo. Ŝi estis komitatano, membro de la elekta komisiono kaj vicprezidanto de Germana Esperanto-Junularo.
+
+Aleksandre Basque , 29, el Francio, kiu partoprenis kelkajn internaciajn renkontiĝojn sed ne havis postenon en TEJO.
+
+Ingryd Oliveira , 31, el Brazilo, kiu estis komisiito de TEJO.
+
+La motiviga letero de Oliveira estas iom nekutima, ĉar anstataŭ koncentriĝi je ŝiaj kapabloj, la letero grandparte esprimas malkontenton, ke ŝi kandidatiĝis pasintjare, sed ne ricevis respondon aŭ agnoskon de la komitato. Ŝi ankaŭ plendis pri iu TEJO-ano kiu provis uzi ŝin por kreskigi sian influon en TEJO:
+
+”Persono de TEJO venis al mi en telefonvoko por mencii mian kandidatiĝon kaj provis konvinki min kandidatiĝi por aliaj aferoj por propra persona intereso de tiu persono, por ke mi eĉ estu parto de skemo de ’homoj, kiuj estas liaj amikoj’, por ke tiu persono havu grandan influon ene de la Esperanto-movado kaj atingu instituciajn gajnojn per ĝi.”
+
+Laŭ la letero ŝi rifuzis, ĉar ŝi ” ne partoprenas en malpuraj planoj aŭ personaj ambicioj”.
+
+Sed mallonge antaŭ la limdato, aperis kvara kandidato – la eks-prezidanto Matúšov. Li skribis:
+
+”Ĉi-tempe la Estraro estas en malbona stato kiam plejparto de Estraranoj kontraŭas Komitatajn decidojn en Reglamentoj, disvastigas malveraĵojn, kaŝas veron, rifuzas klare diskuti pri problemoj por trovi solvojn kaj tiel endanĝerigas la reputacion kaj fidindecon de TEJO. Ni devas tion haltigi nun kaj revenigi TEJO-n al la pado de fidindeco kaj obeado de Komitato, kaj al ekuzo de vera strategia fokuso.”
+
+Li skribis ke li kandidatiĝas por la posteno de estrarano ”kun eblo esti Prezidanto, aŭ Vicprezidanto”. Lia vivresumo ne menciis lian ĵusan rolon kiel prezidanto de TEJO, sed asertis ke li estas ”kapabla labori en teamo”. Li samtempe kulpigas aliajn estraranojn pri sia eksigo, sed kredas ke la problemo estas iel solvebla:
+
+”Mi konscias, ke dum la lastaj monatoj aperis kelkaj problemoj, kaj pluraj homoj plendis pri mi. Plejparte tio estis kutimaj problemoj, kiuj okazas en organizoj kaj homgrupoj, kaj kiujn eblus relative facile solvi se oni prezentus la problemon konstrueme kaj pretus trakti ĝin. Bedaŭrinde tio plurfoje ne okazis, kaj al la Komitato fine venis draste mistordita versio, evidente ŝarĝita de fortaj emocioj, kiu iom rilatis al la vero, sed grandparte tute ne povus esti nomita vero.”
+
+Sed tiu ne estis la sola kandidatiĝo, kiu kaŭzis polemikon. Tyron Surmon, eks-prezidanto kaj nuna komitatano Ĉ, skribis al la komitato ke li ”forte kontraŭas” la kandidatiĝon de Ingryd Oliveira.
+
+”Miaj ĝisnunaj spertoj kun ŝi estis negativaj, kaj surbaze de tio (kaj ŝia motivletero mem) mi timas ke ŝia interhoma aliro kaŭzos problemojn ene de la Estraro. La sperto de la lastaj monatoj montris al ni kiom multe unu homo povas malbonetosigi la teamon, kaj konsidere kiom glate la nuna Estraro laboras, mi vere ne volas rompi tion.”
+
+Li krome klarigis ke ŝi ne ricevis respondon al ŝia kandidatiĝo pasintjare ĉar ŝi sendis ĝin pli ol unu monaton post la limdato.
+
+Oliveira defendis sin kaj sugestis ke ŝi ricevis kritikon pro seksismo:
+
+” Estas tre malfacile esti virino. Eĉ se virino ne faris eraron en ŝia vivo, ĉar mi ankoraŭ kredas, ke mi ne faris eraron en ĉiuj situacioj, kiuj okazis, ĉiu situacio, kiu ŝajnas esti eraro, estas markita, ĝi estas notita. Do mi petos pardoniĝi eĉ por eraroj, kiujn mi neniam faris, ĉar la socio volas tion, ke ni estu markitaj de eraroj, kiujn ni neniam faris.”
+
+Surmon diris ke la disputo okazis inter ŝi kaj la tiama estrarano de la komisiono (kaj nuna Ĝenerala Sekretario), Snehaĝa Venkatesh. Laŭ Surmon, Venkatesh ” neniel – eĉ iomete – agis malbone ” kaj diris ke Oliveira pro sia komunikstilo ne estus taŭga estrarano.
+
+En sia respondo, Oliveira kritikis Surmon, kiu ” atakas mian reputacion ”, kaj diris ke la disputo inter ŝi kaj Venkatesh estis malgranda kaj jam solvita. Ŝi ankaŭ pli forte kulpigis seksismon:
+
+”Virinoj devas paroli, ĉar la socio volas, ke ni restu silentaj. La socio metas barilojn por ke ni ne parolu, por ke ni ne estu elektitaj al postenoj de graveco… Do mi jam komprenis, kial mi ne estas bona kandidato por la estraro: mi estas tro homa (humana), tro aŭskultanta, tro kunlaboranta, ĉar se mi vidus iun superŝarĝitan de laboro, mi proponus mian helpon por helpi al la laboro esti finita, mi povas akordiĝi kun ĉiuj homoj kaj mia eniro en la estraron malpliigus skandalojn, ĉar mi ne estas toksika /tiele – red./ homo.”
+
+En lundo oni anoncis la rezultojn de la du voĉdonoj. Unue, oni voĉdonis (12 jes, 6 ne, 6 sindetenoj) por pligrandigi la estraron al ok homoj. Due, oni elektis Ana Ribeiro kaj Aleksandre Basque kiel la novajn estraranojn.
+
+Oni ne diris kiom da voĉoj ĉiu kandidato ricevis, nur ke Ribeiro estis la plej preferata, Basque la dua, Oliveira la tria kaj Matúšov la kvara.
+
+Robert Nielsen
+
+
+---
+
+# Islanda majstroverko dronis en kafo
+
+**Published:** 2025-04-22
+
+**URL:** https://www.liberafolio.org/2025/04/22/islanda-majstroverko-dronis-en-kafo/
+
+**Categories:** kulturo
+
+Granda taso da laktokafo malaperigis gigantan Esperantan tradukon de islanda Nobel-premiito. La tradukinto Baldur Ragnarsson forpasis kaj la teksto dum jaroj ŝajnis neretrovebla. Ulrich Becker tamen konservis la detruitan komputilon, kaj fine oni sukcesis ekstrakti el ĝi la dosierojn. Nun aperis en Esperanto ”Sonorilo de Islando” de Halldór Laxness, kaj eble aperos pliaj perditaj verkoj.
+
+Baldur Ragnarsson, kiu forpasis en la kristnaska tago de 2018 en la aĝo de 88 jaroj, estis unu el la pintaj poetoj en Esperanto, sed ankaŭ estrarano kaj vicprezidanto de UEA, membro de la Akademio de Esperanto – kaj tradukinto de multaj gravaj verkoj de la islanda literaturo. Krome li tradukis el Esperanto al la islanda.
+
+Unu el liaj plej gravaj tradukoj tamen riskis perdiĝi por ĉiam pro granda taso da kafo kun lakto. En unu el siaj lastaj retmesaĝoj al la eldonisto Ulrich Becker en junio 2016 Baldur Ragnarsson sendis la tradukon de la granda historia romano Sonorilo de Islando de la Nobel-premiita verkisto Halldór Laxness. La traduko poste dum jaroj ŝajnis eterne perdita.
+
+Jam pli frue, en 2007, la eldonejo de Ulrich Becker aperigis tradukon de alia konata verko de Halldór Laxness, Sendependaj homoj .
+
+– Sendependaj homoj temas pri la komplika, malfacila vivo de etaj farmistoj en Islando. Ĝi donas bildon pri la Islando de tiu tempo kaj la vivo de simplaj homoj, kiel oni trovas en multaj literaturoj pri siaj landoj, rakontas Ulrich Becker.
+
+Sonorilo de Islando laŭ li estas historia romano de multe pli grandioza naturo.
+
+– Ĝi traktas pli ol 20 jarojn de la lando, en tempo antaŭ ĝia sendependiĝo de Danio. La libro priskribas la mistraktadon de islandanoj fare de danaj regantoj.
+
+En la centro de la rakonto staras du figuroj. Unu estas farmisto, kiun oni akuzas pri ŝtelo kaj murdo, kaj kiu dum 20 jaroj provas pruvi sian senkulpecon. Li iras de instanco al instanco kvazaŭ islanda Donkiĥoto, kiu tamen luktas ne kontraŭ mueliloj, sed kontraŭ la islanda-dana justico.
+
+La alia ĉefpersono estas politikisto kaj kolektanto de kulturaj valoraĵoj el Islando, fakte bazita sur vera historia figuro.
+
+– La vivoj de tiuj du homoj interplektiĝas. Kaj la leganto sentas kaj ekkomprenas la longan vojon de la lando al sendependeco. Ĝi estas vera nacia literaturaĵo de alta valoro, diras Ulrich Becker.
+
+Sed tiu majstroverko ŝajne por ĉiam estis detruita, kiam li akcidente verŝis grandan tason da kafo kun lakto sur la klavaron de la tekokomputilo, kiu enhavis la manuskripton de la romano, kaj krome aron da ĵus alsenditaj manuskriptoj de Manuel de Seabra.
+
+– Li skribis nur, ke li havas la senton ke li devas sendi tiujn manuskriptojn kuŝantajn en lia komputilo al iu, kaj ĉar mi antaŭe publikigis unu el liaj romanoj ( Malamu vin, unu la alian ), li do sendis al mi. Temis pri ses dosieroj: prozaĵoj, poemoj kaj eseoj.
+
+Post la kafoakcidento la komputilo komplete ĉesis funkcii kaj neniel eblis eligi el ĝi la dosierojn.
+
+– Dum kelkaj monatoj, mi donis la tekokomputilon al diversaj amikoj kaj profesiaj riparistoj de tiaj aĵoj, sed ĉiuj tiam diris, ke nenio fareblas kaj la komputilo estas nur forĵetebla. Mi tamen ne emis fari tion, pro la literaturaj trezoroj en ĝi. Ĝi kuŝis dum jaroj en mia librobretaro.
+
+La aŭtoroj mem pro alta aĝo ne plu povis helpi restarigi la manuskriptojn, Ulrich Becker rakontas.
+
+– Bedaŭrinde nek Baldur nek Manuel plu respondis al miaj pluraj retmesaĝoj. Manuel mortis en 2017 kaj Baldur en 2018.
+
+Tamen fine montriĝis, ke ne ĉio en la detruita komputilo dronis en laktokafo.
+
+– Antaŭ kelkaj monatoj amiko menciis al mi ke li laboras en nova komputilriparejo proksime al mia loĝejo. Mi iom diskutis la aferon kun li, kaj li kuraĝigis min reprovi. La ejo reklamis, ke ili povas helpi, kie aliaj riparistoj ne povas. Mi pensis tion troigo. Tamen, post kelkaj semajnoj mi portis mian kompution tien, kaj je mia surprizo – sukceso! Mi ricevis USB-poŝmemorilon kun ĉiuj dosieroj.
+
+Rericevinte la perditan tradukon Ulrich Becker tuj kontaktis la literaturan agentejon en Islando, kiu antaŭ jaroj donis al lia eldonejo la rajtojn por la alia romano de Laxness.
+
+– Bonŝance la sama homo ankoraŭ laboris tie, kaj la kontrakto por “Sonorilo de Islando” estis rapide subskribita. Mi provlegis kaj publikigis. La verkoj de de Seabra bezonos pli longan tempon –  kiun mi nuntempe ne havas –,  ĉar liaj tekstoj ĉiam necesigas multe da redakta laboro.
+
+Ĉiukaze ne plu ekzistas la risko, ke neeldonitaj manuskriptoj estos detruitaj de kafolavango, Ulrich Becker certigas. Ekzemple tiuj de de Seabra nun estas konservitaj plurloke.
+
+– Bedaŭrinde, en tiu tempo, mi ne havis la kutimon ĉiutage krei duoblaĵojn en alia loko de ĉiuj dosieroj. Mi tion faris de tempo al tempo, tamen eĉ ne ĉiun monaton. Intertempe mi kompreneble lernis mian lecionon.
+
+
+---
+
+# Aŭtuna foliaro – poemo kiu kunligas
+
+**Published:** 2025-04-29
+
+**URL:** https://www.liberafolio.org/2025/04/29/autuna-foliaro-poemo-kiu-kunligas/
+
+**Categories:** kulturo
+
+István Szabolcs iniciatis kampanjon por traduki la poemon ”Aŭtuna foliaro” de Julio Baghy al multaj lingvoj. Laŭ li la poemo funkciu kiel ambasadoro de la Esperanta poezio, ĉar ĝi aparte bone reprezentas la Esperantan kulturon, pri kies ekzisto multaj ekster Esperantujo dubas. Ni petis lin rakonti, kial li elektis ĝuste tiun poemon, kaj kion li intencas fari per la kolektitaj tradukoj.
+
+Antaŭ kelkaj jaroj, mi legis en Libera Folio intervjuon kun la konata aŭstra verkisto Clemens Johann Setz. Li ricevis la plej grandan germanan literaturan premion en 2021 kaj li tradukis erojn el la ĉefverko de la Esperanta literaturo, La infana raso de William Auld, al la germana.
+
+Setz ne estas Esperantisto, sed li interesiĝas pri planlingvoj, kaj Esperanto fascinis lin. Li tute enamiĝis al la poemo ” Aŭtuna foliaro ” de Julio Baghy, kiun li deklamis Esperante dum renkontiĝo kun legantoj – verŝajne ne nur unufoje. La registraĵo de tiu naŭdek-minuta prelego jam ne atingeblas (mi naive ne elŝutis ĝin tiutempe), sed restas en mia memoro, ke li inspirite deklamis la poemon al sia aŭskultantaro Esperante – li eĉ ne bezonis traduki ĝin: la rimoj kaj ritmo parolis por si mem. Kvazaŭ ili ekzaltis lin – kaj pere de li, lian publikon – al jubilo.
+
+Tiu estis revelacia momento por mi. La poemo, kiel ambasadoro de lingvo kaj kulturo, estas laŭ mi evidentaĵo.
+
+Jam pasintsomere, kadre de agado de Eŭropa Esperanto-Unio (EEU) por bonvenigi la novajn eŭropajn parlamentanojn, mi persone donacis al la hungaraj deputitoj la poemon en la hungara, kun tre pozitivaj reagoj. Tiam eĉ Renato Corsetti konvinkiĝis pri la movada kaj informa utileco de poezio.
+
+Poste, en Aruŝo, dum mia prelego pri la Budapeŝta Skolo mi turnis min al la ĉeestantoj kun la ideo traduki la poemon nacilingven kaj tiel ekspluati ĝian movadan potencialon. Oni entuziasme akceptis la ideon, kaj per artikolo en la 7-a numero de la kongresa kuriero La Voĉo de Kilimanĝaro mi alvokis literaturŝatantojn tutmonde traduki la poemon.
+
+Mi konsideras min bonŝanca, ke ĉiuj komprenas kaj ŝatas ĝiajn temon, formon kaj poetikon. Tion pruvas la entuziasmo de la tradukintoj, inter kiuj troviĝas kelkaj elstaraj reprezentantoj de la Esperanta literaturo. Ili konatiĝis kun la celoj kaj fazoj de la tradukado, la entuziasmo devenas do ankaŭ el tiu fonto – kaj la elekto de la poemo praviĝis duoble – je movada celo kaj poezia valoro. Ankaŭ la kvalito de la tradukoj pravigas la elekton.
+
+La poemo estas mallonga, konsistanta el sep rimparoj po ok silaboj. Setz, artisto de la germana lingvo, verkis sian tradukon plejparte kun sep-silabaj versoj – perfekte! István Ertl kontaktis lin kaj li permesis uzi lian tradukon en ambaŭ fazoj de nia kampanjo.
+
+Al tio aldoniĝis la bonega franca traduko de la juna kongolanda poeto Jean de Dieu Kikako, eta majstraĵo – simbolo de sukceso de nia afrika strategio. Mi esperas, ke la franclingva Esperanto-komunumo helpos al li akiri ŝtatan stipendion en Okcidenta Eŭropo por pluaj studoj.
+
+Okaze de la Monda Tago de Poezio en Hungario mi sendis la tradukon kun la akompana letero al ĉiuj hungaraj deputitoj de Eŭropa Parlamento, al kelkaj de la landa Parlamento, al la ĉefurbestro de Budapeŝto kaj al urbestroj de kelkaj urboj, al cent iamaj ambasadoroj kaj ĉefredaktoroj, kelkaj oficistoj en ministerioj, kaj mi sukcesis aperigi artikolon en bona interreta ĵurnalo, kies ligilon mi povis meti en diversajn sociomediajn platformojn, klubojn.
+
+Ricevis la pakaĵojn en la malta kaj en la angla ankaŭ la prezidanto de la Eŭropa Parlamento, Roberta Metsola. Respondis reprezentanto de ŝia kabineto, grekino, kiu poste ricevis la grekan pakaĵon.
+
+La destino de la tradukoj estos, ke mi kolektos ilin en libron. Per la libro mi celas altrangajn funkciulojn de Unesko, kiuj ricevos ĝin dum la 43-a Ĝenerala Konferenco en Samarkando en novembro, kiel donacon de Unesko-reprezentanto de UEA.
+
+La dua fazo jam estas parto de la projekto por la Monda Tago de Esperanto – se ni ne akiros subtenon de almenaŭ unu membroŝtato, ĝi eble ne sukcesos. Mi laboras pri tio en Hungario. Antaŭ du jaroj, la prezidanto de la Nacia Unesko-Komitato ne tute rifuzis tion, sed iom sarkasme rimarkigis, ke tiu tago, la 26-a de julio, jam estas rezervita por la mangrovaj arbaroj…
+
+En postaj jaroj mi planas ekspluati la okazon por prelegi pri la tradukoj dum la Poliglota Konferenco, ekzemple en Graz en 2026, interage kun la partoprenantoj mem. Multaj similaj kaj diversaj ideoj povos sekvi la kampanjon ’Poezio kiu kunligas’.
+
+Ekde la komenco, Esperanto havas profundan ligon kun poezio: Zamenhof publikigis poemojn jam en la Unua libro en 1887. Ekde tiam la Esperanta literaturo, kun poezio ĉe la avangardo, konstante evoluis. La verkaro de gigantoj de la Budapeŝta Skolo, kiel Kalocsay kaj Baghy, levis Esperanton al nivelo egala al aliaj lingvoj ankaŭ en poezio.
+
+La Esperanta literaturo estas vasta mondo, kiu atendas esti malkovrita! Alvenis la tempo traduki la pintoverkojn de la Esperanto-literaturo nacilingven. Ni scias ke multaj eŭropaj politikistoj ankoraŭ opinias, ke Esperanto eĉ ne havas kulturon. La Eŭropaj politikistoj gurdadas tion, ni gurdadas niajn plendojn. Ni ĉesu fari tion kaj kaptu niajn ŝancojn!
+
+Ni devas traduki la gravajn verkojn de la Esperanta literaturo al naciaj lingvoj, prezenti ilin publike, publikigi ilin, eĉ surscenigi ilin. Ili estas valoraĵoj, kiujn ni devas proponi al la homaro. Ni devas ”produkti” aŭ ”konstrui” – tiu verbo esprimas pli bone la taskon: nian unuan Nobel-premiotan verkiston – nenio malpli!
+
+Kun la angla lingvo nun ni ne povas konkuri, mi tamen opinias, ke sur la kampo de kulturo ni ja havas ion por montri – kaj ankaŭ la devon tion fari.
+
+Forpreni de ni kaj de la popoloj de la mondo la kulturajn valorojn de Esperanto – inkluzive ĝiajn valorojn kiel pontolingvo kultura – tion oni ne povas, tion ni ne devas permesi. Jen niaj eblecoj kaj respondecoj.
+
+István Szabolcs Estrarano de EEU Komitatano A de HEA
+
+
+---
+
+# La estraro de UEA ne raportas
+
+**Published:** 2025-05-07
+
+**URL:** https://www.liberafolio.org/2025/05/07/la-estraro-de-uea-ne-raportas/
+
+**Categories:** UEA
+
+La estraro de UEA dum jaroj komplete neglektas sian devon regule raporti al la komitato pri sia agado minimume ĉiun duan monaton. Laŭ la prezidanto tia raportado, spite la regularon, pro teknika evoluo ne plu estas bezonata, kaj la devigo pri raportado tial estos forigita el la regularo.
+
+Komence de marto Patricio Agustín Iglesias, la antaŭa kasisto de TEJO, en vidpunkta artikolo en Libera Folio esprimis miron pri tio, ke laŭ la buĝeto de TEJO, UEA ĉi-jare neatendite kontribuos al la kosto de dungitoj de TEJO per la rekorda sumo de 22 000 eŭroj. Tiun informon li trovis en la buĝeto de TEJO, sed ial ne en la buĝeto de UEA.
+
+La informo vekis la interesiĝon de Rubén Sánchez, komitatano de UEA, kiu la 13-an de aprilo en la komitata diskutejo petis klarigon de la estraro. Ĉar ne aperis respondo, komitatano James Rezende Piton ripetis la demandon en la 17-a de aprilo, akcentante samkiel Patricio Agustín Iglesias, ke la mono estus pli bezonata por helpi junulojn el neriĉaj landoj partopreni la ĉi-jaran IJK-n.
+
+Ankaŭ li ricevis nenian respondon. Ĝenerale post la forpaso de Renato Corsetti, kiu estis la plej vigla diskutanto en la komitata retlisto, la aktivado tie nun atingis preskaŭan malrekordon: en aprilo 2025 aperis entute nur 11 mesaĝoj, inter kiuj estis la du senrespondaj demandoj al la estraro. En pli viglaj tempoj regule aperis pli ol cent mesaĝoj monate.
+
+Por certigi bonan informfluon el la estraro al la komitato UEA la 20-an de marto 2019 aldonis al sia ĝenerala regularo devigan paragrafon 16.4, laŭ kiu la estraro regule raportu pri ”decidoj, novaj iniciatoj kaj progreso de la laborplana plenumo”.  Tiujn raportojn la estraro devas sendi minimume ĉiun duan monaton.
+
+Pri la plenumo de la laborplano la estraro momente neniel povas raporti, ĉar UEA jam de pluraj jaroj ne havas strategian laborplanon – la antaŭa plano ĉesis validi en 2017.
+
+Spite multvortajn diskutojn kaj solenajn deklarojn nova plano ĝis nun ne estis aprobita, kaj eĉ ne malneto de tia plano estis prezentita. Tamen supozeble la estraro ja faris decidojn kaj lanĉis iniciatojn, pri kiuj ĝi devus povi raporti.
+
+La unua estraro de Duncan Charters estis elektita en 2019, kiam ekvalidis la nova paragrafo pri devigaj raportoj al la komitato. Tiu estraro dum sia oficperiodo efektive liveris raportojn, tamen ne tiel regule, kiel la regularo postulas.
+
+Nur la unua raporto koncernis dumonatan periodon. La dua kaj tria temis pri trimonataj periodoj. La kvara ”dumonata raporto” temis pri naŭ monatoj, la kvina pri tri monatoj, kaj la sesa denove pri naŭ monatoj. Pri la lastaj monatoj de sia oficperiodo la unua estraro de Duncan Charters tute ne raportis en la formo postulata de la regularo.
+
+La nuna, dua estraro de Duncan Charters estis elektita en 2022. Restas nur tri monatoj de ĝia trijara oficperiodo, sed ĝis nun ĉi tiu estraro ne liveris al la komitato eĉ unu dumonatan raporton.
+
+Libera Folio turnis sin al prezidanto Duncan Charters por demandi, ĉu la mankantaj raportoj tamen estis liveritaj al la komitato en iu sekreta forumo kaj se ne, kial la estraro neglektas sian laŭregularan devon pri dumonataj raportoj.
+
+Laŭ Charters, tia raportado ne plu estas bezonata, kaj tial la devigo estos forigita:
+
+– Pro evoluo de virtualaj Komitatkunsidoj, nia raportado okazas interage kaj ankaŭ per Gazetaraj Komunikoj kaj pli da informado en la revuo Esperanto. Estas antaŭviditaj ĝisdatigoj en nia statuto kaj regularo por speguli la nunajn cirkonstancojn.
+
+Krome ni scivolis, ĉu la estraro intencas respondi al la demando de Rubén Sánchez pri la pago de 22 000 eŭroj al TEJO. Prezidanto Charters respondis jene:
+
+– UEA escepte subtenas al la IJK finance pro la graveco apogi agadon en Azio.  La 22 000 eŭroj ne estas donaco al TEJO, sed venas de la Administra Subvencio de UEA kiu pagas dungitojn por servoj al UEA.
+
+
+---
+
+# Ĉu UEA silente entombigas la retejan projekton?
+
+**Published:** 2025-05-13
+
+**URL:** https://www.liberafolio.org/2025/05/13/cu-uea-silente-entombigas-la-retejan-projekton/
+
+**Categories:** UEA, movado
+
+Jam dum jaro UEA nenion faras pri sia grandioza projekto de nova administra sistemo kaj retejo, Akso. La prioritata projekto estis komencita en 2013 kaj estis elspezitaj pli ol 100 000 eŭroj, sed nun ĉio kuŝas forgesita. Tamen baldaŭ oni trovos respondeculojn, promesas prezidanto Charters.
+
+Dum jaroj la nuna estraro de UEA puŝas antaŭ si la projekton Akso, kiu nun ŝajnas komplete forlasita. La lastaj malgrandaj redaktoj de la sistemo okazis en aprilo 2024, proksimume kiam UEA akceptis repreni la projekton de TEJO kaj finpagi la fakturon.
+
+La komitato de UEA en 2013 decidis uzi 100 000 eŭrojn por kompleta renovigo de la retejo. La laboro efektive estis komencita nur en 2017, kaj la unua provo fiaskis. Nova, pli ambicia provo, nun sub la nomo ”Akso”, kunlabore kun TEJO, estis komencita en 2019. La celo estis renovigi ne nur la retejon, sed la tutan administran sistemon de UEA.
+
+Por financi la projekton, krom la 100 000 eŭroj el la kapitalo de UEA, estis uzitaj ankaŭ rimedoj el administra subvencio de Eŭropa Unio, kiun TEJO ricevis por oficistoj kiuj okupiĝis pri Akso. Laŭ la kontrakto inter TEJO kaj UEA la preta sistemo devis esti liverita en novembro 2020, sed tio ne okazis.
+
+Fine en majo 2023 preskaŭ preta, funkcianta versio de la sistemo estis prezentita al UEA, sed la gvidantoj de la asocio ne trovis ĝin kontentiga kaj ne rapidis akcepti la liveron. Parto de la problemo ŝajne estis, ke dum la paso de la tempo la bezonoj de la asocio ŝanĝiĝis, sed TEJO liveris tion, kio estis mendita.
+
+Mankis en la sistemo librotena sistemo kaj sistemo por la libroservo, kiujn UEA neniam mendis. La respondeculoj ĉe TEJO frustriĝis, ĉar UEA ne klare diris, kio plia necesus, por ke Akso efektive estu akceptita, sed daŭre nedecideme prokrastis la aferon.
+
+La komitato de UEA dum la UK en Torino komence de aŭgusto 2023 decidis, ke la estraro ĝis la fino de la monato en iu aŭ alia maniero konkludu la aferon pri reteja renovigo kaj decidu pri la nova administra sistemo. Tio tamen ne okazis.
+
+Anstataŭe en septembro la komitato en reta kunsido konsentis denove prokrasti la aferon, ĉi-foje ĝis januaro 2024. Tiam TEJO insistis, ke UEA pagu por la farita laboro, kaj en februaro la estraro de UEA fine konsentis tion fari. Poste nenio plia okazis.
+
+En majo 2024 prezidanto Duncan Charters responde al demando de Libera Folio skribis:
+
+– La Estraro de UEA konscias, ke AKSO kaj la Libroservo estas esence gravaj agadkampoj por la Asocio. Ni raportos al la Komitato kaj specifan progreson kaj kompletigon aŭ finsolvon de problemoj en niaj nunaj iniciatoj, laŭ la respondeco komuniki unuavice en niaj propraj organoj.
+
+Dum la Universala Kongreso en Aruŝo en aŭgusto 2024 la komitato eksciis, ke UEA fine planas funkciigi la administran sistemon Akso ”per sistemo de volontuloj kaj laborgrupo”. Tio ne okazis.
+
+Same ne estis dungita la aldona kunlaboranto por finprepari la novan sistemon por uzo, pri kiu parolis la ĝenerala direktoro Martin Schäffer en decembro 2024, kiam estis akceptita la buĝeto de UEA en decembro 2024. En januaro 2025 ĝenerala sekretario Aleks Kadar respondis al demando pri la dungoplano en la Telegram-kanalo de UEA:
+
+– Ni ricevis kelkajn kandidatiĝojn. Koran dankon al tiuj kandidatoj.
+
+Poste malmulto okazis kaj la demando ne reaperis. En la komitata retpoŝta diskutejo Akso entute ne estis menciita post aŭgusto 2024, kiam la vorto aperis en resumo de la rekomendoj de la komitata forumo.
+
+Komence de majo, kiam Libera Folio refoje starigis al la estraro de UEA demandon pri la aktuala stato de la reteja renovigo kaj nova administra sistemo, prezidanto Duncan Charters tamen respondis:
+
+– Kunlabore kun TEJO, UEA baldaŭ intervjuos kandidatojn por tri funkcioj: konfirmi la pretecon de la sistemo AKSO, konsultiĝi laŭbezone pri komplikaj demandoj, kaj plej grave, akompani la oficistojn en la transiro.
+
+Do, formale la projekto ankoraŭ ne estas entombigita, sed la manko de videbla progreso ŝajnas indiki, ke ĝi iom post iom estos forgesita.
+
+Kaj la libroservo, la alia ”esence grava agadokampo”, laŭ prezidanto Charters?
+
+La komitato de UEA en septembro 2021 decidis, ke la libroservo translokiĝos al Slovakio, sed poste nenio okazis. Fine de la jaro 2022, kiam Ionel Oneț, la multjara prizorganto de la libroservo en Roterdamo, devus emeritiĝi, UEA petis ke li provizore, dum ”transira periodo”, tamen restu en sia posteno.
+
+Post tio observeblas neniuj novaj evoluoj pri la esence grava agado. La ”transira periodo” plu daŭras, kaj tute ne klaras, al kio aŭ kien transiras la libroservo.
+
+–  La Libroservo funkcios normale kun la nuna libroservisto ĝis la jarfino. Se necesos transiro de la servo el Roterdamo, tio estos zorge planita laŭ decido pri la plej bona alternativo, Duncan Charters respondas al demando de Libera Folio .
+
+
+---
+
+# Tokipona – bona lingvo por bonlingvistoj
+
+**Published:** 2025-05-20
+
+**URL:** https://www.liberafolio.org/2025/05/20/tokipona-bona-lingvo-por-bonlingvistoj/
+
+**Categories:** kulturo
+
+La subtenantoj de bonlingvismo volas limigi la kvanton de neologismoj en Esperanto kaj igi la lingvon malpli eŭropcentra. Pli radikala estas Tokipono – lingvo, kiu uzas maksimume 140 vortojn kaj devigas la parolantojn funde pripensi, kion ili fakte volas diri. Ni petis la iniciatinton de la lingvo kaj kelkajn uzantojn rakonti, kiel ĝi diferencas de Esperanto.
+
+Tokipono estas lingvo, kiu ekzistas de baldaŭ 25 jaroj. Ĝin elpensis esperantisto, kaj almenaŭ komence la plej multaj parolantoj estis esperantistoj. Tamen surprize en reta diskuto pri lingvoj aperis lerninto de Tokipono , kiun surprizis la fakto, ke estas eldonataj libroj en Esperanto.
+
+– Mi ne sciis, ke tio ekzistas, miris François, poligloto, kiu dum multaj jaroj laboris ĉe diversaj EU-institucioj.
+
+Tokiponon li hazarde malkovris en la reto, kaj tuj ekpensis, ke ĝi estus ideala lingvo por instrui en ĉiuj lernejoj de Eŭropa Unio. Diference de pli ordinaraj planlingvoj kiel Esperanto, Tokipono laŭ li vere estas facile lernebla sendepende de la lingva fono de la lernanto.
+
+– Dum la tempo kiun mi bezonus por lerni Esperanton mi povus lerni la polan, kaj ĝin mi vere povus uzi en mia profesia vivo ĉiutage. Sed pri Tokipono la aferoj statas tute malsame. Pro la limigita vortprovizo, 120 vortoj, eblas pli-malpli lerni ĝin dum semajnfino, se oni studas intense.
+
+Efektive estas iom pli da vortoj en Tokipono – dum la jaroj kiuj pasis post la publikigo de la unua libro estis enkondukitaj dudeko da neologismoj. Ne ĉiuj uzantoj de la lingvo tamen akceptas ĉiujn tiujn, do ankaŭ Tokipono havas siajn bonlingvanojn, kiuj preferas resti laŭeble proksime al la originaj 120 vortoj, kaj radikalulojn, kiuj uzas ĉiujn 140 vortojn.
+
+Por vere uzi la lingvon ne sufiĉas nur koni la vortojn, kaj necesas pli da tempo, sed almenaŭ unuavide la lingvo aspektas facila, preskaŭ kiel ludo, François diras.
+
+– Kompreneble Tokipona ne nepre donas ĉiujn nuancojn, sed imagu povi veturi kien ajn en Eŭropo kaj povi interkompreniĝi! Tial Tokipona estas mia amata ĉevaleto, sed miaj kialoj lerni ĝin verŝajne ne estas tre reprezentaj. Multaj homoj lernas ĝin, ĉar tio estas facila kaj rapida, kiel personan defion, sed poste bedaŭrinde ne multe uzas ĝin por io ajn.
+
+Evidente do ne plu veras la antaŭjuĝo, laŭ kiu ĉiuj tokiponistoj estas ankaŭ esperantistoj. Laŭ Sonja Lang, la iniciatinto de Tokipono, dum multaj esperantistoj ne konscias pri la relative vasta uzo de Tokipono ĉefe en la reto, same multaj junaj tokiponuloj ne scias pri la vasta uzo de Esperanto.
+
+– Tria grupo parolas ambaŭ lingvojn, aktivas en ambaŭ komunumoj kaj vidas la plenan pejzaĝon por kunlaborado kaj kunekzistado. Ni strebas malfermi la pordojn en ĉiuj direktoj, por ke ĉiuj estu bonvenaj en ĉiuj aliaj lingvaj komunumoj. Ni estas geamikoj kaj neniel rivaloj. Ni deziras fortigi kaj subteni unu la alian.
+
+Kial kaj kiel estiĝis Tokipono?
+
+– Mi delonge uzas Esperanton kaj studis multajn lingvojn. Tokipono naskiĝis en 2001 dum malbonfarto. En mia menso spontanee kunformiĝis eroj el diversaj lingvoj kaj ideoj. Por esprimi kaj sanigi mian animon, io interne pelis min skizi mapon por kodi la maksimumon per la minimumo: nur 120 vortoj, facilaj sonoj kaj bazaj reguloj. Mi ludeme meditis pri la vivo kaj serĉis vidi la tutaĵon koncize.
+
+– Post montro de la malneto en la reto rapide aperis parolantoj. Mi neniel celis anstataŭigi internaciajn lingvojn, sed nun dekmiloj ĝuas Tokiponon por diversaj celoj. La ISO-komitato rimarkis tiun kreskantan kaj ampleksan uzon kaj klasifikis ĝin kiel mondan lingvon. Universitatoj proponas kursojn kaj invitas min. La vigla Tokiponularo floras kiel amikeca najbarino de Esperanto.
+
+Kiel do diferencas la uzantaroj de la du lingvoj? Por doni pli vastan perspektivon Sonja Lang respondis ne nur mem, sed petis komentojn de aliaj uzantoj de Tokipono.
+
+– Komence Esperanto kunligis popolojn, dum Tokipono simpligis ideojn. Ĝi celis esti ne “la monda lingvo” sed pensiga kaj helpa lingvo por esplori la menson. Hodiaŭ multaj lernas pro scivolo kaj trovas viglan komunumon kun muziko, rakontoj kaj babilado, diras Chris Elliott el Novzelando. En la tokipona komunumo Chris Elliott estas konata kiel jan Minasa.
+
+– Multaj japanoj sentas malfacilecon lerni la anglan, kaj aliajn eŭropajn lingvojn, inkluzive Esperanton. Malsimilas ne nur lingvoj mem, sed ankaŭ pensmanieroj inter okcidento kaj oriento. Tokipono donas al ni ĉiuj pli simplan kaj komunan pensmanieron, diras Namba Fumiharu, en Tokipono konata kiel jan Osame.
+
+– Se mi volas klarigi al aliulo sentojn, kiuj okazas en mi, mi uzas Tokiponon, kiu per siaj vortoj klaraj sed vastaj faciligas tian komunikon. Aliflanke, Esperanto disponigas multajn rimedojn por envortigi ĉiajn pensojn, kaj mi uzas ĝin por esprimi tiujn, diras Preston Miller Firestone (jan Peton).
+
+La vorto “jan” en Tokipono signifas “persono”, kaj estas uzata ankaŭ por indiki ke la sekvanta vorto estas propra nomo. Majuskloj estas uzataj nur por propraj nomoj, ne komence de frazoj.
+
+– Malgraŭ iliaj diferencoj, mi observas ke multaj Tokiponuloj estas ankaŭ esperantistoj aŭ volas esperantistiĝi. Antaŭ kelkaj monatoj, mi kaj kelkaj amikoj kreis Discord-grupeton, ĉar ni ĉiuj individue ekvolis lerni ĝin. Bonvolu instrui al ni! diras Ethan Corgatelli, en Tokipono konata kiel jan Itan.
+
+Por esperantistoj kiuj volas lerni Tokiponon ne mankas lerniloj . La lingvo uzas limigitan version de la latina alfabeto – dum Esperanto aldonis proprajn literojn, Tokipono simpligis la sonsistemon kaj rezignis pri sonoj, kiujn parolantoj de diversaj lingvoj trovas malfacilaj.
+
+Dum la gramatiko de Esperanto, kvankam simpligita kaj reguligita, ĝenerale kopias la strukturon de eŭropaj lingvoj, Tokipono funkcias en tute alia maniero. La vortoj ne ŝanĝiĝas kaj ne ekzistas ekzemple tempoformoj de verboj.
+
+Por esprimi konceptojn por kiuj ne estas baza radiko, oni libere kombinas kaj kreas la signifojn laŭbezone. Tiel por “kokino” ofte povas sufiĉi diri waso (birdo). Se necesas klarigi pli precize, eblas diri ekzemple waso sike (ovobirdo).
+
+– Temas pri la plej kerna parto de la Tokipona funkcio. La pli longaj manieroj ne estas tiel ofte bezonataj en realaj situacioj kiel komencantoj supozas. Ili ne estas fiksitaj en vortaroj kvazaŭ novaj vortoj por parkerigi. Kiel en ĉiuj lingvoj, fluaj parolantoj scipovas kunmeti la ĝustan kvanton de informoj laŭ la vera kunteksto kaj normala gramatiko, Sonja Lang diras.
+
+Iom surpriza detalo de Tokipono estas, ke spite la strebon al simpleco la lingvo havas plurajn skribsistemojn. Krom la ordinara latina alfabeto oni povas uzi ideogramojn, unu por ĉiu vorto.
+
+– Du skribsistemoj populariĝis. Por multaj estas plej facile tajpi per la latina alfabeto. 73 procentoj de Tokiponuloj scipovas Sitelenponon, kies skribosignoj pli fidele montras kaj memorigas la signifojn. Ni ĵus fondis la Asocion de sitelenponaj eldonistoj kaj tipografoj por kunlabori pli proksime kun Unikodo, Sonja Lang rakontas.
+
+Ĉu veras, ke Tokipono ne havas simplan manieron esprimi grandajn ciferojn? Kial? Ĉu tio ne sen neceso limigas la uzojn de la lingvo?
+
+– Tio estas ofta miskompreno aŭ eksdata ideo laŭ la skizo por komencantoj en 2001. La sistemo funkcias adicie: wan (1), tu (2), luka (5), mute (20),  ale (100). Por grandaj nombroj oni multobligas 100 kaj do kutime skribas MAML por 2025 (20-oble 100 plus 20 plus 5). Multaj preferas kuntekstajn indikojn, ekzemple “sufiĉe da” aŭ “tro multe da”, anstataŭ supozi ke la amiko komprenos la pragmatikan diferencon inter ekzemple 78 tigroj kaj 79 tigroj en la reala parolsituacio.
+
+Kiel vi mem vidas la diferencojn de la du lingvoj kaj komunumoj, Esperanto kaj Tokipono?
+
+– Ĝenerale Tokiponuloj estas junuloj aktivaj en la reto. Valoras al ili la rolo de ne-eŭropaj lingvoj kaj arto. En planlingvo ili serĉas eblecojn por seksa neŭtraleco kaj signado kun surduloj. Ĝenerale Esperantistoj uzis la lingvon pli longe, havas monon por vojaĝi kaj ĝuas grandegan libraron.
+
+– Persone mi ŝatas ambaŭ lingvojn por amikiĝi, krei verkojn, vojaĝi kaj ĝui muzikon. Do la celoj similiĝis por mi. La du etaj komunumoj en la mondo estas bonetosaj laŭ la principoj de raŭmismo kaj lingva diverseco. Mi helpas tokiponulojn lerni Esperanton kaj inverse.
+
+Legu pli: La oficiala retejo de Tokipono en Esperanto
+
+Legu pli: La bona lingvo
+
+
+---
+
+# TEJO serĉas redaktoron por Kontakto
+
+**Published:** 2025-05-26
+
+**URL:** https://www.liberafolio.org/2025/05/26/tejo-sercas-redaktoron-por-kontakto/
+
+**Categories:** TEJO, movado
+
+Post iom malpli ol du jaroj kiel redaktoro de la revuo Kontakto , Karina Oliveira anoncis, ke ŝi forlasos la postenon. Ŝi tamen plu redaktos la revuon ĝis TEJO trovos novan respondeculon.
+
+Post Rogener Pavinski, kiu redaktis la revuon de TEJO dum pli ol jardeko, de 2010 ĝis 2021, malfacilas trovi same persistajn redaktorojn.
+
+En 2021 la torĉon transprenis Paweł Fischer-Kotowski el Pollando. Li en majo 2023 ricevis laborpostenon ĉe la Nederlanda Reĝa Biblioteko, kaj baldaŭ devis rezigni pri Kontakto .
+
+En aŭgusto 2023 estis elektita lia posteulo, Karina Oliveira el Brazilo.
+
+La 1-an de majo ŝi anoncis en cirkulero sendita al ĉiuj kunlaborantoj, ke ŝi decidis forlasi la postenon, ĉar la redaktado postulas tro multe da tempo, kiun ŝi volas dediĉi al aliaj aferoj en sia vivo.
+
+“Ĉi-semajne mi informis tion al TEJO kaj UEA kaj petis ke ili ekserĉu novan redaktoron. Mi pretas ankoraŭ resti dum iom da tempo, verŝajne mi pretigos 2 aŭ 3 numerojn antaŭ la ŝanĝo, tio dependos pri kiom rapide ili trovos iun novan personon por la posteno”, ŝi skribis.
+
+La 19-an de majo TEJO publikigis en sia retejo alvokon kandidatiĝi por la posteno. Kandidato havu sperton pri redaktado kaj estu sperta esperantisto kiu bone jam bone konas la movadon. La redaktoro superrigardu la produktadon de ses numeroj jare, mem verku artikolojn kaj aktive serĉu kunlaborantojn.
+
+La proponata honorario estas 550 eŭroj por ĉiu numero, alivorte 275 eŭroj monate, do evidente ne temas pri tuttempa posteno, krom se la redaktoro loĝas en lando kun tre malaltaj vivokostoj.
+
+Kandidatoj prezentu planon por la revuo kaj kvar diversajn temojn por montri siajn ideojn. Kandidatiĝoj estu senditaj ĝis la 15-a de junio, kaj la nova redaktoro estu preta eklabori jam en julio, do temas pri tre rapida procedo.
+
+
+---
+
+# Verko de malaperigita esperantisto ĉe Netflix
+
+**Published:** 2025-05-28
+
+**URL:** https://www.liberafolio.org/2025/05/28/verko-de-malaperigita-esperantisto-ce-netflix/
+
+**Categories:** kulturo
+
+La argentina esperantisto Héctor Oesterheld ekde la 1950-aj jaroj kreis la bildstrian rakonton El Eternauta pri civitana rezisto kontraŭ ekstertera invado. La komikso nun iĝis tutmonde furora televidserio. Oesterheld mem kaj preskaŭ lia tuta familio post la militista puĉo en 1976 estis kaptitaj de la polico kaj mortigitaj aŭ malaperigitaj.
+
+Fine de aprilo aperis en la elsenda servo Netflix nova televida serio produktita en Argentino: La Eternaŭto (El Eternauta). Tiu ĉi sukcesa filmaro prezentas scenaron en kiu ekstertera invado manifestiĝas per la apero de iuspeca toksa neĝo, kontraŭ kiu organiziĝas rezisto de grupo de civitanoj, gvidataj de veterano, kiun ĉefrole ludas  la fama aktoro Ricardo Darín.
+
+La rakonto baziĝas sur komikso samnoma, kiu naskiĝis en la 1950-aj jaroj. La scenaro estis kreaĵo de Héctor Oesterheld, kaj la unua desegnisto estis Francisco Solano, ambaŭ prestiĝaj profesiuloj de la latinamerika bildstria kulturo. La sukceso de la komikso kondukis al postaj sekvaĵoj de la rakonto, foje kun aliaj kunlaborantoj, kaj jam pasintece ekzistis provoj krei filman version.
+
+Tiuj planoj estis forte kondiĉitaj de la politikaj cirkonstancoj de la tiuepoka Argentino, kun la altiĝo de la politikaj streĉoj kaj la potencpreno fare de militista junto en 1976. Solano devis ekziliĝi, sed pli akra estis la sorto de Oesterheld.
+
+Tiu ĉi fariĝis membro de armita grupo de la maldekstra peronismo , konata kiel Montoneros, kaj li devis kaŝiĝi post la militista puĉo. Li ankoraŭ prezentis scenarojn de La Eternaŭto dum sia subtera agado, sed en 1977 li estis malkovrita, malliberigita, kaj, post daŭra torturado, li estis malaperigita. Oni neniam trovis liajn restaĵojn.
+
+Ankoraŭ pli terura estis la sorto de lia familio: li havis kvar filinojn, kiuj same aktivis en maldekstremaj movadoj. Ĉiuj kvar, kaj ankaŭ la paruloj de tri el ili, estis forkaptitaj de la policaj aŭ militistaj fortoj, kaj ĉiuj estis mortigitaj. La edzino de Oesterheld, Elsa Sánchez, ricevis la restaĵojn nur de unu el ili. Kaj ŝi ankaŭ devis zorgi pri du malgrandaj nepoj, unu el kiuj estis redonita el kaptiteco, en kiu li povis unu fojon vidi sian avon.
+
+Sed kvazaŭ tio ne estus sufiĉe terura, du el la filinoj estis gravedaj, kaj nenion oni scias pri la sorto de la beboj probable naskiĝintaj dum ilia kaptiteco. Oni suspektas ke ili estis kaŝe venigitaj al aliaj komplicaj familioj, kiuj adoptis ilin kiel proprajn, kiel ofte okazis en tiu tempo.
+
+Kiu estas la rilato al Esperanto? Héctor Oesterheld estis esperantisto.
+
+Antaŭ kelkaj jaroj mi menciis la aperon de anonco en la revuo La Juna Vivo , en 1940, per kiu la juna Oesterheld, tiam studento pri geologio, petis korespondamikojn.
+
+Esperanto estis menciita en intervjuo de lia vidvino en la argentina ĵurnalo La Nación en 1997, en kiu ŝi asertis ke li legis esperantajn librojn kaj ke en liaj historioj evidentiĝas esperantistaj idealoj. La revuo Esperanto eĥis tiun sciigon post publikigo en loka bulteno.
+
+Bedaŭrinde oni ne povas trovi spurojn de tiu agado, ĉar lia arĥivo estis forprenita kune kun li mem fare de la armea diktaturo.
+
+Pro la apero de la filmo, oni denove parolas en Argentino pri lia sorto kaj tiu de lia familio, kaj la asocioj de familioj de murditoj kaj malaperigitoj de la diktaturo lanĉis novan kampanjon por instigi esplorojn por retrovi la restaĵojn de la murditoj kaj enketon pri la sorto de la du nepoj – kiuj nun estus proksimume en la aĝo de 48 jaroj kaj verŝajne ne konas sian veran devenon.
+
+Kaj revenis al la aktualo, valida pli ol iam, la moto de la verko: “Neniu saviĝas sola”.
+
+José Antonio del Barrio
+
+
+---
+
+# Murdita esperantisto honorata en Majorko
+
+**Published:** 2025-06-02
+
+**URL:** https://www.liberafolio.org/2025/06/02/murdita-esperantisto-honorata-en-majorko/
+
+**Categories:** kulturo
+
+En oktobro 1936, komence de la interna milito en Hispanio, en Majorko estis murdita la komunista esperantisto Josep Salom Nadal. En sabato memore al li estis inaŭgurita “stumbliga ŝtono” – surstrata memortabuleto kun lia nomo antaŭ la domo, kie li loĝis.
+
+Sabate la 31-an de majo oni inaŭguris en Pla de Na Tesa (Majorko) stumbligan ŝtonon omaĝe al Josep Salom Nadal. Lastatempe multobliĝis tiaj inaŭguroj rilataj al homoj murditaj dum la hispana milito (1936–1939), kaj ankaŭ multajn amastombojn oni malfermis, kaj analizis kadavrojn nur por honore redoni ilin al iliaj familianoj. Temas pri homoj murditaj antaŭ preskaŭ naŭdek jaroj.
+
+Taŭgas memorigi ke Majorko tuj ekde la komenco de la milito falis en la flankon de faŝistoj. Tre kompreneble, ne facilas eskapi el insulo. Pro tio, persekuto de maldekstruloj, aŭ simple de homoj kontraŭ kiuj la puĉistoj havis personan malamikecon, okazis sisteme en vilaĝo post vilaĝo, kvartalo post kvartalo dum la tri jaroj de la milito okazanta en la lando, kaj kompreneble ankaŭ poste.
+
+Malmultas familioj en la insuloj kie ne estis viktimoj aŭ kulpuloj… aŭ ambaŭ. Pro tio, kaj certe ankaŭ pro la efiko de la diktaturo (1936-1975) kaj de la politika sistemo konstruita sur ĝi poste, nur antaŭ nelonge la silento krevis.
+
+Tiun sunan kaj jam varman matenon de majo ariĝis antaŭ la domo kie iam loĝis Josep Salom Nadal, kaj kie nuntempe loĝas lia nepino Aina Salom, kvindeko da najbaroj, familianoj, politikistoj… kaj ankaŭ membroj de la Majorka Esperantistaro.
+
+Estis paroladoj de la nepino, de la urbestro de Marratxí, kaj de Xavier Margais.
+
+Xavier Margais doktoriĝis en 2002 per la impona tezo El moviment esperantista a Mallorca (1898-1938) , per kiu li fajne rakontas la eksterordinaran forton de la movado en la insulo antaŭ la milito kaj la kruelecon de la persekuto dum ĝi.
+
+– Tuj post la faŝisma puĉo de 1936, vidinte kiel ŝoseajn fosaĵojn, torentojn kaj tombejon plenigis kadavroj de maldekstruloj, aŭ simple de homoj ne apogintaj la puĉon, li decidis sin kaŝi ene de akvujo. Tamen eble pro denunco oni trovis kaj murdis lin la 9-an de oktobro 1936. Li estis tridek naŭ jarojn aĝa. Du tagojn poste oni trovis murdita ankaŭ Sebastià Crespí, eksan prezidanton de la Esperantista Klubo Palma, membron de Esquerra Republicana Balear [maldekstra politika partio], kiu estis nur unu jaron pli juna ol Josep Salom, Xavier Margais rakontis.
+
+Li rememoris, ke li jam en 1997 renkontis la nepinon de Josep Salom:
+
+– Ŝi volis montri al mi la korespondadon en Esperanto de sia avo. Vera donaco tio estis! Mi prenis la paketon kaj tuj alveninte hejmen, mi malfermis kaj rigardis ĝin kaj miris pri ĝia enhavo kun profunda emocio.
+
+Neniu pli taŭgus ol Xavier Margais por klarigi al tiuj homoj la gravecon de la omaĝo kaj la signifon de la esperantisteco de la omaĝato.
+
+Poste sekvis io, kio neniam mankas en majorka inaŭguro – eta koncerto de sakŝalmoj, flutoj kaj tamburetoj. Tuj post tiu muzika festado, la membroj de Majorka Esperantistaro havis la ĝojon konatiĝi kun maljuna sinjoro, najbaro de la familio de Josep Salom Nadal, kiu apogante sin sur du bastonoj atingis kaj salutis ilin per Esperanto. Li sin deklaris memlerninto de la lingvo, malkovrita de li pro instigo de lia patro. Do, kelkaj semoj restis kaj ekfloris…
+
+Nicolau Dols
+
+
+---
+
+# Strategia Laborplano por konsidero
+
+**Published:** 2025-06-03
+
+**URL:** https://www.liberafolio.org/2025/06/03/strategia-laborplano-por-konsidero/
+
+**Categories:** UEA
+
+Libera Folio publikigas la kompletan tekston ”Strategia Laborplano por konsidero”, aperintan en la junia numero de la revuo Esperanto .
+
+VIZIO
+
+Esperanto-komunumo kiu videble vivas en konkordo kun siaj idealoj kiel komunika modelo. Mondo de respekto al lingvaj rajtoj kaj daŭripova diverseco de kulturoj, al kiu Esperanto kontribuas per agnoskata sukceso en antaŭenigo de interkompreniĝo ce­ lanta pacan progreson de la homaro. Mondo ĉiam pli akceptema al la ideo de Esperanto mem, kun ĉiam pli vas­tiĝanta uzantaro de la lingvo por faciligi oficialajn kaj neoficialajn rilatojn inter individuoj kaj popoloj.
+
+MISIO
+
+Konsciigi la publikon kaj decidofarantojn pri la logiko kaj valoro de Esperanto kiel efika instrumento de edukado al egaleca kunlaborema mondo, celanta lingve justan problemsol- vadon kaj komunikadon konservantan la diversecon de kulturoj. Aktive labori por konservi kaj progresigi la evoluintan kulturon de nia lingvo Esperanto por la nuna kaj estontaj generacioj.
+
+VALOROJ
+
+Niaj valoroj apogu la finan celon de justa kaj paca kunvivado kaj interkomunikado sur la planedo, laŭ la originala koncepto de D-ro Zamenhof. Tiuj valoroj spegulu la plej altajn universalajn aspirojn de la homaro, inter kiuj: Respekto al la Vivo, Amo, Vero, Justeco, Libereco, Unueco, Toleremo kaj Respondeco; kaj kunlaboradon kun ĉiuj progresemaj, bonintencaj asocioj kaj individuoj strebantaj por tiujn apliki en homaj rilatoj.
+
+NIAJ STRATEGIAJ KOLONOJ – KIRI
+
+Baza aliro aprobita unuanime dum la Komitataj Forumoj en Aruŝo, 2024:
+
+1. Starigi laborgrupojn por efektivigo de specifaj planoj, limigitaj al unu okazo (ekzemple, propono por akcepto de Esperanto-tago en la Unesko-konferenco en Samar­kando, novembro 2025), kaj longdaŭ­raj (internacia eksperimento por nekontesteble demonstri la valoron de Esperanto kiel lernfaciliga lingvo por posta lingvolernado, kaj instrumento por evoluigi interkulturan kompetenton kaj interkompreniĝon inter diversaj po­po­loj). Komisionoj kaj laborgrupoj ra­portu pri sia agado al elektita estra­rano por teni la Estraron plene informita.
+
+2. La modelo povus esti tiu proponita kaj aprobita por Informado: unu ĉefa laborgrupo sub nia dungita kun­ ordiganto, taskita pri prioritatigo de celoj, trovo de alte kvalifikita kaj fidinda respondeculo pri gvidado de ĉiu projekto. Interesatoj laŭ la enketilo de UEA estu kontaktitaj, kaj anoncoj pri specifaj bezonoj aperu en niaj organoj.
+
+Proponoj jam iniciatitaj, kaj novaj indaj je konsidero. Celdatoj estas dezirindaj, ne definitivaj.
+
+1. KUNLABORADO
+
+Interna kunlaborado estas unue la antaŭkondiĉo por harmonie atingi komunajn celojn kiuj troviĝas preter la kapablo de individua agado. Kiam ni havos klaran strukturon, celojn kaj laborplanojn, per informiĝo, edukiĝo kaj trejnado, ni povos plenfide rilati kun eksteraj organizaĵoj.
+
+Ni faciligu kunlaboradon inter esperantistoj per la jenaj rimedoj:
+
+A. Modernigita retejo por aŭtomatigi administrajn kaj financajn procedurojn, faciligi servojn al la membroj per provizo de necesaj kontaktoj, materialoj, mendiloj, aliĝiloj, membrecorenovigoj.
+
+1. Intervjuoj de kandidatoj por fi­na pritakso de la proponita sistemo (AKSO), kompare kun alternativoj, por okaza kaj daŭra konsultado, kaj akompanado al la oficistoj kaj kunlaborantoj por la transiro al la nova sistemo: majo-junio 2025.
+
+2. Finaj rekomendoj de la taksantoj kaj konsultantoj: julio-aŭgusto 2025.
+
+3. Dungo de la akompananto al la sistemo: kiel eble plej frue post la Burna UK 2025.
+
+B. Trijara Almanako reta kaj presita por kunigi ĉiujn necesajn informojn pri la Asocio, ĝiaj Landaj Asocioj kaj reprezentantoj, kunlaborantaj partneroj, agadraportoj, estontaj planoj.
+
+1. Verkado, kolektado, redaktado de la materialoj, unua duono de 2025.
+
+2. Publikigo de la unua Trijara Almanako, dua duono de 2025.
+
+C. Komitato
+
+1. Ni restu atentaj al la gvida rolo de la Komitato, kuraĝigu aktivan engaĝiĝon de la Komitatanoj, kaj estu atentaj ke ni raportas decidojn kaj agadplanojn laŭ iliaj bezonoj.
+
+2. La Komitato estu preta por apogi la necesan reviziadon de la Statuto kaj Regularoj de UEA.
+
+3. Ni krome decidu ĉu fondi laborgrupon por esplori pri la eventuala neceso restrukturi la organizadon de UEA por ke estu pli da opcioj por komuna agado ol per la Landaj Asocioj.
+
+Ĉ. TEJO
+
+Pro la neceso plijunigi la movadon, ni restu en konstanta kontakto kaj kunlaboro kun TEJO pri projektoj de komuna intereso (ekzemple, subteno al la Internacia Junulara Kongreso en Azio).
+
+D. Dezirindaj celoj
+
+1. Trejni laŭbezone por pli efika laboro (konfliktsolvado, konsilejo: mediaciado? ombudsmano?).
+
+2. Stimuli kunlaborigadon de malsamcelaj individuoj por realigi komunajn projektojn.
+
+3. Doni pli da subteno al Landaj Asocioj kaj kuraĝigi al pli da interasocia kaj regiona kunagado.
+
+4. Atenti doni sufiĉan subtenon al la faka agado por kontraŭi la tendencon al malfortiĝo.
+
+5. Subteni iniciatojn por kreo de novaj fakaj asocioj necesaj por apogi agadon en kampoj kiuj gravas por la antaŭenigo de la servoj de UEA, ekzemple Faka Asocio de eldonistoj.
+
+6. La Estraro de UEA kunlaboru kun TEJO por la ekuzado de komuna projektmastrumilo.
+
+E. Centra Oficejo kaj financa bazo
+
+1. Ni restu pretaj vendi la Centran Oficejon je oportuna momento (tempe kaj finance).
+
+2. Intertempe ni esploru la eblon ludoni portempan spacon al eksteruloj por oficejoj.
+
+3. Post la vendo, ni estu pretaj investi en alia nemoveblaĵo por apogi la laboron de UEA.
+
+4. Ni certiĝu ke la Volontula Domo povos servi post la vendo kiel oficiala sidejo de UEA.
+
+5. Ni estu pretaj aĉeti laŭbezone pli ampleksan spacon se tio montriĝos dezirinda.
+
+6. Ni laboru por identigi la plej taŭgan alternativan lokon por la Libroservo post 2025.
+
+7. La Financa Komisiono daŭre studu la kondiĉojn por investoj sub ŝanĝiĝantaj kondiĉoj.
+
+8. Ni daŭrigu uzadon de eksteraj revizoroj kaj premu por ĝustatempa livero de raportoj.
+
+9. Ni kunlaboru pri uzado de la kapitalo de Institucio Hodler ‘68 por subteni al UEA.
+
+10. Ni daŭre kunlaboru kun Kosmo Strategio pri akiro de estontaj Administraj Subvencioj.
+
+11. Ni daŭre atentu la financan situacion de nepagipovaj aktivuloj kiuj bezonas helpon.
+
+12. Ni konsciu pri la bezono repagi kostojn de volontuloj kiuj reprezentas UEA.
+
+13. Ni daŭre restu pretaj provizi financan helpon por membroj en krizaj situacioj.
+
+F. Subteno de la kulturo de Esperanto
+
+Daŭrigi subtenon kaj kuraĝigadon de Belartaj Konkursoj, arto, muziko, eldonado de literaturo.
+
+Daŭrigi kunlaboron kun la Akademio de Esperanto kaj aliaj institucioj apogantaj la lingvon.
+
+Resti en kontakto kun la diversaj kulturaj centroj de Esperanto kaj subteni iliajn programojn.
+
+G. Esperantaj organizaĵoj eksteraj al UEA
+
+Prioritatigi restadon en harmoniaj rilatoj kun ĉiuj organizaĵoj kiuj subtenas la lingvon, kulturon kaj literaturon de Esperanto, kaj ĝian aktivan uzadon por pozitivaj celoj.
+
+2. INFORMADO kaj komunikado
+
+La laborgrupo kunlaboranta kun la Komisiito de UEA prioritatigu la eblajn agadojn.
+
+1. Organizi sub la gvido de komisiito de UEA laborgrupojn kun grupestroj kaj membroj dediĉitaj al la antaŭenigo de la diversaj flankoj de informado: teni plene funkcianta teknike kaj enhave la multlingvan retejon esperanto.net, al kiu sendiĝas legantoj de reklamoj kaj artikoloj pri Esperanto; utiligo de eventoj kiel kongresoj por diskonigi Esperanton (gvidilo, trejnado); amaskomunikiloj (trejnado por kontaktoj kaj intervjuoj, preparo de materialoj); sociaj retoj (oportuneco de aga­do, komunikado); respondoj al kritikoj kaj misprezentoj (help-dokumento, reaga teamo); kontaktoj al opini­ gvidantoj (politikistoj, ĵurnalistoj, edukistoj); konstanta fluo de bultenoj aŭ gazetaraj komunikoj kiuj celu eksterajn informfontojn, ne nur la internajn de UEA.
+
+2. Krei tabelon pri “Kiu faras kion?” por konscii ĉu mankas homfortoj por esencaj taskoj.
+
+3. Provizi k.e.p. multajn diverslingvajn modernajn materialojn por diskonigo de Esperanto.
+
+4. Trejni membrojn por pli efike rilati al la diversaj amaskomunikiloj por apogi Esperanton.
+
+5. Plifortigi internan komunikadon de UEA al la membroj kaj partneraj asocioj.
+
+6. Ĝisdatigi la retejon de UEA antaŭ plena renovigo pro kadukiĝintaj informoj.
+
+3. RILATOJ kun la ekstera mondo
+
+La ĉefa tasko estas trovi homfortojn kaj organizi iliajn agadojn.
+
+1. Daŭrigi subtenon de oficejoj kaj agado ĉe UN, Unesko kaj aliaj internaciaj organizaĵoj.
+
+2. Subteni CED kaj ESF en la daŭra organizado de konferencoj, simpozioj, seminarioj kiuj helpas al niaj partne­ roj atentigi pri lingvaj rajtoj, lingva diskriminacio, solvoj por komunikaj prob­lemoj.
+
+3. Kuraĝigi esperantistojn al aktiva engaĝiĝo kun lokaj asocioj havantaj mondan perspektivon.
+
+4. Organiziĝi kaj prepariĝi por peti agnoskon de Esperanto (Esperanto-tago, asembleoj de UN, Unesko, kaj iliaj neregistaraj organizaĵoj [NROj], parlamentoj).
+
+5. Diskonigi kaj kuraĝigi al partopreno esperantistajn kaj interesatajn esploristojn en konferencoj, seminarioj kaj eldonprojektoj.
+
+6. Proponi al aliaj asocioj servojn kiujn ni kapablas liveri per niaj transnaciaj kontaktoj: tradukado, interpretado, eldonado, kunorganizado de eventoj kiel se­ minarioj ĉeestaj kaj retaj, plani por aliaj agadoj por kiuj ni povos esti pretaj liveri servojn, ekzemple trejnadon pri Interkultura Kompetento
+
+7. Studi ĉu kaj kiel ni kapablas subteni financajn kampanjojn de aliaj organizaĵoj, por povi kunlabori en bonfara agado kiu ne necese rilatas al Esperanto.
+
+4. INSTRUADO
+
+1. Kunlabori kun ILEI por helpi realigi ĝiajn celojn rilate instruadon de Esperanto en la lernejoj.
+
+2. Alporti la rimedojn de UEA kunlabore al realigo de la Strategia Laborplano de ILEI.
+
+3. Subteni la laboron de edukado. net kaj la KER-ekzamenoj por kvalifiki instruistojn.
+
+4. Kuraĝigi al subvencipetado por helpi lernejojn kaj edukajn instancojn atingi siajn celojn uzante Esperanton kiel instrumenton por transnacia interkompreniĝo. Subteni projektojn kiel la 30 Oraj Horoj kaj la Multlingva Akcelilo por progresi al organizitaj internaciaj eksperimentoj pri la valoro de Esperanto kiel eduka instrumento, faciliganta lingvolernadon kaj transkulturan interkomprenon inter samaĝaj lernejanoj.
+
+5. Subteni la partoprenon de kvalifikitaj universitatanoj en profesiaj lingvokonferencoj.
+
+6. Daŭrigi la trejnadon pri Interkultura Kompetento por movadanoj kaj por instruistoj kaj instruantoj de Esperanto, kiuj povos plifortigi siajn kursojn per trejnado de lernantoj ne nur pri la lingvo, sed pri kultura alproksimiĝo al alilingvaj kaj alikulturaj lernantoj.
+
+7. Longdaŭra laborgrupo de UEA kaj ILEI por organizi internacian eksperimenton pri la valoro de Esperanto kiel lernfaciligilo por lingvoj, kaj instrumento por kreskigo de interkultura kompreniĝo.
+
+8. Subteni universitatnivelan instruadon de Esperanto, inkluzive la Katedron pri Esperanto kaj Interlingvistiko en la Universitato de Amsterdamo.
+
+9. Apogi iniciatojn kiel la laborgrupo pri kunpensigado de universitata agado.
+
+10. Kunlabori por faciligi rilatojn inter esperantistaj universitatanoj, kaj labori por esplori pri la eblo starigi aŭ apogi novan iniciaton kiu anstataŭu la programon kiu finiĝis en Poznano.
+
+
+---
+
+# UEA vizias pri misio
+
+**Published:** 2025-06-03
+
+**URL:** https://www.liberafolio.org/2025/06/03/uea-vizias-pri-misio/
+
+**Categories:** UEA, movado
+
+Post longa laborado aperis nova skizo de la strategia laborplano de UEA. La antaŭa plano ĉesis validi en 2017. De tiam daŭras la klopodoj kunmeti novan planon por klarigi, kion konkretan la asocio volas atingi dum la proksimaj jaroj. La teksto nun aperinta en la revuo Esperanto tamen resumeblas per malmultaj vortoj: ”Ni kunlaboru kaj esperu”.
+
+Unu el la ĉefaj prioritatoj de Universala Esperanto-Asocio dum la du mandatperiodoj de prezidanto Duncan Charters devis esti la kompilo de nova strategia plano por la asocio. Tiun celon li anoncis jam en sia unua novjara mesaĝo kiel prezidanto, komence de la jaro 2020. La rezultoj tamen restis magraj.
+
+La antaŭa strategia plano de UEA estis kompilita dum la prezidanteco de Mark Fettes en 2013–2019. Oni dum lia unua mandatperiodo uzis multe da tempo por ellabori tre detalan, 38-paĝan planon, sed efektive preskaŭ nenion planitan la asocio sukcesis realigi. Krome la plano ĉesis validi jam en 2017.
+
+Eĉ pli malbone statas la afero nun, ĉar post preskaŭ sesjara laboro de du estraroj daŭre mankas eĉ la plano, se ne paroli pri ĝia realigo. En la freŝa junia numero de la revuo Esperanto tamen fine aperis teksto kun la titolo ” Strategia Laborplano por konsidero ”.
+
+La teksto, kiu plenigas iom pli ol du paĝojn en la revuo, laŭ la klarigo de la prezidanto estas ”resumo de la bazaj elementoj”.
+
+”En la Burna UK, ni utiligu la strategiajn forumojn de la Komitato por pliprecizigi la paŝojn antaŭen, kaj konsciu ke strategia laborplano estas ne fiksa, sed evoluanta celo, kiu ebligos al ni ĉiuj pli efike kontribui al la realigo de niaj idealoj”, li skribas en sia enkonduko al la teksto.
+
+Laŭ tiu klarigo ŝajnas dubinde, ĉu dum la kongreso en Ĉeĥio fakte estos aprobita ia fina versio de la strategia laborplano. Cetere, kiel ekzemplon de la nuna nivelo de la strategia planado indas mencii, ke daŭre eĉ ne klaras, kie okazos la venontjara Universala Kongreso. En antaŭaj jaroj tio ĉiam estis decidita minimume du jarojn anticipe.
+
+La teksto nun prezentita de la prezidanto enhavas unuflanke grandajn, mondobrakumajn deklarojn en la komencaj sekcioj ”Vizio”, ”Misio” kaj ”Valoroj” – kaj aliflanke en la sekvaj tri sekcioj longajn listojn de aferoj, kies realiĝon oni esperas vidi iam en la estonteco.
+
+Tamen ŝajnas manki prioritatigoj kaj ne klaras, kiu fakte respondecas pri tio, ke la dezirataj rezultoj estu atingitaj. Pri la realigo de specifaj planoj laŭ la dokumento okupiĝu laborgrupoj. ”Interesatoj laŭ la enketilo de UEA estu kontaktitaj, kaj anoncoj pri specifaj bezonoj aperu en niaj organoj.”
+
+En sia enkonduka teksto la prezidanto skribas, ke la ĉefa defio estas trovi kompetentajn gvidantojn por la laborgrupoj. Li tamen havas esperon, ke la bezonataj aktivuloj troveblas inter la membroj de UEA: ”Se ĉiu membro elektus unu taskon, ni havus multe pli ol la necesajn laborfortojn”, li konstatas.
+
+La kvanto de listigitaj taskoj efektive estas malpli granda ol la membronombro de UEA, sed tamen la listo longas. Sub la kvar ”strategiaj kolonoj” – kunlaborado, informado, rilatoj kun la ekstera mondo kaj instruado – aperas entute 55 punktoj, kies reciproka graveco ne tre klaras.
+
+Plej multaj punktoj, entute 32, aperas en la rubriko ”kunlaborado”. Tie estas listigitaj paŝoj por realigi la de longe planatan retejan renovigon kaj la trijaran almanakon, kiu anstataŭu la nuligitan Jarlibron, sed ankaŭ ekzemple la situacio de la Centra Oficejo kaj la financa situacio de la asocio.
+
+Modernigita retejo por aŭtomatigi administrajn procedurojn kaj faciligi servojn al la membroj fakte aperas kiel la unua el la punktoj sub ”kunlaborado”, do oni povus suspekti, ke ĝi estas prioritata. Dungo de respondeculo por funkciigi la novan sistemon laŭ la dokumento okazu ”kiel eble plej frue” post la ĉi-jara Universala Kongreso.
+
+La apero de la unua ”trijara” almanako, pri kiu oni diskutas ekde la nuligo de la jarlibro en 2018, nun estas promesata por la dua duono de 2025.
+
+La sekcio pri Centra Oficejo kaj financa bazo diras nenion konkretan, sed nur konstatas, ke ”ni estu pretaj” vendi la oficejan domon je oportuna momento, kaj intertempe ”esploru la eblon” ludoni neuzatan spacon al eksteruloj por oficejoj.
+
+Post la vendo de la domo UEA estu preta aĉeti alian nemoveblaĵon ”se tio montriĝos dezirinda”. Tamen ne klaras, laŭ kiuj kriterioj oni decidu, ĉu estas dezirinde aĉeti alian domon post la vendo de la nuna.
+
+Pri la libroservo oni konstatas nur, ke oni ”laboru por identigi la plej taŭgan alternativan lokon” por ĝi post 2025. Kiu laboru pri tio, kiel, kaj laŭ kiuj kriterioj, tio ne klaras. Ja klaras, ke UEA plu kunlaboru kun la entrepreno Kosmo Strategio pri akiro de administraj subvencioj.
+
+Ke ĝuste la kreado de laborgrupoj estas la kerno de la strategio de UEA por la estontaj jaroj aparte klare videblas en la sekcio pri informado.
+
+”La laborgrupo kunlaboranta kun la Komisiito de UEA prioritatigu la eblajn agadojn”, la teksto notas, kaj kiel la unuan eblan agadon de la laborgrupo ĝi listigas: ”Organizi sub la gvido de komisiito de UEA laborgrupojn kun grupestroj kaj membroj dediĉitaj al la antaŭenigo de la diversaj flankoj de informado.”
+
+Estas evidente laŭdinde, ke oni prioritatigas la eblajn agadojn, ne la maleblajn. Tamen restas vidi, kiuj agadoj efektive estas eblaj.
+
+Kiel la sesan kaj lastan punkton en la taskaro rilata al informado oni legas: ”Ĝisdatigi la retejon de UEA antaŭ plena renovigo pro kadukiĝintaj informoj.” Se necesas ĝisdatigi la nunan retejon, supozeble la kompleta reteja renovigo ne apartenas al la taskoj eblaj dum la proksima tempo.
+
+En neniu punkto de la teksto ”Strategia Laborplano por konsidero” aperas la vorto ”membro”. Same ne aperas la vorto ”revuo”. Tiuj konceptoj do evidente ne apartenas al la strategiaj prioritatoj de UEA.
+
+Kvankam la eldona agado de UEA pli-malpli ĉesis, la vorto ”eldoni” ja aperas en la teksto. Ĝi tamen aperas nur en la sekcio ”rilatoj kun la ekstera mondo”, kie oni asertas, ke UEA povus proponi al aliaj asocioj ”servojn, kiujn ni kapablas liveri per niaj transnaciaj kontaktoj: tradukado, interpretado, eldonado, kunorganizado de eventoj”.
+
+Kion opinias la komitatanoj de UEA pri la plano, ne eblas scii, ĉar ĝis nun aperis neniu komento pri ĝi en la komitata diskutejo. Entute la aktiveco en la diskutejo plu falis post la forpaso de Renato Corsetti en februaro. Dum la tuta majo 2025 aperis nur 9 mesaĝoj en la diskutejo, kaj el tiuj 6 estis cirkuleroj de Stefan MacGill, sendataj al multaj diversaj retlistoj. Pasintjare en majo aperis 23 mesaĝoj, kaj en majo 2021 la kvanto de mesaĝoj estis 86.
+
+Ĝenerale la teksto, kiu devus prezenti la longperspektivan strategion kaj celojn por la plej grava Esperanto-organizaĵo en la mondo, aspektas strukture nekohera, nezorge kunmetita kaj malekvilibra. Ne eblas laŭ ĝi konkludi, kiuj fakte estas la esencaj kaj prioritataj taskoj, kiujn UEA realisme povos plenumi dum la proksimaj jaroj, nek kiu konkrete respondecos pri tiu plenumo.
+
+Efektive la vortoj ”respondeci” aŭ ”respondeca” tute mankas en la teksto, krom majuskla mencio en la sekcio pri la valoroj de la asocio:
+
+Niaj valoroj apogu la finan celon de justa kaj paca kunvivado kaj interkomunikado sur la planedo, laŭ la originala koncepto de D-ro Zamenhof. Tiuj valoroj spegulu la plej altajn universalajn aspirojn de la homaro, inter kiuj: Respekto al la Vivo, Amo, Vero, Justeco, Libereco, Unueco, Toleremo kaj Respondeco; kaj kunlaboradon kun ĉiuj progresemaj, bonintencaj asocioj kaj individuoj strebantaj por tiujn apliki en homaj rilatoj.
+
+Tiuj ”universalaj aspiroj” de la homaro sendube estas belaj kaj subtenindaj, sed la listigo ne multe helpas klarigi la konkretajn strategiajn prioritatojn de UEA, se la asocio efektive posedas tiajn.
+
+
+---
+
+# Kiu respondecas pri Esperantaj arĥivoj?
+
+**Published:** 2025-06-09
+
+**URL:** https://www.liberafolio.org/2025/06/09/kiu-respondecas-pri-esperantaj-arhivoj/
+
+**Categories:** vidpunkto
+
+Esperantistoj bone elektu siajn batalojn por savi la postlasitajn paperojn de aktivuloj kaj organizaĵoj – ne ĉiuj esperantaj dokumentaroj estas akcepteblaj en arĥivejoj. Aliflanke, ni ankaŭ devas lerni kiel marĉandi ruze por plialtigi ilian valoron, skribas Rubeno Fernández Asensio en sia vidpunkta artikolo.
+
+En 2007 la Ĝenerala Asembleo de la Internacia Konsilio pri Arĥivoj voĉdonis, ke ĉiu 9-a de junio estu Internacia Tago de Arĥivoj, por soleni la fondon de IKA mem en 1948. Arĥivistoj ĉirkaŭ la mondo uzas la okazon por diskonigi sian laboron antaŭ la publiko kaj iom kontraŭagi al la ĝenerala nescio pri la graveco de arĥivejoj.
+
+Tiurilate, esperantistoj reprezentas la ĝeneralan publikon, kaj ankaŭ inter ni la laboro de arĥivistoj estas nekonata kaj mistera. En unu el la lastaj Esperigaj Komunikoj de Stefan McGill ( EKO 2025/23, Majo 26, p. 3 ) aperas ne tre esperiga novaĵo pri minacata arĥivo en Prilep (Norda Makedonio), subskribita de Josip Pleadin, la fondinto kaj animo de Dokumenta Esperanto-Centro en Đurđevac (Kroatio).
+
+Li skizas tipan situacion: parenco de forpasinta esperantisto heredas grandan esperantan kolekton kaj deziras vakigi la domon. Simila afero okazis en Sankta Paŭlo de Ordalo (Subirats) apud Barcelono, kie la heredinto de la Hispana Esperanto-Muzeo havis neniun intereson pri nia lingvo kaj atendis nur ĝis la morto de sia patrino.
+
+Laŭ Pleadin, la heredintino en Prilep provis donaci la dokumentaron ”al iu institucio” sensukcese, ne precizigante al kiuj. Estas menciata ankaŭ la provo de iu neesperantisto transdoni ĝin al iu loka biblioteko. Mi demandas al mi, ĉu inter la kontaktitaj institucioj iu el la lokaj interesatoj pensis entute pri publikaj arĥivejoj, kvankam en Prilep mem situas historia provinca arĥivejo, branĉo de la Nordmakedona Nacia Arĥivejo. Kutime oni pensas pri ili laste, post bibliotekoj, muzeoj kaj universitatoj.
+
+Post tiuj malsukcesoj, Pleadin ankaŭ klarigas sian propran planon savi la dokumentaron per transportado al Dokumenta Esperanto-Centro en Kroatio, sed pri tio li montras grandan konfuzon: li dubas, ĉu ĝi estas leĝe eksportebla, ”ĉar temas pri nacia kultura valoraĵo”. Tamen, kiel logike eblus, ke nordmakedona leĝo protektas ĝin, kaj samtempe publikaj institucioj malakceptas respondeci pri ĝi? Leĝo ne estas afero pri supozoj sed pri tekstoj kiujn oni devas koni kaj citi, kaj leĝoj foje estas tre precizaj.
+
+Ekzemple, la hispana leĝo pri nacia heredaĵo malpermesas eksporton nur de objektoj pli aĝaj ol 100 jaroj aŭ tiuj eksplicite jam listigitaj en oficiala inventaro. La hispana leĝo protektas ankaŭ originalajn dokumentojn aĝantajn inter 100 kaj 40 jarojn se ili estis produktitaj aŭ kunigitaj de politikaj partioj, sindikatoj, religiaj organizoj kaj fondumoj aŭ asocioj kun kultur-edukaj celoj.
+
+En la kazo de eldonaĵoj, estas protektataj libroj kaj revuoj eldonitaj antaŭ 1958, se en la tuto de hispanaj publikaj bibliotekoj kaj kolektoj troviĝas malpli ol tri ekzempleroj; por diskoj, bendoj, fotografiaĵoj, ktp, la limjaro ne aplikiĝas. Katalunaj leĝoj estas pli protektemaj: estas kultura heredaĵo ankaŭ originalaj dokumentoj pli aĝaj ol 40 jarojn de ĉiuj privataj juraj personoj, do ankaŭ tiuj de entreprenoj, kaj dokumentoj fiksitaj en materialoj kies vivipovo ne atingas 100 jarojn (vidbendoj, sonbendoj, ktp).
+
+La konfuzo de Pleadin estas pardonebla: kroato ne devas kompetenti pri nordmakedona juro. Aliflanke, ĝi evidentigas la malengaĝiĝon aŭ malfortecon de la loka esperanta movado, kiu devus interesiĝi, plendi antaŭ la aŭtoritatoj kontraŭ eksportado, kaj pledi ĉe ili por akcepto en publika institucio. Ni estas en griza nenies teritorio, kie ĉio dependas de la konvinkemo kaj kapablo marĉandi de esperantistoj mem.
+
+Vi jam rimarkis, ke dokumentoj kaj eldonaĵoj pli modernaj ol 40-100 jarojn kaj nur kolektitaj de unuopa individuo ne ĝuas specialan protekton sub hispanaj kaj katalunaj leĝoj, kaj verŝajne ankaŭ ne sub la nordmakedonaj. Tamen, kutime leĝoj ne malpermesas akcepti tiajn dokumentarojn en publikaj arĥivejoj se la donacantoj konvinke argumentas ilian historian aŭ socian valoron, kaj ke tiu valoro malpliiĝus se ili estus dispartigitaj.
+
+Kaj ĉi tie la interpreto de Pleadin ekzemplas tipan miskomprenon pri la laboro de arĥivistoj: “Esperantaj kolektoj estas kompleksaj kolektoj de ĉiaspeca materialo pri Esperanto, kaj estas apenaŭ imageble, ke tian kolekton akceptus iu nacia arkivo, ĉar ĝi ne bezonas la tuton. Estus necese dispartigi tian kolekton al biblioteko, fototeko, dokumentarkivo ktp, kio estus perdo por la movado kaj pereigo de la kolekto kiel tutaĵo.”
+
+La subkomprenita premiso, ke arĥivistoj akceptas nur originalajn paperajn dokumentojn, estas tute falsa. Laŭ la Internacia Arĥiva Priskriba Normo eldonita de IKA mem, ‘dokumento’ estas ‘informo registrita sendepende de ĝia materialo kaj karakterizoj’, kaj ‘arĥivaĵo’ estas ‘informo registrita sendepende de ĝia materialo kaj karakterizoj fizikaj kaj logikaj, produktita aŭ ricevita kaj konservita de organizo aŭ persono en la disvolvado de siaj agadoj’.
+
+Laŭ la kataluna leĝo pri arĥivoj, ‘dokumento’ estas ‘ĉia esprimo en parola lingvo, skribita, bilda aŭ sona, natura aŭ kodigita, registrita en ĉia materialo’. En la arĥivista lernejo mi lernis pri fungoj kaj insektoj atakantaj paperon kaj pergamenon, sed ankaŭ pri la malsanoj de magnetaj bendoj, kinaj filmoj, kaj pri ĉiuj jam forgesitaj fotografiaj teĥnikoj. Ankaŭ, kiel arĥivisto mi katalogis tutan bibliotekon, kaj nuntempe preskaŭ mia tuta laboro tuŝas bitajn dokumentojn, inkluzive aŭdvidaĵojn.
+
+Arĥivistoj akceptas la plej buntajn dokumentarojn kaj fajfas pri diverseco de materialoj, kondiĉe ke ili estu veraj arĥivoj, tio estas, tutaĵoj. La malo de ‘arĥivo’ estas ‘kolekto’, tio estas, ‘artefarita grupigo de dokumentoj, kunigitaj laŭ iuj komunaj karakterizoj sendepende de ilia deveno’ (laŭ IAPN de IKA). Rimarku ke ĉi tie la ŝlosila vorto estas ne ‘materialo’, sed ‘deveno’. Arĥivistoj malŝatas kolektojn: ili estas la agadsfero de bibliotekistoj kaj muzeologoj, ne nia. Ĉi tiu estas nia vera skrupulo antaŭ tipaj esperantaj dokumentaroj, kiun Pleadin kaj multaj aliaj esperantistoj miskomprenas.
+
+Kie radikas do la tuteco de arĥivo kaj ĝia komuna deveno? Ĝi signifas ke la tuteco de arĥivo mem estas dokumento, kiu prilumas la historion kaj agadon de sia produktinto, ekzemple asocio aŭ verkisto. La rilatoj inter la partoj de arĥivo estas mem dokumento, kies informa valoro malgrandiĝus se oni forprenus parton aŭ detruus la originan ordon. Tamen, kiu estis la agado de Viktor Galeski, kiun lia dokumentaro prilumus, krom simpla kolektado? Pleadin ne informas nin.
+
+Jen ekzemplo por komparo: la fondinto de Hispana Esperanto-Muzeo, unu el la plej gravaj esperantaj dokumentaroj en sia tempo, estis rimarkinda esperantologo, kiu mem ekspluatis la riĉaĵojn de sia kolekto por krei, kunlabore kun du aliaj, la gravan Bibliografion de Periodaĵoj en aŭ pri Esperanto, uzatan ekzemple de Bitarkivo. Li ankaŭ eldonis revuon, plenumis plurajn oficojn en naciaj kaj internaciaj organizoj, kunorganizis kongresojn, kaj korespondis abunde kun gravuloj de la movado.
+
+Tial, eblas konsideri la havaĵojn de la muzeo kiel personan arĥivon de grava esperantisto. Plie, la muzeo mem, kvankam private posedata, estis institucio, kiu eldonis ekslibrisojn, glasojn, broŝurojn, afiŝojn, kaj aliajn objektojn, kaj kies vizitlibro spegulas tutan epokon. Ankoraŭ pli, ĝi estis aparte rimarkebla, grava kaj memorinda en 300-homa vilaĝeto. Por ĝia inaŭguro estis inaŭgurita ankaŭ tuta strato Doktoro Zamenhof.
+
+La fondinto, tre konata persono kiel loka apotekisto, kunorganizis Esperanto-kursojn, kaj dum jaroj lokaj gejunuloj korespondis kun eksterlando per nia lingvo. Ofte venis al la vilaĝo eksteraj vizitantoj pro la muzeo, foje tutaj antaŭ- aŭ post-kongresaj karavanoj da fremdaj esperantistoj. Tial, ne estas mirinde ke en 2020 la havaĵoj de la muzeo kaj la persona arĥivo de la fondinto estis akceptitaj en la magistratan arĥivejon, ĉar la vilaĝanoj mem (neniu el ili esperantisto) konsideris la muzeon parto de la lokaj historio kaj identeco.
+
+Resumante la lecionon: esperantistoj bone elektu siajn batalojn kaj ne ĉiam provu pretendi, ke ”stokoj de nevenditaj makedonaj eldonaĵoj” estas arĥivo. Ne ĉiuj esperantaj dokumentaroj estas akcepteblaj en arĥivejoj aŭ meritas ne esti disvendataj kiel brokantaĵoj. Aliflanke, ni ankaŭ devas lerni kiel marĉandi ruze por plialtigi ilian valoron.
+
+Se mi ne instigus renkontiĝon inter la heredinto de Hispana Esperanto-Muzeo kaj gravulo de la Kataluna Nacia Biblioteko, kaj se subiracanoj ne timus tiam, ke la kolekto foriros el la vilaĝo, probable ili neniam akceptus respondecon pri ĝi.
+
+Rubeno Fernández Asensio
+
+
+---
+
+# Lingvoj en la eŭropa vojkruciĝo
+
+**Published:** 2025-06-17
+
+**URL:** https://www.liberafolio.org/2025/06/17/lingvoj-en-la-europa-vojkrucigo/
+
+**Categories:** kulturo
+
+Denove malsukcesis la provo oficialigi ĉe EU tri regionajn lingvojn de Hispanio. La decido postulas unuanimecon. Spite longajn intertraktadojn en la kulisoj, reprezentantoj de pluraj landoj en ministra kunveno fine de majo kontraŭis la proponon. Nicolau Dols klarigas la fonon kaj la argumentojn.
+
+Ekde 2023 Hispanio petas al Eŭropa Unio la oficialigon de la kataluna, la eŭska kaj la galega. Ĉi tiuj lingvoj estas oficialaj en siaj historiaj teritorioj de Hispanio kune kun la hispana. Fakte ili iom uzeblas en instancoj de EU ekde decembro de 2005 dank’ al interkonsento subskribita de Hispanio kaj EU.
+
+Tio ne signifas ke la tri menciitaj lingvoj estas oficialaj de EU, sed nur ke hispanaj civitanoj rajtas adresi petojn al tiuj diversaj instancoj kaj ricevi de ili respondojn, pri kies traduko respondecas departemento de la hispana administracio, ne rekte EU.
+
+Kompreneble, la procedo traduki tiamaniere malrapidigas komunikadon, kaj la dokumentoj enhavas averton ke EU ne kulpas pro eraroj. Do, tiu solvo ne tute taŭgas kaj ne donas al parolantoj de tiuj lingvoj la samajn rajtojn kiel al parolantoj de oficialaj lingvoj de EU.
+
+En septembro 2023 Hispanio unuafoje petis al EU oficialigon de la tri lingvoj . Tio estis rezulto de socia premo el tiaj lingvoteritorioj, komenciĝinte per peto de la Baleara Parlamento en 1987 (Hispanio aliĝis al EU en 1986), daŭre kaj multfoje ĝis nun ripetata de la sama asembleo, kaj ankaŭ de la Kataluna Parlamento kaj de aliaj instancoj, por ne mencii petojn de neregistaraj asocioj.
+
+En somero 2023, post longaj politikaj diskutoj, la nuna registaro de la ŝtato fine sukcesis akiri sufiĉajn apogojn en la hispana parlamento por elekti prezidanton de la ministra konsilio (tiel oni nomas la oficon en Hispanio, kaj ne “ĉefministro”).
+
+Unu el la kompromisoj estas permesi la uzon de la tri aliaj oficialaj lingvoj en la hispana parlamento (memoru ke tiuj lingvoj estas oficialaj nur en siaj historiaj teritorioj, sed ne en la tuta ŝtato, kaj ke la hispana parlamento kuŝas en unulingva regiono, Madrido), kaj peti ankaŭ ilian oficialigon al EU.
+
+Do kial? Nur pro tio ke la rajto peti oficialigon de lingvoj al EU apartenas al ŝtatoj… kiel preskaŭ ĉio en EU. Tio tute kongruas kun organizo kies fundamento estas ne popoloj, sed ŝtatoj.
+
+De post la kvar unuaj oficialaj lingvoj de EU (la nederlanda, la franca, la germana kaj la itala), dudek pliaj lingvoj oficialiĝis, ĉefe kiam EU akceptis membriĝojn de pliaj ŝtatoj. Do, nun estas 24 lingvoj oficialaj en EU. Regularo 1/1958 de EU, kiu deklaras la oficialan statuson de lingvoj en EU estis modifita entute sep fojojn. La modifado de tiu regularo postulas unuaniman konsenton de la Eŭropa Konsilio, tio signifas ke la reprezentantoj de ĉiuj 27 ŝtatoj devas baloti favore al la hispana propono.
+
+Unue kelkaj ŝtatoj (Germanio kaj Italio) starigis dubojn pri la financa flanko de la operacio. Hispanio respondis per propono de kompleta financado de la aldonaj kostoj de la oficialigo. Aliaj duboj, malpli solveblaj, venas el timo de aliaj ŝtatoj pri eventualaj postuloj de lingvaj grupoj ene de iliaj limoj.
+
+En neoficialaj rondoj, la diskuto ĉiam alvenas al la formulo “unu ŝtato, unu lingvo”, kiu estas la historia sonĝo de centralizismo. Alvenas tuj poste al diskutoj alia argumento: “kial oni devus akcepti la katalunan, la eŭskan kaj la galegan, se la parolantoj de tiuj lingvoj parolas ankaŭ aliajn lingvojn?” Tiaspecaj argumentoj ne malebligis la oficialigon de la irlanda en 2007. Irlando kaj Malto estas defioj al la malĝusta principo “unu ŝtato, unu lingvo”, kune kun aliaj landoj kundividantaj lingvojn kun aliaj landoj.
+
+Forirante de la simpligo “ili jam komprenas la hispanan”, oni pensu ke parolantoj de pli ol unu lingvo ne regas ĉiun el ili samnivele. En diskutoj pri lingvaj rajtoj oni tuj vidas ke unulingvanoj malfacile komprenas tion, sed mi mem ne bezonas multe da rezonado pri la afero, nur mian propran lingvan sperton: mia unua lingvo estas la kataluna, nature akirita en familia medio, la hispana alvenis al mi nur en la lernejo.
+
+Profesie mi ĉiam uzis la katalunan, kaj certe ankaŭ aliajn lingvojn kiam temas pri artikoloj, kongresoj, ktp. Mi ne memoras eĉ unu fojon dum mia 35-jara profesia sperto en universitato kiam mi devis paroli la hispanan en kunsido (jes, mi konsentas pri tio: mi profesoras pri la kataluna en katalunparolanta teritorio, la Baleara Insularo).
+
+Kompreneble, oni uzas iun ajn el la du oficialaj lingvoj (aŭ en alia kazo, pli kaj pli la anglan nuntempe), oni komprenas unu la alian kaj respondas per sia propra lingvo. Kial mi ne rajtas fari tion kiam temas pri EU? Mi ne reagas samkvalite en unu lingvo kiel en la alia.
+
+Mi scias ke tuj venos reago kiel “Lingvoj ekzistas nur por interkomunikiĝi”. Ĉu vere? Sed interkomuniki kion kaj kiel? Ni, esperantistoj, ĉiam reklamas Esperanton kiel la lingvon de neniu. La argumento diras ke Esperanto estas akirebla de ĉiuj kaj ke ĝi estas neŭtrala ĉar ĝi apartenas al neniu lando.
+
+Eble malpliigi la kvanton de lingvoj en EU estas bona solvo, se la anstataŭa lingvo estas neŭtrala, sed ni jam vidis proponojn pri aldono de Esperanto kiel lingvo de Eŭropa Parlamento, kaj konstatis ke la reago ne promesas realigon.
+
+Se temas pri la kataluna, nuntempe la lingvo havas dek milionojn da parolantoj, do pli ol diversaj oficialaj lingvoj de EU. Okaze de oficialigo, la lingva sistemo estus tute funkcianta: norma lingvo, terminologio, tradukistoj, instruado, ktp. Fakte, ĝia statuso kiel oficiala lingvo de Katalunio, Valencio kaj la Baleara Insularo dum jardekoj ja pruvas tiun kapablon funkcii.
+
+Jen la vojkruciĝo: Unuiĝo de ŝtatoj aŭ unuiĝo de popoloj? Dum eŭropanoj decidas pri tio, mi restas atendanta unu el ĉi tiuj tri solvoj: la finan venkon de Esperanto, la oficialigon de la kataluna en EU, aŭ la akcepton kiel tutrajta membro en EU de Andoro, kies ununura oficiala lingvo estas la kataluna.
+
+Imagu: membriĝo de ŝtato kun 87 000 loĝantoj aŭtomate donus oficialigon al lingvo parolata de dek milionoj, pri kiu ĝis nun oni malakceptis peton de tia statuso.
+
+Nicolau Dols Profesoro pri la kataluna en Universitat de les Illes Balears Prezidanto de Filologia Sekcio de Institut d’Estudis Catalans (Oficiala akademio de la kataluna lingvo)
+
+Legu pli: Hispanio petas pliajn oficialajn lingvojn por EU
+
+
+---
+
+# Leteroj kiel suneroj en kesto
+
+**Published:** 2025-06-19
+
+**URL:** https://www.liberafolio.org/2025/06/19/leteroj-kiel-suneroj-en-kesto/
+
+**Categories:** historio
+
+Antaŭ kelkaj jaroj, Marc van Oostendorp ricevis viziton de du nederlandaj sinjorinoj, kiuj alportis al li stakon da amleteroj verkitaj en Esperanto, kun la peto traduki ilin. Ilia nederlanda patro ricevis tiujn leterojn en la tridekaj jaroj, de sia itala amikino. La leteroj rakontas la historion de granda amo, kiun ilia patro ŝajne neniam forgesis – amo, kiun interrompis la faŝismo.
+
+”Viaj leteroj kiel suneroj brilos en mia vivo.” Tiel skribis la juna italino Ada Magnina en januaro 1934 al Eduard Bakker, nederlanda maristo, kiun ŝi renkontis kelkajn monatojn pli frue en la esperantista klubo de Ĝenovo en Italujo. La frazo, skribita per eleganta, preskaŭ kaligrafia manskribo, elstaras sur la unua paĝo de la unua letero en kolekto de preskaŭ cent, kiun mi ricevis antaŭ kelkaj jaroj de la du filinoj de Eduard. Post lia morto ili trovis la leterojn kaŝitajn en kesto, kaj ili petis min traduki la tekston – mi estis la sola, kiun ili konis, kiu povis legi la internacian lingvon. Kiel dankon mi rajtis konservi la leterojn.
+
+Post la afero kun Ada, Eduard edziĝis al ilia patrino kaj neniam rakontis pri la antaŭa amo. Liaj filinoj apenaŭ eĉ sciis, ke li iam parolis Esperanton. Tamen li konservis la leterojn dum jardekoj. Ni havas nur la leterojn, kiujn li ricevis, ne tiujn, kiujn li verkis – ni havas la voĉon de Ada, sed ne la respondon de Eduard. Tamen eblas legi la tutan rakonton inter la linioj: de la unua brilo de amo ĝis la silento de disiĝo. Kaj ĉion ĉi sur la fono de unu el la plej mallumaj epokoj de la eŭropa historio: la leviĝo de faŝismo.
+
+Eduard Bakker ŝajne ne estis konata aktivulo en la nederlanda Esperanto-movado (li ne estis parenco de Hans Bakker, ekzemple; Bakker estas ofta nomo en Nederlando). Lia intereso pri la lingvo eble estis ĉefe privata afero – parto de lia kleriga vojaĝo dum studoj por fariĝi ŝipoficiro. Dum sia restado en Ĝenovo en la frua printempo de 1933, li vizitis la lokan Esperanto-klubon – kiu havis propran domon en la urbo – kaj tie li renkontis Ada. Ĉirkaŭ Kristnasko li verŝajne revenis por resti ĉe amikoj de la familio – tranokti ne-edziĝinte, eĉ se Ada ankoraŭ loĝis ĉe siaj gepatroj, verŝajne estus invito al eteta skandalo en la domego kie la familio loĝis.
+
+Ada Magnina, instruistino pri la itala kaj franca lingvoj, estis inteligenta, sentema kaj eleganta. Ŝi ne nur vizitadis la Ĝenovan Esperanto-klubon, sed ankaŭ verkis por itallingvaj kulturaj revuoj. Ŝia unua letero, datita je januaro 1934, estas plena je pasia amo: ”Viaj leteroj kiel suneroj brilos en mia vivo. Ankaŭ vi, mia Eduard, restu certa pri mia amo, mia fideleco, mia atendado,” ŝi skribis. Ŝi parolis pri sia soleco, pri la manko de vera kompreno ĉe siaj samurbanoj: ”Neniu komprenas min tiel bone kiel vi!”
+
+Ŝi priskribas siajn sonĝojn, la promenadojn tra Ĝenovo, kaj la senton de perdo post la foriro de la nederlanda maristo. Ŝi inkludigas detalojn, kiuj donas vivecon al la leteroj: ”Pasintan nokton mi revis, ke vi revenis viziti min kaj preferis miajn harojn ĉiujn ondigitajn!” En aliaj leteroj ŝi estas pli filozofia: ”Antaŭ via alveno, preskaŭ sufiĉis viaj leteroj por feliĉigi min. Antaŭe mi neniam spertis vian longan ĉeeston, sed nun mi konstatis, ke viaj leteroj ne estas por mi plena feliĉo, ĉar granda feliĉo ekzistas nur apud vi.”
+
+Ada skribas flue, kun nur maloftaj gramatikaj eraroj. Ŝi ŝajne lernis la lingvon per korespondado, kaj tamen jam komence de la interŝanĝo ŝi atingas altan stilnivelon. Ŝiaj frazoj montras ne nur la forton de ŝiaj sentoj, sed ankaŭ la estetikon de la epoko. Ĉiu letero estas artverko – per vortoj, per manskribo, per enmetitaj floretoj. La Esperanto de Ada estas flua kaj nuancoplena. La leteroj parolas pri soleco, pri espero, pri la interspaco inter leteroj kaj la deziro je fizika ĉeesto. Ili parolas ankoraŭ nun rekte al la leganto.
+
+La plej frapa trajto de la leteroj tamen estas la interplektiĝo inter la sferoj persona kaj politika. En tiu tempo, la faŝisto Benito Mussolini jam estis la Duce (Gvidanto) de la ŝtato Italujo. Jam en printempo 1934 Ada skribas: ”Hodiaŭ, kiel ĉiujare, forveturas la rekrutoj por la milita servado. Ili kantas gajajn kantojn adiaŭante la familianojn kaj siajn knabinojn.” Ŝi priskribas la scenon kun respekto kaj sento: ”La esperoj de la Patrujo ekmarŝas al la nova vivo.”
+
+En majo 1934 ŝi entuziasmas pri sportaj virinoj: ”La Duce donas multon al sportaj virinaj okazaĵoj, ĉar li volas, ke la itala virino estu forta por doni al la Patrujo multnombrajn infanojn. […] Pasinte virinoj estis tro sklavecaj.” En septembro ŝi priskribas grandan amasan geedziĝon en Romo, organizitan de la reĝimo: ”La Duce oferis al ili festenon, dancon k.t.p., ĉion senpage, ankaŭ la vojaĝon.”
+
+En oktobro 1934 ŝi rakontas pri denunco kontraŭ ŝia patro, kiun najbaroj akuzis pri kontraŭfaŝismaj ideoj: ”Sufiĉus, ke Papá [Paĉjo] havus pasintan politikan mankon por esti tuj ekziligata kaj la tuta familio ruinigata!” Ŝi konstatas la danĝeron, sed ŝajne pli pro familia timo ol pro ideologia distanco. Laŭ la leteroj, Ada ŝajnas ne nur ne kontraŭfaŝisma, sed eĉ ĉiam iom pli simpatianta la ideologion. En januaro 1935 ŝi eĉ mencias sian engaĝiĝon: ”Mi esperas aparteni al la Kultura Legiono […] Mi nur devas studi la faŝistan leĝaron; mi esperas poste propagandi Esperanton.” La ideo disvastigi Esperanton en faŝisma kadro montras naivan kredon je interpopola harmonio eĉ sub totalisma regado.
+
+Sed eble la plej ŝoka estas ŝia letero el septembro 1935, en kiu ŝi pravigas la italan koloniismon en Afriko: ”La eritrea kaj somala popolaro estas kontenta sub la itala regno, ili vivas bone, ne kiel bestoj.” Kaj poste: ”La negroj estas kiel bestoj, ilia instinkto estas besta.” Jen la momento, kiam la persona voĉo de Ada dissolviĝas en la voĉon de sia epoko – kaj la amo malheliĝas.
+
+La interpersona konflikto ekaperas dum 1935. Eduard ŝajne esprimas deziron pri fizika intimeco, al kiu Ada ne pretas konsenti. En unu letero Ada skribas kun doloro: ”Laŭ miaj ideoj, ŝajnas al vi, ke ne oferante al vi mian korpon mi ne sufiĉe amas vin, ĉar tio estas granda amprovo.” Jen momento, kiam du personoj, formitaj de malsamaj kulturoj, atendoj kaj eble ankaŭ de malsamaj revoj, ne plu atingas unu la alian.
+
+Poste la leteroj malmultiĝas. Fine, ili ĉesas.
+
+Estas facile legi tiujn leterojn kiel romantikan anekdoton: juna viro kaj virino, el malsamaj landoj, kuniĝintaj per Esperanto. Sed ilia valoro estas pli profunda. Ili estas inter la maloftaj ekzemploj de privata dokumentaro el la Esperanto-kulturo de la intermilita periodo. La plej multaj historiaj fontoj, kiujn ni havas, devenas el oficialaj revuoj, kongresprotokoloj aŭ verkoj de elstaruloj. Sed ĉi tie ni aŭdas la voĉon de ”ordinara” samideanino – sed kian voĉon!
+
+Ŝi skribas pri sia hezito ĉeesti la kongreson de la Itala Esperanto-Federacio en Milano, malgraŭ ricevita invito. Ŝi priskribas siajn samideanojn jene: ”ĉiuj bonaj kaj indaj personoj.” Kvankam ŝi partoprenas en la loka vivo, ŝi ne estas elstara figuro. Ŝi apartenas al tiu speco de esperantistoj, kiuj surportis la movadon: diskretaj, kaj modestaj, sed revantaj pri pli bona mondo. Ŝia ideo propagandi Esperanton ene de la Kultura Legio de la faŝisma ŝtato montras, ke eĉ en ideologie kondiĉitaj strukturoj povis esti perceptataj ebloj por la lingvo de paco.
+
+Ni ne scias ĉu ŝi restis loĝi en Ĝenovo, ĉu ŝi edziniĝis (kvankam ŝi sugestas tion en sia lasta letero), aŭ ĉu ŝi postvivis la militon. Eble ankaŭ ŝiaj infanoj aŭ genepoj iam trovos leterojn en skatolo. Aŭ eble ŝi por ĉiam malaperis en la fono, aŭ en la suferoj de la milito.
+
+Marc van Oostendorp
+
+
+---
+
+# Pli da membroj pagas malpli al UEA
+
+**Published:** 2025-06-24
+
+**URL:** https://www.liberafolio.org/2025/06/24/pli-da-membroj-pagas-malpli-al-uea/
+
+**Categories:** UEA
+
+”Nu, bonŝance ni savis la asocion.” Tiu estas la konkludo de ĝenerala direktoro Martin Schäffer surbaze de la ekonomia rezulto de Universala Esperanto-Asocio dum la jaro 2024. La asocio laŭ li ŝparis amason da mono malpliigante la oficistaron – sed devis urĝe dungi du pliajn oficistojn por ricevi administran subvencion de EU. Unu el la dungitoj tuttempe okupiĝos pri havigo de subvencioj.
+
+Sojle al la baldaŭa Universala Kongreso en Ĉeĥio fine estis publikigitaj la bilanco kaj spezokonto de UEA por la jaro 2024, kiujn la komitato devos aprobi. La ciferoj montras bonan rezulton unuavice pro sukcesaj investoj kaj la administra subvencio de Eŭropa Unio, rakontas ĝenerala direktoro Martin Schäffer en la reta diskutejo de la komitato.
+
+La domo en Nieuwe Binnenweg 176 ĝis nun ne estis vendita, laŭ Martin Schäffer pro tio, ke la prezoj de nemoveblaĵoj nuntempe ne estas favoraj. ”Supozeble indas atendi ĉar vendo kun tro reduktita prezo ne taŭgas”, li skribas.
+
+La membraro laŭ li evoluis bone. Tamen samtempe la kotizoj de individuaj membroj ne kreskis, sed eĉ malkreskis je iom pli ol 8 procentoj. Eĉ pli, je 12 procentoj, malkreskis la kotizoj de membroj-abonantoj.
+
+Iam la eldonkvanto de la revuo Esperanto superis 9 000, interalie pro la grandaj kolektivaj abonoj el la tiel nomataj socialismaj landoj. Eĉ post la disfalo de Sovetio kaj la soveta sistemo, en 1994, la eldonkvanto tamen superis 5 000. En la lastaj jaroj la malkresko tamen estis rapida. En 2024 la revuon ricevis nur 1 417 homoj, 110 malpli ol en 2023.
+
+La tuta sumo de la kotizoj de individuaj membroj pasintjare estis proksimume 118 000 eŭroj. La ero ”aliaj enspezoj”, kiun ĉefe konsistigas subvencioj, estis preskaŭ 50 000 eŭroj.
+
+Spite la publikigon de la financaj dokumentoj, esence nekonataj restas la financoj de la kongresa fako de UEA, nun prizorgata de ekstera entrepreno. La saldo de la kongresa rezerva fondaĵo restas praktike senŝanĝa de 2021. Tiu fondaĵo laŭ la regularo ĉiujare devas ricevi 20 procentojn el la profito de la Universala Kongreso.
+
+Apenaŭ eblas, ke dum kvar jaroj la kongresoj estis nek malprofitaj nek profitaj, aŭ ke la profitoj kaj malprofitoj komplete egalis. Kio do okazis? Ĉu la rezultoj de la lastaj kongresoj daŭre restas nefinkalkulitaj, aŭ ĉu la profito restis en la kontoj de la entrepreno E@I, kiu prizorgas la kongresan fakon? Tion ne eblas scii, ĉar la kondiĉoj laŭ kiuj la tasko estis transdonita al ekstera entrepreno ne estas konataj.
+
+La oficistaro laŭ la kalkuloj de Martin Schäffer dum la pasinta jaro kostis proksimume 200 000 eŭrojn. Sen la granda redukto de la oficistaro, entreprenita en la lastaj jaroj, tiu kosto laŭ li nun estus pli ol duobla, kaj UEA plu ĉiujare havus grandan deficiton.
+
+”Nu, bonŝance ni savis la asocion. Ni frontu la defiojn kaj arde laboru por brila estonteco”, li skribas.
+
+Nun la spezokonto montras rezulton sen deficito, sed ne tre klaras, kiel oni alvenis al tiu rezulto. Mankas klarigoj ekzemple pri la ”aliaj oficejoj”, kies kostoj sumiĝas al pli ol 14 000 eŭroj. La kostoj por kafo, teo kaj lakto aliflanke dum 2024 sumiĝis al 3 eŭroj kaj 59 cendoj, do evidente la nunaj oficistoj preferas aliajn trinkaĵojn.
+
+Aperas en la spezokonto ankaŭ elspezo de 3 499 eŭroj por ”revizorado”. Tamen se temas pri laboro de profesia revizoro, la rezulto de tiu laboro restas nekonata. Jam en novembro 2023 la estraro de UEA promesis prezenti la ĝistiamajn konkludojn al la komitataj reviziantoj kaj poste al la tuta komitato, sed mankas ajnaj informoj pri tia prezento.
+
+En alia, ĵusa mesaĝo al la komitato la ĝenerala direktoro informas, ke por plu ricevadi la gravan administran subvencion de EU, Universala Esperanto-Asocio estis devigita dungi du novajn personojn:
+
+”Por atingi tiun minimuman kvanton, UEA devis dungi 2 novajn personojn. Pro la fakto, ke temas pri tre specifaj taskoj, kiujn neniu alia povas plenumi, ni rezignis pri publika alvoko. Kontrakton kun UEA nun havas S. Span ò por la kampo ’Subvencioj’ (plentempe) kaj Z. Kóródy (parttempe) por ekzamenoj, kontakto kun ALTE kaj Esperanto-centroj.”
+
+UEA aliflanke ne plu havas dungiton, kies ĉefa respondeco estus la kongresoj. Eble pro tio daŭre mankas informo pri tio, kie okazos la venontjara Universala Kongreso. La malfruo de tiu informo ŝajnas rekorda, se konsideri ke normale devus jam esti konata ankaŭ la kongresurbo por la jaro 2027.
+
+Antaŭe pri la elekto de la kongresurbo krom la konstanta kongresa sekretario (ne plu ekzistanta posteno) okupiĝis ankaŭ ĝenerala direktoro, kiu faris esplorojn kaj surlokajn vizitojn por certiĝi pri la taŭgeco de la fizikaj kaj financaj kondiĉoj. Nun tiuj taskoj ŝajne estas delegitaj al E@I, kvankam laŭ la kongresa regularo ili plu apartenas al la ĝenerala direktoro.
+
+
+---
+
+# Fernando Maia estos prezidanto de UEA
+
+**Published:** 2025-06-25
+
+**URL:** https://www.liberafolio.org/2025/06/25/fernando-maia-estos-prezidanto-de-uea/
+
+**Categories:** UEA
+
+La sola kandidato por la posteno de prezidanto de UEA estas Fernando Maia, nuna vicprezidanto de la asocio. Kiel unuan vicprezidanton la elekta komisiono proponas Sean Ó Riain. Rekandidatis por estrara posteno ankaŭ alia nuna vicprezidanto, Amri Wandel, sed lin la elekta komisiono ne mencias en sia propono.
+
+La elekta komisiono de UEA antaŭ kelkaj tagoj transdonis al la ĝenerala sekretario de la asocio sian proponon por la sekva estraro de la asocio. La raporto de la komisiono estis publikigita merkrede en la retejo de UEA.
+
+La formala elekto okazos dum la komitata kunsido en la Universala Kongreso en Ĉeĥio. Ĉar la elekta komisiono prezentis nur unu senalternativan liston de kandidatoj, la konsisto de la sekva estraro jam nun estas preskaŭ certa.
+
+Por la posteno de prezidanto la elekta komisiono proponas la nunan vicprezidanton Fernando Maia. Li laŭ la propono respondecu pri kunordigo, strategia laborplano kaj Amerika agado.
+
+Por la posteno de unua vicprezidanto estas proponata Sean Ó Riain, irlanda diplomato kaj la nuna prezidanto de Eŭropa Esperanto-Unio. Li antaŭe ne havis postenon en la estraro de UEA. Li respondecu pri eksteraj rilatoj kaj kontaktoj kun internaciaj organizaĵoj.
+
+Dua vicprezidanto laŭ la propono de la elekta komisiono iĝu So Jinsu, kiu nun estas ordinara estrarano. Li respondecu pri kongresoj kaj agado en la Azia kaj Pacifika regionoj.
+
+Kiel ĝenerala sekretario laŭ la propono daŭrigu Aleks Kadar. Pliaj ordinaraj estraranoj estu Zdravka Boytcheva (nova), Miora Raveloharison (nova), Jérémie Sabiyumva, István Szabolcs (nova) kaj Gong Xiaofeng.
+
+Supozeble forlasos la estraron la nuna vicprezidanto Amri Wandel kaj la ordinara estrarano François Lo Jacomo, kiuj rekandidatis, sed ne eniris la proponon de la elekta komisiono. El la nunaj estraranoj en la listo mankas ankaŭ la nuna prezidanto Duncan Charters kaj la ordinara estrarano Aurora Bute, kiuj ne rekandidatis.
+
+Laŭ la antaŭa raporto de la elekta komisiono, aperinta en januaro , oni celis prepari la kunmeton de pluraj eblaj estraraj teamoj. Tamen estas nun proponata al la komitato nur unu senalternativa teamo. Laŭ la statuto la estraro povas havi ses ĝis naŭ membrojn. La komisiono en sia raporto ne klarigas, kial ĝi proponas la maksimuman nombron.
+
+Krome la elekta komisiono ne proponas kandidatojn por la postenoj de komitataj reviziantoj, kiuj kontrolu la financan administradon de UEA, kvankam ilia elekto estas deviga laŭ la statuto.
+
+Kandidatis por posteno en la estraro de UEA ankaŭ la eksigita prezidanto de TEJO, Michal Matúšov (KuboF Hromoslav). Lia kandidatiĝo tamen ne estis valida, ĉar li ne ricevis sufiĉe da subteno antaŭ la limdato.
+
+
+---
+
+# La UK en 2026 okazos en Aŭstrio
+
+**Published:** 2025-06-29
+
+**URL:** https://www.liberafolio.org/2025/06/29/la-uk-en-2026-okazos-en-austrio/
+
+**Categories:** UEA
+
+Dum longa tempo oni atendis informon pri la loko de la venontjara Universala Kongreso. Kutime la kongresurbo estas konata du jarojn anticipe, sed la decido pri la venontjara kongreso venis tre malfrue. La 29-an de junio UEA fine informis, ke la UK en 2026 okazos en Graz en Aŭstrio. Ni publikigas la tekston de la gazetara komuniko senŝanĝe.
+
+Por la 111-a Universala Kongreso de Esperanto (UK) la Estraro de UEA elektis Aŭstrion kiel kongreslandon. La bela Graz (Graco) estos la kongresurbo.
+
+Graz estas la ĉefurbo de la lando Stirio – de la Aŭstria Federacia Respubliko. Ĝia nomo devenas de la slovena vorto Gradec , kiu signifas “kasteleto”. Ĝi estas la dua plej granda urbo en Aŭstrio (post Vieno) kaj havas kvar universitatojn kun ĉirkaŭ 40 mil studentoj. Kun pli ol 900 jaroj de ekzisto, en 2003 Graz estis la Eŭropa Kultura Ĉefurbo. Ĝi estas listigita kiel Monda Heredaĵo de Unesko kaj Urbo de Dezajno, proponante al vizitantoj fascinan mikson de tradicio kaj novigado. Pro sia eventoplena jarkalendaro, turismaj vizitindaĵoj kaj larĝa oferto de notinda gastronomia diverseco ĝi ankaŭ estas konata kiel la Ĉefurbo de Ĝojo. Graciplena urbo.
+
+Jam komence de 20-a jarcento estis komerca lernejo en Graz, kie oni instruis Esperanton. De tiam gastiĝis en la urbo pluraj Esperanto-eventoj, inter ili la Aŭstria Esperanto-Kongreso de 1913, 1926, 1949 (okaze de kiu la Aŭstria Poŝto eldonis poŝtmarkon kun verda stelo kaj la vorto “Esperanto”) kaj 2024. Ankaŭ la Internacia Junulara Kongreso de 1970 kaj la Jubilea Esperanto-Konferenco de 1987 (dum kiu Ivo Lapenna proklamis la malfondon de Neŭtrala Esperanto-Movado). Intertempe la Esperanto-klubo de Graz estas inter la plej aktivaj de Eŭropo. En 2023 aperis oficiala 42-paĝa gvidilo de la urbo en Esperanto. Tiu gvidilo estas internacie senpage mendebla ĉe la Turisma Oficejo de la regiono Graz, pri kio raportis UEA.facila . Graz havas Zamenhof-Esperanto-Objekton (ZEO-n), placon nomitan laŭ Esperanto: Esperantoplatz .
+
+Entute vigla kaj turisma urbo, kun unika strukturo por vizitantoj kaj tradicia kaj aktuala Esperanto-movado. Tial UEA decidis akcepti la inviton de Aŭstria Esperanto-Federacio (AEF) kaj de la loka klubo por kongresi en Graz en 2026 – pro kies invito UEA ankaŭ kore dankas. Ĉu ankaŭ vi partoprenos? La 111-a UK estas planata por okazi de la 1-a ĝis la 8-a de aŭgusto 2026. UEA rezervos specialan rabatitan kotizon por tiuj, kiuj aliĝos dum la 110-a UK tre baldaŭ okazonta en Brno, Ĉeĥio. Reta aliĝilo por la 111-a UK aperos poste. Se vi ankoraŭ ne aliĝis al 110-a UK, ne maltrafu la okazon facile aliĝi per nia reta aliĝilo .
+
+Gazetara komuniko de UEA
+
+
+---
+
+# Panikaj decidoj, nula informado
+
+**Published:** 2025-07-01
+
+**URL:** https://www.liberafolio.org/2025/07/01/panikaj-decidoj-nula-informado/
+
+**Categories:** UEA
+
+La decido pri la venontjara Universala Kongreso estis farita lastmomente, sen ajna publika diskuto aŭ eĉ anticipa informado al la komitato de UEA. Neniam antaŭe du sinsekvaj kongresoj okazis geografie tiel proksime unu al la alia, kaj neniam post Hamburgo 1974 oni tiel malfrue anoncis la kongresurbon.
+
+Dum multaj jaroj validis praktiko, laŭ kiu la kongresurboj de venontaj Universalaj Kongresoj estu anoncitaj almenaŭ du jarojn anticipe. Laŭ la kongresa regularo tiun anoncon la estraro principe faru eĉ tri jarojn antaŭe, kvankam tio ne ĉiam okazis.
+
+La loko kaj dato de la ĉi-jara kongreso en Ĉeĥio estis anoncitaj iom malfrue, en marto 2024, do malpli ol unu kaj duonan jaron antaŭ la kongreso. Poste krome la dato de la kongreso estis ŝanĝita en novembro 2024, do ok monatojn antaŭ la kongreso mem.
+
+Pri la venontjara kongreso longe mankis ajna informo, kaj la 7-an de junio komitatano James Rezende Piton publike demandis al la estraro, kaj aparte al vicprezidanto Fernando Maia, ĉu iĝis pli malfacile trovi esperantistojn pretajn aranĝi Universalan Kongreson. Li atentigis, ke la antaŭa praktiko de pli frua anonco helpis krei “etoson de estonteco” kaj instigi esperantistojn partopreni en postaj kongresoj.
+
+Vicprezidanto Fernando Maia trovis la demandon grava kaj promesis respondi “en la venontaj tagoj”. Intertempe jam finiĝis junio, sed respondo ne venis. En la 29-a de junio tamen ja aperis informo pri la sekva kongresurbo: la Universala Kongreso en 2026 okazos en Graz, Aŭstrio.
+
+– Preskaŭ la sama loko kiel ĉi-jare, ŝajne belorusa anonimulo tuj komentis en la Telegram-kanalo de TEJO .
+
+Efektive Aŭstrio estas najbaro de la ĉi-jara kongreslando Ĉeĥio, kaj la distanco inter la du kongresurboj estas nur 250 kilometroj. Ŝajne neniam en la historio de Esperantujo du sinsekvaj Universalaj Kongresoj estis aranĝitaj tiel proksime unu al la alia – se ne konsideri la jarojn 1939 kaj 1947, kiam la lasta antaŭmilita kaj unua postmilita kongresoj okazis en la sama urbo, Berno en Svisio.
+
+La ĝisnunan rekordon pri la plej proksimaj kongresurboj en sinsekvaj jaroj havis Hamburgo kaj Kopenhago. Tio estis kriza solvo, ĉar ĝis la kongreso en Hamburgo 1974 mankis kandidato, sed fine Kopenhago invitis la kongreson.
+
+Evidentas, ke ankaŭ ĉi-foje ĝis la lasta momento mankis taŭgaj kandidatoj, ĉar en loka raporto pri la ĵusa Aŭstria Esperanto-kongreso eblas legi, ke oni tie diskutis pri la ideo inviti Universalan Kongreson en 2027 por festi diversajn centjarajn jubileojn. Poste respondeculoj de la firmao E@I laŭ la raporto konvinkis la aŭstrojn inviti la kongreson jam por la venonta jaro:
+
+Kaj – unua sukceso – eĉ dum la kongreso, la ĉefaj organizantoj de tiuj mondaj kongresoj, kiuj partoprenis la Graz-an kongreson kaj riĉigis ĝin per giganta librotablo plena de internacia Esperanto-literaturo kaj nefikciaj libroj el la tuta mondo, demandis ĉu Graz ankaŭ povus imagi gastigi la Mondan Kongreson en 2026 anstataŭ 2027.
+
+La Aŭstria kongreso okazis de la 9-a ĝis la 11-a de majo.
+
+Tia lastmomenta ĉasado de kongresurbo forte diferencas de antaŭaj tempoj, kiam oni diskutis ideojn kaj faris sondadojn plurajn jarojn anticipe. Ekzemple en la jaro 2001 oni elektis Pekinon kiel kongresurbon por la jaro 2004 kaj Vilnon por la jaro 2005, kio donis kaj al la aranĝantoj kaj al la kongresontoj multe da tempo por planado.
+
+Nikola Rašić, Konstanta Kongresa Sekretario de UEA de 1988 ĝis 2003, trovas la lastmomentan decidon pri kongresurbo senprecedenca kaj ege malagrabla.
+
+– Mi ne imagas ke io tia eblus en cirkonstancoj kiam UK estis profesie organizata. UEA nun funkcias ŝajne pli virtuale ol reale, kaj la kongresoj ĉiukaze jam ege ŝrumpis. Tio ĉi estas nur ekstra bato, tre bedaŭrinda.
+
+Li ĝenerale trovas la evoluon de UEA dum la lastaj jaroj katastrofa:
+
+– Mi fakte miras ke ankoraŭ io ajn funkcietas.
+
+Francisco Javier Moleón, eksa oficisto de UEA, pridubas, ĉu UEA saĝe faris, fordonante sian kongresan fakon al ekstera firmao.
+
+– Juĝu mem: krom la subita kaj katastrofa ŝanĝo de la dato de la ĉi-jara UK, UEA ne plu respektas eĉ sian progran kongresan regularon, bazan dokumenton de la asocia vivo.
+
+Laŭ la regularo la estraro regule informu la komitaton pri la planoj por la estontaj Universalaj Kongresoj, sed tio ne okazis.
+
+– Certe multaj komitatanoj eksciis nur nun pri la venontjara UK en Aŭstrio.
+
+Laŭ la regularo la ĉefa administrado kaj librotenado de UK estu prizorgata en la CO. La unuan skizon de la buĝeto ellaboru Konstanta Kongresa Sekretario (KSS), kiu prezentu ĝin al la Direktoro de la CO, li atentigas.
+
+– Ne plu ekzistas KKS nek direktoro de la CO. Kaj la nesuperebla blago de la jaro: “Principe la Estraro decidas minimume tri jarojn antaŭe pri la okazigo de UK en difinita lando”. Ne ridigu min.
+
+Kompreneble tre povas esti, ke spite la panike lastmomentan decidon, Graz montriĝos modela kongresurbo, des pli ke tie loĝas Clemens J. Setz, kiu tradukis Auld al la germana, kaj ke la lokaj aktivuloj spite la malfruan ekon bone elturniĝos pri la organizado.
+
+Same povas esti, ke oni efektive elektis la kongresurbon inter pluraj alternativoj – sed ni bedaŭrinde nenion scias pri tiuj eventualaj alternativoj, nek pri la kialoj, pro kiuj estis elektita ĝuste Graz.
+
+
+---
+
+# Ĉu Esperanto fiaskis aŭ sukcesis?
+
+**Published:** 2025-07-08
+
+**URL:** https://www.liberafolio.org/2025/07/08/cu-esperanto-fiaskis-au-sukcesis/
+
+**Categories:** vidpunkto
+
+Ĉu Esperanto estas lingvo sen historio kaj kulturo? Ĉu Esperanto fiaskis, aŭ ĉu male ĝi jam sukcesis? En vidpunkta artikolo Liu Xiaozhe pripensas, kion povas fari la Esperantista komunumo por adaptiĝi al la aktuala mondo.
+
+En certa amplekso kaj grado, Esperanto sukcesis. Tamen ĝi ne fariĝos ĉies dua lingvo por ĉiuj homoj, kiel revis la iniciatinto Zamenhof. Plej multaj homoj en la mondo tute ne zorgas pri lingvaj problemoj. Sufiĉas por ili nur la denaska lingvo. Sub la premo de potencaj lingvoj, Esperanto restos kiel minoritata lingvo kaj hobio de malmultaj homoj. Sed kiel komunikilo, Esperanto ludos neanstataŭeblan rolon en internacia ne-registara kontaktado dum longa historia epoko estontece, pro la vasta dissemiĝo de esperantistoj en la tuta mondo.
+
+Realiĝas ne ĉiuj belaj idealoj. Pasis jam pli ol 130 jaroj post la apero de Esperanto, dume okazis en la mondo grandegaj ŝanĝiĝoj en socio, politiko, ekonomio, scienco, tekniko kaj aliaj flankoj, pro kio Esperanto jam ne plu havas ŝancon fariĝi ĉies dua lingvo. Esperantistoj devas akcepti la realon, forlasante nerealisman iluzion, kaj denove ekzameni Esperanton, revizii la celon kaj strategion de la Esperanto-movado, adaptiĝante al la aktuala situacio.
+
+Propagandante Esperanton, oni devas forlasi la tro idealisman atendon, ke Esperanto fariĝu la dua lingvo por ĉiu. Prezentante Esperanton al neesperantistoj, apud ĝia interna ideo, pli multe emfazu kaj montru ĝiajn praktikajn valorojn, nome ĝian specialan rolon en internacia komunikado, gravan rolon por protekti diversecojn de lingvo kaj kulturo, rolon doni al ordinaraj homoj kapablon komunikiĝi trans landlimoj kaj forigi la baron de etnaj lingvoj.
+
+Propagandu Esperanton laŭ realo kaj fakto. Kompare kun naciaj lingvoj, Esperanto estas vere simpla kaj facile lernebla. Sed multaj esperantistoj troigas tiun facilecon. Ili ŝatas diri, ke Tolstoj ellernis Esperanton en 2 horoj, kaj iuj ellernis Esperanton en 7 tagoj. Tiuj ekzemploj estas sensencaĵoj por ordinaraj homoj, ĉar plejparto de lernantoj ne ellernas Esperanton eĉ en 70 tagoj! Se esperantistoj daŭre propagandos Esperanton en tia maniero, oni dubos la honestecon de esperantistoj, kaj komencantoj, kiuj ne ellernas Esperanton en mallonga tempo, dubos sian lernan kapablon kaj forlasos Esperanton pro deprimiĝo.
+
+Propagandu Esperanton per agado, sed ne nur lingve. Esperantistoj mem persistu uzi tiun lingvon por montri ĝian rolon en internacia komunikado. Vidante ke Esperanto estas efika ilo por komunikiĝi kun homoj de aliaj etnoj aŭ homoj en aliaj landoj, iuj interesiĝos kaj plue provos tiun lingvon.
+
+Propagando de Esperanto certe estas necesa. Propagando donas al la homoj ŝancon koni Esperanton kaj eblon interesiĝi pri tiu lingvo. Sed ĉesu paroli, se aliaj ne interesiĝas. Ne babilu senĉese, ĉar oni abomenas senĉesan paroladon kaj troan reklamon, kiun ofte faras piaj sed tro entuziasmaj religianoj. Ne seniluziiĝu pro la indiferenteco kaj rifuzo de aliaj. En la mondo estas neniu afero, kiu povas interesi ĉiujn. La plej efika propagando estas lerni kaj uzi Esperanton. Vidinte, ke Esperanto estas utila, latentaj interesatoj probable lernos ĝin. Influu aliajn per niaj agoj, ne nur per buŝa reklamo. Oni ofte konsilas al iuj kredantoj: Ne nur reklamu, ke via religio estas pacema, sed agu pace!
+
+En la aplikado de Esperanto, esperantistoj pli atentu kaj zorgu la praktikan efikecon de tiu lingvo, kaj efektive montru la utilecon de Esperanto en la internacia komunikado. La speciala interna idealo de lingvo Esperanto estas ligilo de sento inter esperantistoj, kiu proksimigas la rilaton inter esperantistoj, ĉu samlandaj ĉu diverslandaj. Sed multaj esperantistoj preferas enlandajn kontaktojn al la internaciaj, kaj iuj eĉ kontaktas esperantistojn nur en siaj propraj landoj, neniam uzas Esperanton por internacia kontakto pro tio, ke enlanda kontaktado estas pli facila kaj pli malmultekosta.
+
+Hodiaŭ Interreto jam estas vaste uzata, kaj kontakta kosto per la reto tendencas al nulo, dume multaj esperantistoj ankoraŭ interkomunikiĝas nur kun samideanoj en sia lando. Lerninte Esperanton, ili ne uzas tiun lingvon per kompreni popolojn en aliaj landoj, ne observas la sociojn de aliaj landoj, ne lernas modernajn sciencon kaj teknikon, ne perceptas modernajn konceptojn, sed komunikiĝas nur kun samlandaj samideanoj, legas nur Esperantajn literaturojn tradukitajn el siaj naciaj lingvoj, foliumas novaĵojn en Esperanto nur  tradukitajn el siaj propraj landoj. Tio estas senefika socia agado, se konsideri la komencan celon de Esperanto, la internacia helpa lingvo, kaj estas senutila malŝpareco, konsidere al la tempo kaj energio elspezitaj por la lernado.
+
+Esperantistoj devas aktivi en internaciaj agadoj, plene utiligante la lernitan lingvon, vaste kontakti kaj komunikiĝi kun  popoloj el diversaj landoj per Esperanto. Tio maksimumigas la valoron de la lingvo Esperanto. Laste, sed plej grave, esperantistoj devas eliri el sia fermita rondo, malfermi la pordon al neesperantistoj, kaj aktive integriĝi en la ekstera socio. Esperantistoj helpu aliajn homojn kaj organizaĵojn transpaŝi la lingvan baron por trans-landlimaj internaciaj interŝanĝoj ĉe diversaj flankoj.
+
+Esperantistoj ĉiam fervoras por propagandi la lingvon, sed kiam ili parolas la lingvon por internacia kontakto, kio estas bona ŝanco montri la utilecon de Esperanto, ili preskaŭ neniam invitas la eksteran publikon partopreni en siaj aranĝoj, kaj ili mem malofte partoprenas neesperantajn aranĝojn kun personeco de esperantisto. La esperantistaro ŝajnas esti fermita grupo de idealistoj, kiuj volas nur amuzi kaj ĝojigi sin mem.
+
+La Universala Kongreso de Esperanto, kiu okazas ĉiujare somere en diversaj landoj, estas grandioza evento de la internacia Esperanta komunumo. Miloj da esperantistoj el la tuta mondo kunvenas, kaj dum semajno ili ĝuas la kuneston, parolante la saman lingvon, aranĝante diversajn distraĵojn kaj akademiajn konferencojn. Esperantistoj ebriiĝas en tiu Esperanta etoso, fieras pri tio, ke la kongreso estas la sola internacia konferenco sen tradukistoj en la mondo. Sed ili neniam konsideras inviti neesperantistojn partopreni en tiu aranĝo, kio perdigas la ŝancon, ke ordinaraj homoj spertu la rolon kaj magion de tiu lingvo.
+
+Esperantistoj estas dissemitaj ĉe diversaj profesioj kun diversaj interesoj kaj hobioj. Ili fondis multajn organizaĵojn laŭ interesoj por ordigi la agadojn. Nuntempe estas pli ol 60 internaciaj esperantaj asocioj kunlaborantaj kun la Universalaj Esperanto-Asocio. Sed ili ne konsideris akcepti neesperantistajn membrojn.
+
+Esperantistoj devas fokusi la atenton al la granda publiko. Profitu de Esperanto ne nur esperantistoj, sed ankaŭ aliaj homoj. Tio samtempe estas efika vojo propagandi Esperanton al la publiko.
+
+Oni povas aldoni neesperantajn enhavojn al translandaj Esperantaj agadoj kiel la Universala Kongreso de Esperanto, en kiuj oni akceptas neesperantistojn, kun Esperanta traduka servo al la publiko. Tio donos al homoj, kiuj parolas nur la gepatran lingvon, okazon kontakti aliajn homojn kun diversaj pensoj kaj kulturoj. Samtempe tio montros al la publiko la valoron de Esperanto, kaj pligrandigos la influon de Esperanto.
+
+Fakaj asocioj de Esperanto povas aliĝi al aliaj internaciaj fakaj asocioj, kaj membroj de fakaj Esperantaj asocioj povas aliĝi al landaj aŭ lokaj rilataj fakaj asocioj en personeco de esperantisto. En tiuj neesperantaj asocioj esperantistoj povas helpi la asociojn kontakti alilandajn asociojn kun sama intereso per la lingvo Esperanto. Okazigonte Esperantajn aranĝojn, en kiuj estas alilandaj partoprenantoj, Esperantaj asocioj kaj kluboj povas antaŭ-anonci en lokaj retejoj aŭ komunikiloj informojn por altiri kaj bonvenigi lokajn ordinarajn homojn, kiuj ne kapablas paroli fremdajn lingvojn, ke ili povas kontakti eksterlandajn gastojn kun diversaj kulturoj.
+
+Vizitante alilande, esperantistoj kontaktu ne nur lokajn esperantistojn. Ili povas kontakti la lokan socion per interesaj temoj, dum kio lokaj esperantistoj servu pri lingva traduko, por ke la publiko perceptu utilecon de Esperanto.
+
+Malferminte la pordon de la Esperanta rondo, certe esperantistoj trovos ankaŭ aliajn manierojn, per kiuj Esperanto pli logas la publikon, kaj aliajn vojojn, per kiuj Esperanto efike ludos rolon en la nuna mondo. Lingvo estas ponto, kaj plue Esperanto estas ponto de amikeco kaj komunikado. Tiu ponto estas desegnita de doktoro Zamenhof, kaj kune konstruita kaj prizorgita de esperantistoj en la tuta mondo dum pli ol 100 jaroj.
+
+Sed sur tiu ĉi ponto, transiru ne nur Esperanto-parolantoj, sed ankaŭ aliaj, pli multaj homoj. Esperantistoj devas helpi homojn transpasi la lingvan muron, por ke ili povu rigardi kaj iri al la pli vasta mondo!
+
+Liu Xiaozhe (Solis)
+
+La konata ĉina esperantisto Liu Xiaozhe (Solis) pli amplekse prezentis siajn vidpunktojn en la longa artikolo Esperanto: Historio kaj Kulturo, Fiasko kaj Atingo, Realo kaj Estonteco . Ĉi tiu teksto estas la konkluda, lasta parto de tiu artikolo.
+
+
+---
+
+# La nova estraro jam ne respondas
+
+**Published:** 2025-07-15
+
+**URL:** https://www.liberafolio.org/2025/07/15/la-nova-estraro-jam-ne-respondas/
+
+**Categories:** UEA, movado
+
+La nuna estraro de UEA estas la plej nerespondema dum la pli ol 20-jara historio de Libera Folio – nur en esceptaj okazoj ni ricevis ajnan reagon al niaj demandoj. La sekva estraro ankoraŭ ne estas elektita, sed la kandidatoj jam sekvas la saman praktikon. El la naŭ kandidatoj nur unu respondis al demandoj senditaj de Libera Folio .
+
+La 6-an de julio ni sendis mesaĝon al ĉiuj naŭ personoj, kiuj estas proponataj de la elekta komisiono de UEA kiel anoj de la sekva estraro de UEA. Formale la elekto okazos dum la Universala Kongreso en Brno, Ĉeĥio, sed kredeble ili ĉiuj eniros la novan estraron. Por la posteno de prezidanto estas nur unu kandidato: la nuna vicprezidanto Fernando Maia.
+
+El la naŭ personoj reagis nur tri – du por diri, ke ili ne volas aŭ povas respondi demandojn antaŭ la elekto. Veran respondon sendis nur Seán Ó Riain, irlanda diplomato kaj la nuna prezidanto de Eŭropa Esperanto-Unio, kiu estas proponata por la posteno de vicprezidanto.
+
+Al Seán Ó Riain ni demandis, kiel li vidas la estontecon de la libroservo kaj la Centra Oficejo, kaj kion li volus ŝanĝi en la kampo de eksteraj rilatoj, kiu estos lia ĉefa respondeco. Al la unua parto de la demando li ne respondis.
+
+– Se mi estos elektita, mi ŝatus koncentriĝi pri mia ĉefa respondeco, eksteraj rilatoj, li diris.
+
+Li listigis siajn tri ĉefajn prioritatojn tiukampe. La unua el tiuj estas instigi kaj helpi la landajn asociojn peti oficialan akcepton de Esperanto kiel parto de la nemateria kultura heredaĵo de la koncerna lando.
+
+– Kiel vi scias, Pollando (2014) kaj Kroatio (2019) jam sukcesis fari tion, kaj pro tio la sinteno de la Eŭropa Komisiono al Esperanto jam ŝanĝiĝis pozitive, li komentas.
+
+Lia dua prioritato estas instigi landajn asociojn kaj lokajn grupojn proponi al lernejoj mallongajn kursojn de Esperanto laŭ la plano Multlingva akcelilo , por rapidigi lernadon de aliaj lingvoj kaj fortigi plurlingvecon. Trie, li volus instigi esperantistojn proponi la Eŭropan himnon en Esperanto al neesperantistaj korusoj por tiel diskonigi Esperanton.
+
+Krome reagis al nia demando Jérémie Sabiyumva kaj Zdravka Boytcheva (Bojĉeva), kiuj tamen ne deziris respondi al demandoj.
+
+Al Zdravka Boytcheva ni demandis, kion ŝi opinias pri la nuna stato de la revuo Esperanto kaj ĉu ŝi vidas perspektivojn por evoluigo tiukampe, ĉar tio laŭ la propono de la elekta komisiono estos unu el ŝiaj ĉefaj respondecoj. Laŭ ŝi tamen ankoraŭ estas tro frue ion diri:
+
+– Unue, ni atendu por vidi kio okazos dum la kongreso kaj kion decidos la Komitato.
+
+Libera Folio: Ĉu ne tamen estus bone diri ion pri viaj planoj nun, por ke la komitato sciu, por kio ĝi voĉdonas?
+
+– Por mi estas vere tro frue. Ĉio por la momento estas nur propono, kaj la kandidatiĝo kaj la laborkampoj.
+
+Jérémie Sabiyumva estis la sola el la nunaj estraranoj, kiuj entute reagis al la mesaĝo de Libera Folio . Samkiel Zdravka Boytcheva, ankaŭ li tamen ne volis respondi al niaj demandoj.
+
+– Mi bedaŭrinde ne povas nun respondi, mi certe respondos al vi post la elektiĝo.
+
+Libera Folio: Ĉu ne estus pli bone respondi nun, por ke la komitatanoj sciu, por kio ili voĉdonas?
+
+– Mi komprenas, sed mi nun estas tre okupita kun mia vojaĝo al Kanado, kaj mi ne certas ĉu dum la Dulanda kongreso mi havos tempon.
+
+La ceteraj ses kandidatoj rekomendataj de la elekta komisiono neniel respondis al la demandoj de Libera Folio . Du el ili tamen elpaŝis en la komitata diskutejo: Fernando Maia, kiun la elekta komisiono rekomendas por la posteno de prezidanto, kaj Amri Wandel, kies reelekton la elekta komisiono ne rekomendas, sed kiu evidente pretus akcepti la postenon de prezidanto.
+
+Fernando Maia dankis pro la fido de la elekta komisiono, sed atentigis, ke pri lia elekto kiel prezidanto decidos la komitato:
+
+–  Plej grave estas konscii, ke nenio estas antaŭdifinita. La afero difiniĝos en nia sabata kunsido en Brno kaj nur difiniĝos per la voĉo de la komitatanoj – kiuj estas plenliberaj voĉdoni, memstare kaj sendepende. La raporto de la EK estas laŭ niaj regularoj konsilo – valorega, ĉar veninta de sperta teamo – sed ĝi ne estas definitiva decido, kompreneble.
+
+Amri Wandel siavice atentigis , ke li estas disponebla por la posteno de prezidanto:
+
+–  Mi ne konas la konsiderojn de la Elekta Komisiono por ne proponi duan kandidaton, des pli ke en mia sinprezento en la raporto mi skribis ke principe mi povos laŭbezone plenumi tiun rolon.
+
+Krom tiuj deklaroj, neniu diskuto pri la elekto de nova estraro okazis en la komitata retpoŝta listo.
+
+
+---
+
+# Lo Jacomo kaj Wandel volas resti en la estraro
+
+**Published:** 2025-07-19
+
+**URL:** https://www.liberafolio.org/2025/07/19/lo-jacomo-kaj-wandel-volas-resti-en-la-estraro/
+
+**Categories:** UEA, movado
+
+Amri Wandel kaj François Lo Jacomo rekandidatas por la nova estraro de UEA, sed ne eniris la proponon de la elekta komisiono. Ambaŭ tamen en retmesaĝoj petis subtenon de la komitatanoj. La elekto do ne estos senalternativa, ĉar jam estas 11 aktivaj kandidatoj por maksimume 9 lokoj. Tamen estas preskaŭ certe, ke Fernando Maia estos la sekva prezidanto.
+
+Nova estraro de UEA laŭplane estos elektita la 26-an de julio, en la unua tago de la UK en Ĉeĥio. Unu monaton pli frue UEA publikigis la raporton de la elekta komisiono , kiu listigas 11 validajn kandidatojn kaj rekomendas 9 el la kandidatoj por postenoj en la nova estraro.
+
+La elekta komisiono ne rekomendis la reelekton de du nunaj estraranoj, kiuj valide kandidatiĝis por nova mandatperiodo. Temis pri vicprezidanto Amri Wandel kaj estrarano François Lo Jacomo.
+
+La statuto difinas, ke la estraranoj estu elektitaj inter komitatanoj. Devigaj postenoj estas prezidanto, minimume unu vicprezidanto, ĝenerala sekretario kaj almenaŭ du pliaj estraranoj. Do la plej malgranda ebla estraro havas entute kvin anojn. La statuto permesas ke estu du vicprezidantoj kaj la maksimuma kvanto de ordinaraj estraranoj estas kvin.
+
+La maksimuma permesita kvanto de estraranoj laŭ la statuto de UEA do estas naŭ, kaj tiun maksimuman kvanton la elekta komisiono proponas, ke la komitato elektu. La elekta komisiono ne klarigas, kial ĝi opinias, ke estas bezonata la maksimuma kvanto de estraranoj. La finan decidon pri la kvanto de estraranoj faros la komitato, kiu tamen kutime sekvas la rekomendon de la elekta komisiono.
+
+Post la publikigo de la raporto de la elekta komisiono Amri Wandel en mesaĝo al la komitato atentigis , ke li restas disponebla por estrara posteno, ankaŭ kiel prezidanto. Post kelkaj tagoj reagis en simila maniero ankaŭ François Lo Jacomo.
+
+Li diris, ke li pretas kandidati ankaŭ por la prezidanta posteno, sed nur kondiĉe ke li sciu anticipe pri la aliaj estraraj kandidatoj: laŭ li oni elektu la tutan estraron kiel teamon. Ĉar la kandidatecoj tamen restis sekretaj, li ne povis tiam kandidatiĝi por la prezidanteco, li diras.
+
+”Sed mi ĉiam konfirmis mian kandidatecon por la estraro kaj estis surprizita, ke la Elekto-Komisiono forstrekis mian nomon, kvankam relative multaj el vi subtenis mian kandidatecon, dankon al ĉiuj.”
+
+Li esprimas miron pri tio, ke malaperis inter la estraraj agadkampoj pluraj el tiuj, pri kiuj li aparte respondecis: ĝemelaj urboj, Esperanto-Centroj, la membrokategorio ”amikoj de Esperanto” kaj eĉ informado.
+
+”Pri amikoj de Esperanto, mi konfesas, ke mi mem faris nenion kaj eĉ ne scias, kiom da amikoj aliĝis per la retejo esperanto.net nek ĉu la koncerna retejo (kiun mi reklamas en miaj vizitkartoj) estas ĝisdata. Bedaŭrinde la kunlaboro kun TEJO ne estas sufiĉa, kio estas domaĝa, ĉar la Esperanto-movado ege bezonas aktivajn junulojn.”
+
+Unu el la argumentoj de la elekta komisiono por la nuna rekomendo estas, ke la estraro ne enhavu tro da eŭropanoj. François Lo Jacomo memorigas, ke tamen estas multaj taskoj farendaj en Eŭropo – interalie la vendo de la domo kie nun situas la Centra Oficejo. Li memorigas, ke li mem kontraŭis la vendon.
+
+Alia tasko farenda en Eŭropo laŭ li estas prizorgi la estontecon de la Libroservo. Lo Jacomo komprenigas, ke estas nun tri eblaj lokoj kie la libroservo povus daŭrigi sian funkciadon:
+
+”Mi vizitis antaŭ pli ol unu jaro unu el la eblaj lokoj por tiu libroservo, duan mi konas kaj trian mi baldaŭ vizitos, do pri tiu agado mi povos helpi se necese.”
+
+Libera Folio turnis sin al François Lo Jacomo por ekscii, pri kiuj tri lokoj por la libroservo temas, sed ĝis la publikigo de ĉi tiu artikolo li ne reagis al nia mesaĝo.
+
+Amri Wandel aliflanke rapide respondis al niaj demandoj kaj klarigis, ke laŭ li Fernando Maia en la nuna situacio estus la plej taŭga prezidanto.
+
+”Mi tamen prezentis ankaŭ mian kandidatecon por la prezidanteco, por ne limigi la elektojn al sola alternativo, kiu foje estis kritikata en antaŭaj elektoj”, li skribas al Libera Folio . Grava prioritato, kiun li volus plu antaŭenigi en la estraro de UEA, estas la plua okazigo de Universalaj Kongresoj en diversaj ekstereŭropaj mondopartoj, eĉ kiam ekzistas financa risko:
+
+”Universaligo de Esperanto kaj subteno de E-komunumoj kiuj estas for de la tradicia centro per okazigo de la UK estas laŭ mi unu el la gravaj celoj de UEA. Alia grava aspekto kiun mi plenumus kiel Prezidanto, sed efektive plenumis ankaŭ kiel Vicprezidanto kaj povus plu plenumi helpe al la elektota prezidanto, estas subteno de Landaj Asocioj per fizika partopreno en iliaj Kongresoj.”
+
+Krome Amri Wandel substrekas sian kontribuon al la scienca agado de UEA kaj la Internacia Kongresa Universitato.
+
+Lige kun la rekomendo de la elekta komisiono ne reelekti Amri Wandel aperis en diskutoj en Libera Folio la suspekto, ke li estis maljuste preterpasita ĉar li estas israelano, sed ankaŭ la postulo, ke li devus publike distanciĝi de la agado de la israela registaro en Gazao por esti elektebla kiel estrarano. Ni petis lin komenti la temon.
+
+”Publike mi vidis tiun kritikon nur en unu loko, nome la komentoj post la artikolo en Libera Folio , kaj nur de unu reaginto, kiu kaŝas sin malantaŭ la pseŭdonimo ’duonfidela’. Feliĉe, kiam oni atentigis min pri tiu ĉi komento, aliaj legintoj de LF jam estis reagintaj.”
+
+Li laŭde mencias la reagon de Cyril Brosch, kiu skribis: ”Amri miascie ne estas iel politike aktiva en Israelo. Mi ne vidas kialon postuli de li esprimi iun ajn starpunkton pri sia registaro aŭ lando.”
+
+Kiel indiko pri aktiva subteno de Amri Wandel al la agado de la israela registaro estis en la diskuto menciita lia artikolo pri okazaĵoj en Israelo, aperinta en la revuo Kontakto . Tiun kritikon Amri Wandel trovas nevalida:
+
+”Tiu artikolo estis verkita laŭ la peto de la redaktoro de Kontakto , mallongan tempon post la atako de 7.10, kiam ankoraŭ ne ekzistis ’agado de la israela registaro’. Ĝi priskribas la etoson en Israelo reage al la tiam tute freŝa traŭmo de la kruela masakro farita de Hamas, kaj certe ne rilatas al la registaro aŭ al kio estis okazonta monatojn aŭ jarojn poste. Laŭ mi, la plej taŭga respondo al tiu kaj similaj politikaj provokoj estas la jam menciita citaĵo de Cyril Brosch.”
+
+La finan decidon pri la kvanto de estraranoj kaj la konsisto de la nova estraro faros la komitato de UEA en Brno. Eĉ inter la komitatanoj ŝajnas regi konfuzo pri la elekta proceduro, kvankam ĝi estas klare difinita en la elekta regularo de la asocio.
+
+Post la leteroj de la du nerekomenditaj kandidatoj almenaŭ du komitatanoj publike esprimis deziron, ke tiuj du plu restu kandidatoj. Tio havas nenian sencon, ĉar la rekomendo de la elekta komisiono estas nur rekomendo, kaj ĉiuj validaj kandidatoj plu restas validaj kaj elekteblaj. Eĉ, teorie eblas proponi novajn kandidatojn jam surloke, se restus vakaj postenoj en la estraro.
+
+La komitato en Brno unue devos decidi kiom da estraranoj estu, minimume kvin kaj maksimume naŭ. Poste la komitatanoj sekrete voĉdonos, elektante el la listo de ĉiuj validaj kandidatoj maksimume la deciditan nombron. Do, se estos decidite, ke estu naŭ estraranoj, oni rajtos voĉdoni por maksimume naŭ kandidatoj.
+
+Poste oni anoncos la finan nombron de voĉoj por ĉiu kandidato, kaj tiuj kun la plej multaj voĉoj estos elektitaj, kondiĉe ke ili ricevos minimume duonon el la validaj voĉoj. Se ne estus sufiĉe da kandidatoj, kiuj ricevas la subtenon de almenaŭ duono el la ĉeestantoj, eblos proponi tute novajn kandidatojn.
+
+Plej kredeble estas, ke la komitato sekvos la rekomendon de la elekta komisiono pri la kvanto de estraranoj kaj pri la prezidanto. Povas tamen okazi, ke la bone konataj Wandel kaj Lo Jacomo allogos sufiĉe da subteno por preni la lokojn de iuj el la novaj, malpli konataj kandidatoj.
+
+Estas rimarkinde, ke la elekta komisiono tute ne faris proponon pri novaj komitataj reviziantoj, kiuj samkiel la estraranoj devus esti elektitaj dum la Universala Kongreso. Laŭ la raporto de la elekta komisiono neniu kandidatis por posteno de revizianto, sed tio ne estas valida klarigo – estas la tasko de la elekta komisiono aktive serĉi kandidatojn.
+
+Krome devus esti elektita komisiono pri financo, sed ĝi tute ne estas menciita en la raporto de la elekta komisiono. Eble ĝi estis forgesita.
+
+
+---
+
+# Ana Ribeiro nova prezidanto de TEJO
+
+**Published:** 2025-07-26
+
+**URL:** https://www.liberafolio.org/2025/07/26/ana-ribeiro-nova-prezidanto-de-tejo/
+
+**Categories:** TEJO, movado
+
+TEJO elektis novajn prezidanton kaj estraron, dum la eksigita prezidanto denove kaj ripete postulis demision de ĉiuj estraranoj. Tiuj laŭ li malhelpas al la komitato fari sian laboron.
+
+En la 20-a de julio la komitato de TEJO kunvenis rete por elekti novan estraron. Nur en la antaŭa tago ili ricevis la liston de kandidatoj de la Elekta Komisiono. Entute estis nur 7 kandidatoj el 4 kontinentoj, el kiuj 4 estas virinoj kaj 3 viroj. 5 el la kandidatoj estas nunaj estraranoj, sed la prezidanto, Lucía Montserrat Fernández Barrera, ne rekandidatiĝis.
+
+En sia raporto, la Elekta Komisiono (Tyron Surmon kaj Òscar Hernández Rodríguez) atentigis pri la graveco allogi pli da kandidatoj kaj ke la manko de la tradicia jarfina komitatkunsido kaj la ” ĝenerala kvieteco de la komitatlisto” eble malhelpis allogi kandidatojn.
+
+La sola kandidato por la prezidanteco estas Ana Ribeiro el Brazilo. En sia motiva letero, ŝi skribis ke ŝiaj prioritatoj estas la revuo Kontakto , subteno al la movado ekster Eŭropo kaj plibonigado de instruado de Esperanto al junuloj.
+
+La nuna kasisto Mihary Andrianirina, kaj la nuna ĝenerala sekretario, Snehaĝa Venkateŝ (Snehaja Venkatesh), ambaŭ rekandidatiĝas por siaj ĝisnunaj roloj. Ankaŭ la nuna vicprezidanto, Igor ”Ikvero” Almeida, estas la sola kandidato por tiu posteno.
+
+Estis tri kandidatoj por la postenoj de senofica estrarano: nuna estrarano Alexandre Basque, komitatano C Espoir Ngoma Kasati kaj Victoria Elisha. Victoria estis la sola kandidato kiu ne havas postenon en TEJO kaj la sola kandidato ne rekomendita de la Elekta Komisiono. Dum la komitatkunsido, oni anoncis ke ŝi fakte ne estas membro de TEJO, do ŝia kandidatiĝo ne validis.
+
+Kelkajn horojn antaŭ la komenco de la kunsido, la eks-prezidanto, Michal Matúšov (KuboF Hromoslav), skribis al la komitato postulante la ”eksestraranigon” de ĉiu estrarano. Li ne skribis ion alian krom ”pliaj klarigoj baldaŭ.” Unu semajnon poste, neniu klarigo alvenis. Neniu estrarano aŭ komitatano respondis aŭ komentis pri lia postulo.
+
+Dum la komitatkunsido la solaj kandidatoj por prezidanto, vicprezidanto, kasisto kaj ĝenerala sekretario estis elektitaj.
+
+Oni anoncis ke la elekto por la senoficaj estraranoj estos finfarita en la sekva tago, sed pro teknika problemo la rezulto aperis post kvar tagoj. Ajnakaze, la du kandidatoj estis elektitaj al la du lokoj.
+
+La alia temo de la komitatkunsido estis propono de la eksa prezidanto kaj nuna komitatano Ĉ, Tyron Surmon, kiu volas plifaciligi la proceduron por eksigi prezidanton.
+
+”Ni havis la absurdan situacion kie ĉiuj konsciis ke la prezidanto estas eksiginda, ĉiuj volis tion, sed pro kiel retaj voĉdonoj funkcias en TEJO, ni devis havi debatan fazon de sep tagoj kaj voĉdonan fazon de naŭ tagoj … estis pli ol du semajnoj dum kiu la tuta organizo estis paralizita”, li argumentis.
+
+Li proponis ke anstataŭe, oni havu 24-horan debat-fazon kaj 24-horan voĉdon-fazon. Simile, li proponis proceduron por eksigi komitatanon, ĉar neniu metodo nun ekzistas (krom se iu maltrafas tro da voĉdonoj). Li proponis ke per dutriona majoritato en voĉdono de la komitato oni povu eksigi komitatanon.
+
+”Se estas iu komitatano kiu agas malbone, aŭ kiu multe spamas la komitaton aŭ kie evidentas ke tiu ne agas en maniero kiu estas bona por la organizo, ni ne povas fari ion ajn.”
+
+La eksprezidanto Matúšov parolis dum la kunsido por plendi ke liaj mesaĝoj ne aperas en la retlisto dum semajnoj. Venkateŝ respondis ke la estraro decidis malaperigi la mesaĝojn, ĉar ili rompas la etoson de la retlisto kaj oni ne volas malŝpari tempon per refarado de la decido eksigi Matúšov.
+
+Responde, Matúšov petis ke ĉiuj estraranoj demisiu, ĉar ili malhelpas komitatanon fari sian laboron. Sed la debato tuj ĉesis, ĉar oni atingis la finon de la kunsido kaj la komitatano voĉdonis por ne daŭrigi ĝin.
+
+Robert Nielsen
+
+
+---
+
+# UEA havas novan estraron
+
+**Published:** 2025-07-26
+
+**URL:** https://www.liberafolio.org/2025/07/26/uea-havas-novan-estraron/
+
+**Categories:** UEA, movado
+
+Fernando Maia estas la nova prezidanto de UEA. La komitato de la asocio dum sia unua kunsido en Brno elektis novan estraron. La komitato sekvis la rekomendon de la elekta komisiono, krom ke anstataŭ István Szabolcs post du voĉdonadoj estis elektita François Lo Jacomo. Amri Wandel ne ricevis sufiĉe da voĉoj por denove eniri la estraron.
+
+La komitato de UEA kolektiĝis por sia unua kunveno dum la UK en Brno en sabato, la 26-a de julio. La origina plano estis, ke la kunveno okazu hibride – samtempe rete kaj ĉeeste. Tri tagojn antaŭ la kunveno la estraro de UEA tamen anoncis, ke pro manko de la necesaj teknikaĵoj en la salono, hibrida kunsido ne eblos, kaj instigis ĉiujn komitatanojn kiuj ne povos ĉeesti, nomumi anstataŭantojn.
+
+Tio kaŭzis konsternon ĉe pluraj komitatanoj, kiuj atentigis, ke la anonco venis tute tro malfrue por ke eblu trovi kaj rajtigi anstataŭantojn. Iuj proponis, ke la kunsido tial estu prokrastita. Lastminute tamen la estraro anoncis, ke tamen estis aranĝitaj la necesaj teknikaĵoj, kaj la kunveno tamen povos okazi hibride.
+
+Entute 11 komitatanoj partoprenis rete. Surloke estis pli ol 30, tamen la nombro iom variis konstante, aparte post kiam estis elektitaj la komitatanoj C. Entute estis elektitaj 8 novaj komitatanoj C. Ĉiuj el la kandidatoj estis elektitaj kun granda plimulto de voĉoj. La plej multajn voĉojn (33) ricevis Jérémie Sabiyumva.
+
+La novaj komitatanoj estas Zdravka Boytcheva (27 voĉoj), Duncan Charters (28), Gong Xiaofeng (Arko, 29 voĉoj), Huang Yinbao (Trezoro, 26 voĉoj), Stefan McGill (28), Seán Ó Riain (30), Miora Raveloharison (29), Jéremie Sabiyumva (33).
+
+Dum la elekto de la estraro klare plej multajn voĉojn (43) ricevis Fernando Maia, kiu estis elektita la nova prezidanto de la asocio. La plej malmultajn voĉojn (18) ricevis la antaŭa vicprezidanto Amri Wandel, kies reelekto ne estis rekomendita de la elekta komisiono.
+
+La komitato unue decidis, ke estu naŭ estraranoj, kiel rekomendis la elekta komisiono. En la unua voĉdonado estis elektitaj jenaj estraranoj:
+
+Fernando Maia, prezidanto. Respondeca pri kunordigo, strategia laborplano kaj Amerika agado. (43 voĉoj)
+
+Aleks Kadar, ĝenerala sekretario. Respondeca pri reta kaj landa agadoj. (39)
+
+Gong Xiaofeng (Arko). Respondeca pri ILEI, edukado kaj faka agado. (39)
+
+Jérémie Sabiyumva. Respondeca pri afrika agado. (38)
+
+Seán Ó Riain, 1-a vicprezidanto. Respondeca pri eksteraj rilatoj kaj kontaktoj kun internaciaj organizaĵoj. (36)
+
+So Jinsu, 2-a vicprezidanto. Respondeca pri kongresoj kaj Azia-Pacifika agado. (36)
+
+Miora Raveloharison. Respondeca pri scienca kaj virina agadoj. (33)
+
+Zdravka Boytcheva. Respondeca pri kulturo kaj revuo Esperanto. (27)
+
+Formale pri la respondecoj de la novaj estraranoj decidos la estraro mem. La menciitaj fakoj estas la rekomendo de la elekta komisiono.
+
+Ne estis elektita Amri Wandel, kiu ricevis 18 voĉojn. István Szabolcs kaj François Lo Jacomo ricevis la saman kvanton da voĉoj (24). Ĉar ambaŭ volis plu kandidati, oni aranĝis duan voĉdonadon, en kiu François Lo Jacomo gajnis kun 23 voĉoj, dum István Szabolcs ĉi-foje ricevis 18 voĉojn.
+
+Krome UEA prepariĝas por statutŝanĝo, ĉar la nederlanda leĝo pri neprofitcelaj asocioj fariĝis pli strikta kaj necesas adapti la statuton kongrua kun la leĝoj de la lando, kie UEA estas registrita. Tamen dum la kongresa semajno ne eblas decidi pri la statutŝanĝo, ĉar por tio necesas aparta kunsido.
+
+Esperanto-asocio de Usono prezentis al la komitato sian propran proponon rilate statutŝanĝon, kiun la estraro tamen ne sendis al la komitato, sed eventuale konsideros kiel parton de la diskuto pri la statutŝanĝo. La komitato starigis komisionon pri statuta reformo, entute estis elektitaj ok personoj al tiu komisiono.
+
+Jukka Pietiläinen
+
+
+---
+
+# UEA sekretigas la elekton de kongresurboj
+
+**Published:** 2025-07-27
+
+**URL:** https://www.liberafolio.org/2025/07/27/uea-sekretigas-la-elekton-de-kongresurboj/
+
+**Categories:** UEA, movado
+
+Laŭ la kongresa regularo de UEA, la komitato estu regule informata kaj konsultata pri la elekto de kongresurboj. Laŭ la nova prezidanto de UEA, Fernando Maia, tio tamen ne eblas, ĉar la kandidata urbo ne sciu, ĉu ĝi estas la sola kandidato. Tial la regularo laŭ li devas esti ŝanĝita.
+
+La 110-a universala kongreso de Esperanto estis oficiale malfermita en dimanĉo antaŭtagmeze. La inaŭguro ne komenciĝis ĝustatempe, kvankam la reprezentantoj de UEA sidis sur siaj lokoj sur la scenejo, kaj nenia kialo de la malfruo estis anoncita.
+
+Post 20-minuta malfruo la publiko komencis montri sian malkontenton per aplaŭdetoj. Fine je 10.24 la silenton rompis la eliranta prezidanto Duncan Charters, iom surprize en la ĉeĥa, dirante “Dobrý den, Brno!” (Bonan tagon, Brno!)
+
+Krom la ĉeĥa kaj Esperanto, dum la inaŭguro oni aŭdis ankaŭ la polan, kiun parolis reprezentanton de Pola Instituto en Prago, kaj la armenan, ĉar la kongreson alparolis la ambasadoro de Armenio. Ĉeestis la inaŭguron ankaŭ la ambasadoro de Ĉinio.  Ankaŭ tiu ĉi UK tamen ne ricevis salutmesaĝojn de la ĝenerala sekretario de UN kaj ĝenerala direktoro de Unesko, kiel estis kutimo en la pasinteco.
+
+En la solena inaŭguro estis diskonigitaj la nomoj de novaj honoraj membroj, pri kiuj decidis la komitato. Ĉi-jare ili estis nekutime multaj, kaj krome du el la novaj honoraj membroj jam forpasis. Antaŭe ŝajne nur unufoje forpasinto iĝis honora membro – en 2013 Hallgrímur Sæmundsson mortis unu tagon antaŭ la decido, kaj oni jam ne rezignis pri la elekto.
+
+Mankas oficiala komuniko de UEA, sed la novaj honoraj membroj laŭ raportoj de ĉeestintoj estas Mireille Grosjean, Zsófia Kóródy, Stefan MacGill, Miroslav Malovec, Trevor Steele, Lee Jungkee, Michela Lipari, Paulo Sérgio Viana, kaj la du forpasintoj Wang Chongfang kaj Wei Yida (Vejdo).
+
+Samkiel pri la honoraj membroj, ankaŭ pri la elekto de nova estraro cetere ĝis nun ne aperis oficiala komuniko de UEA.
+
+Sume estas do dek novaj honoraj membroj, se kalkuli ankaŭ la forpasintojn, kio ŝajnas esti rekordo. En 1995 kaj 2001 estis elektitaj po naŭ novaj honoraj membroj kaj en 2001 ok. En la jaroj inter ili temis pri 4-7 honoritoj jare.
+
+Ĉar la nombro de honoraj membroj ade kreskis, en 2004 oni striktigis la postulojn, tiel ke jare aldoniĝis du aŭ tri novaj. En 2005 UEA havis jam 65 honorajn membrojn, sed kun pli striktaj postuloj la nombro iom post iom malkreskis. Sojle de la nuna UK estis 21 honoraj membroj.
+
+Vivantaj honoraj membroj estas financa ŝarĝo al UEA, ĉar ili ricevas senpagan abonon de la revuo kaj aliĝon al UK-oj. La forpasintaj honoraj membroj tamen estas senpagaj.
+
+Iom surprize tute ne estis menciita dum la solena inaŭguro la nomo de Renato Corsetti, kiu forpasis pli frue ĉi-jare. Li estis honora prezidanto de UEA, prezidanto de la asocio 2001–2007, kaj unu el la tutmonde plej aktivaj esperantistoj dum la lastaj jardekoj. Propran salonon en la kongresejo li tamen ja ricevis.
+
+La vetero en dimanĉo montriĝis iom tro pluva komence por la komuna fotado en botanika ĝardeno, kie ĝi estis planita. Anstataŭe la fotado okazis rekte en la salono Zamenhof. La temperaturoj en la kongresurbo estas iom malpli altaj ol dum la pasintaj semajnoj en meza Eŭropo, kio sendube estas preferinda.
+
+En dimanĉo okazis ankaŭ la dua kunsido de la komitato, la supera decidorgano de UEA. La ĉefa punkto de la tagordo estis la aprobo de la jara raporto. La plej grandan parton el la kunsido prenis la diskuto pri kongresoj, aparte pro tio, ke la informo pri la venontjara kongreso venis malkutime malfrue.
+
+Fernando Maia defendis la malfruan informon pri la sekva kongresurbo. Laŭ li venis invitoj por la venontjara kongreso almenaŭ el Skotlando kaj Meksikio, kaj eventuale el aliaj lokoj, kiuj ne estas publikaj. Laŭ li, se la kandidaturbo scias, ke ĝi estas la sola kandidato, la kongresa fako perdas eblecon marĉandi pri prezoj kaj subvencioj.
+
+La fine elektita urbo, Graco (Graz) en Aŭstrio, laŭ Maia montriĝis tre oportuna por la venontjara kongreso en la pasinta majo, kiam tie okazis nacia Esperanto-kongreso, kiu montriĝis sukcesa.
+
+La ĉeha komitatano Libuše Hýblová, kiu ankaŭ estas vicprezidanto de la ĉi-jara LKK, atentigis ke estas malfacile organizi kongreson dum unu jaro kaj ke la decidojn pri la kongresoj necesus fari du jarojn pli frue.
+
+Kiel atentigis Thomas Bormann la nuntempe valida Kongresa regularo postulas, ke la estraro regule informu kaj konsultu la komitaton pri la elekto de kongresurboj. Maia respondis, ke necesus revizii la kongresan regularon.
+
+Laŭ la jarraporto en la marta numero de la revuo Esperanto devus aperi konsistoj kaj agadplanoj de diversaj regionaj komisionoj, kiuj tamen ne aperis en tiu numero, atentigis José Antonio del Barrio.
+
+Dum diskuto pri la financa raporto ĝenerala direktoro Martin Schaeffer rakontis pri sia propra salajro, dirante ke li akceptis ricevi nur 40 procentojn el la salajro de siaj antaŭuloj por persone kontribui al la financa resanigo. Tiel li ŝparigis al UEA ĉirkaŭ 200 000 eŭrojn, li diris.
+
+Se UEA sekvus la salajromodelon kiun ĝi havis antaŭe, la pasintjara sumo por salajroj laŭ li estus 430 000 eŭroj, sed efektive la salajroj egalis al proksimume 127 000 eŭroj. Se aldoni la koston de eksteraj laborfortoj kaj sociajn asekurojn, la pasintjaraj salajrokostoj sumiĝas je proksimume 170 000 eŭroj.
+
+Ankoraŭ mankas finaj financaj raportoj pri la kongresoj de Montrealo (2022) kaj Torino (2023), kio kaŭzis plendojn inter la komitatanoj. Pri tio atentigis la komitataj reviziantoj Guy Matte kaj Michael Boris Mandirola en sia raporto .
+
+Guy Matte dum la kunsido denove memorigis, ke necesas ke kontrolu la financojn de UEA ekstera revizoro, ĉar la komitataj reviziantoj ne estas fakuloj pri la afero. En sia raporto la komitataj reviziantoj rekomendas, ke profesia revizorado de la kontoj por la jaroj 2020–2023 estu preta kaj prezentita al la Komitato en la venontjara Universala Kongreso.
+
+Laŭ raportoj de Jukka Pietiläinen kaj aliaj ĉeestantoj
+
+
+---
+
+# Rezultoj de la Belartaj Konkursoj 2025
+
+**Published:** 2025-08-01
+
+**URL:** https://www.liberafolio.org/2025/08/01/rezultoj-de-la-belartaj-konkursoj-2025/
+
+**Categories:** kulturo
+
+Estis aljuĝitaj la agnoskoj (premioj kaj honoraj mencioj) de la 76-a eldono de la Belartaj Konkursoj de UEA.
+
+Gvidis la BK-ceremonion en la 110-a Universala Kongreso de Esperanto nov-elektita Prezidanto de UEA, Fernando Maia Jr., surbaze de materialo preparita de la sekretario de la BK, Miguel Gutiérrez Adúriz. Konceptis la ceremonion la sekretario kaj la prezidanto de la BK, respektive Miguel Gutiérrez Adúriz kaj Miguel Fernández.
+
+Miguel Fernández registris la videon.
+
+BRANĈO POEZIO
+
+Juĝkomisiono: Krys Williams, István Ertl, Mao Zifu.
+
+Partoprenis 39 verkoj de 21 aŭtoroj el 13 landoj (10 el Afriko, 2 el Ameriko, 2 el Azio, 25 el Eŭropo).
+
+La unua premio estas aljuĝita al ”Al mia unua instruistino nun 90-jara…” de Benoît Philippe el Germanio.
+
+La dua premio estas aljuĝita al ”Amara bukedo” de Nicolau Dols el Hispanio.
+
+La tria premio estas aljuĝita al ”Aŭdu” de Benoît Philippe el Germanio.
+
+Honora mencio estas aljuĝita al ”La fia komedio” de Gonçalo Neves el Portugalio.
+
+Honora mencio estas aljuĝita al ”Buĉado” de Gonçalo Neves el Portugalio.
+
+Honora mencio estas aljuĝita al ”Poacoj sur roko” de Choe Taesok el Litovio/Koreio.
+
+BRANĈO PROZO
+
+Juĝkomisiono: Trevor Steele, Julian Modest, Anina Stecay.
+
+Partoprenis 47 verkoj de 28 aŭtoroj el 16 landoj (11 el Afriko, 5 el Ameriko, 26 el Eŭropo).
+
+La unua premio estas aljuĝita en egaleco al: ”Plagiato” de Jorge Rafael Nogueras el Usono/Portoriko kaj ”Ridindaj amaferoj” de Debra Hamel el Usono.
+
+La dua premio estas aljuĝita al ”La malfacila vivo dum la milito” de Jean de Dieu Kikako el D.R. Kongo.
+
+La tria premio estas aljuĝita al ”Kiam flugilo rompiĝas” de Wei Yubin el Ĉinio.
+
+BRANĈO MIKRONOVELO
+
+Juĝkomisiono: Trevor Steele, Nicola Ruggiero, Antonio Valén.
+
+Partoprenis 43 verkoj de 20 aŭtoroj el 13 landoj (8 el Ameriko, 8 el Azio, 27 el Eŭropo).
+
+La unua premio – premio Paula Adúriz – estas aljuĝita al ”!” de Steven Cybulski el Usono.
+
+La dua premio estas aljuĝita al ”Mortigo de Mnemozino” de Tatjana Auderskaja el Ukrainio.
+
+La tria premio estas aljuĝita en egaleco al ”Kreema Infano” de Lurdes Oliveira el Portugalio kaj ”Ne krokodilu!” de Debra Hamel el Usono.
+
+BRANĈO TEATRAĴO
+
+Juĝkomisiono: Saša Pilipović, Georgo Handzlik, Alena Adler.
+
+Patroprenis 5 verkoj de 5 aŭtoro el 5 landoj (1 el Ameriko, 1 el Azio, 3 el Eŭropo).
+
+La unua premio estas aljuĝita al ”Civilizita konversacio” de Jorge Rafael Nogueras el Usono/Portoriko.
+
+La dua premio estas aljuĝita al ”Ara” de Evgenij Georgiev el Kazaĥio.
+
+La tria premio estas aljuĝita al ”Dominiko Orban en la infero” de Laimundas Abromas el Litovio.
+
+Honora mencio estas aljuĝita al ”Mi estas Neniulo” de Ralph Glomp el Germanio.
+
+SUBBRANĈO MONOLOGO AŬ SKEĈO
+
+Juĝkomisiono: Saša Pilipović, Georgo Handzlik, Alena Adler.
+
+Patroprenis 4 verkoj de 4 aŭtoroj el 4 landoj (1 el Ameriko, 2 el Azio, 1 el Eŭropo).
+
+La unua premio – premio María Cuevas – estas aljuĝita al ”Bopatrino – superheroo, surhavanta antaŭtukon” de Evgenij Georgiev el Kazaĥio.
+
+La dua premio estas ne aljuĝita.
+
+La tria premio estas ne aljuĝita.
+
+INFANLIBRO DE LA JARO
+
+Juĝkomisiono: Ricardo Albert Reyna, Edmund Grimley kaj Martin Markarian.
+
+Partoprenis 4 infanlibroj de 4 eldonejoj el 4 landoj (3 el Eŭropo – 1 el Oceanio).
+
+La premio ”Infanlibro de la jaro” estas aljuĝita al la Eldonejo Ziria, pro la verko ”Vivo” de Roberto Pérez-Franco, ilustrita de Margarita Cubino kaj tradukita de Norberto Díaz Guevara.
+
+BRANĈO ESEO
+
+Juĝkomisiono: Gotoo Hitoshi, Antonio Valén, Giridhar Rao.
+
+Partoprenis 7 verkoj de 6 aŭtoroj el 6 landoj (7 el Eŭropo).
+
+La unua premio – premio Luigi Minnaja – estas aljuĝita al ”Semantika potenco de Esperanto: de kombineblo al signifo” de Toni Espinosa el Hispanio.
+
+La dua premio estas ne aljuĝita.
+
+La tria premio estas ne aljuĝita.
+
+BRANĈO KANTOTEKSTO
+
+Juĝkomisiono: Ankie van der Meer, Flavio Fonseca kaj Miguel Fernández (kiel laŭokaza anstataŭanto de Ĵak Le Puil).
+
+Partoprenis 14 verkoj de 6 aŭtoroj el 6 landoj (4 el Azio, 10 el Eŭropo).
+
+La unua premio estas aljuĝita al ”Ploras la ĉiel’ ” de Petro Palivoda el Ukrainio.
+
+La dua premio estas aljuĝita al ”Amhistorio” de Petro Palivoda el Ukrainio.
+
+La tria premio estas aljuĝita en egaleco al “Nedeca tango” de Ewa Barbara Grochowska el Francio, ”Ĝuu la vivon” de Ewa Barbara Grochowska el Francio.
+
+Miguel Gutiérrez Adúriz
+
+Sekretario de la Belartaj Konkursoj de UEA
+
+( Gazetara Komuniko de UEA )
+
+
+---
+
+# UEA respondis al afablaj demandoj
+
+**Published:** 2025-08-01
+
+**URL:** https://www.liberafolio.org/2025/08/01/uea-respondis-al-afablaj-demandoj/
+
+**Categories:** UEA, movado
+
+La longe promesata Almanako estos lanĉita en la Virtuala Kongreso, oni eksciis en la UK jaŭde. Ĝin eblos aĉeti ankaŭ surpapere. UEA en la estonteco ne plu dependu nur de kotizoj kaj subvencioj de EU, laŭ planoj de la Estraro. Tial la asocio dungis oficiston kun respondeco trovi subvenciojn el aliaj mondopartoj kaj fontoj.
+
+La sesio UEA Respondas okazis en granda ĉambro tute taŭge nomita Corsetti, forpasinta amiko de multaj ĉeestantoj kaj honora prezidanto de UEA. La kutimaj teknikaj koboldoj malice prokrastis la komencon je tri minutoj, en kiu tempospaco eniris eble 20 pliaj kongresanoj. Entute ĉeestis verŝajne 60 ĝis 70. Sidis antaŭ ili la tuta nove elektita estraro, plus la ĝenerala direktoro de UEA, Martin Schäffer.
+
+Fernando Maia Jr., la nova prezidanto de UEA, bonvenigis la spektantaron, kaj laŭdinde koncize kaj klare prezentis siajn kolegojn. Substrekante, ke la publiko estas kerna parto de la funkciado de la sesio, li invitis demandojn, notante, ke la Estraro pretigis jarraporton, kiu estis publikigita en la revuo Esperanto , kaj kiu estas bona bazo por demandoj.
+
+Unu partoprenanto diris, ke ŝi kontrolis la retejon de UEA, sed ne povis tie trovi la Strategian Laborplanon de la asocio. Maia resumis la multan laboron tiurilatan faritan de Duncan Charters, kaj informis, ke ĝi aperu eble en vendredo: ĝi estas nun prilaborata pri novaj kongresoj.
+
+Raia Androvska demandis, kiel ofte kunvenas la Estraro. Aleks Kadar, kiu organizas la kunvenojn, respondis, ke oni kunsidas ”sufiĉe ofte”: ĉiun duan sabaton, krom en feriaj monatoj, kiam aranĝado fariĝas tikla.
+
+Kun anoj loĝantaj ne nur en Eŭropo, sed ankaŭ en Brazilo, Ĉinio kaj Sud-Koreio, necesas kunveni rete, en seancoj, kiuj kutime daŭras du ĝis kvar horojn. (”Kio estas iom tro”, aldonis Kadar.) La kunvenoj estas malfermaj al observantoj de TEJO kaj de ILEI. Krom kunvenoj de la estraro, okazas pliaj, kun la kongresa fako kaj aliaj kunlaborantoj, Kadar rakontis.
+
+Tamiris Queiroz demandis, kiel la Estraro taksas la sukceson de la nuna kongreso. Maia trovis ĝin ”tre sukcesa, dank’ al la kongresa fako kaj Loka Kongresa Komitato”. Li agnoskis, ke estas defioj kaj laborstreĉaj tagoj, sed ke aferoj pasas bone.
+
+Seán Ó Riain, nova estrarano kaj unu el la du vic-prezidantoj, esprimis sian gratulon al la organizantoj, pro la ”ege pozitiva etoso” kaj ĝuindaj ekskursoj. La sola plendindaĵo estas la fojfoja pluvo, pro kiu kulpas neniu.
+
+Queiroz ankaŭ bonvenigis la novajn estraranojn, kaj demandis, kiel ili planas kontribui ”al nia afero”. So Jinsu, notinte, ke ili estas freŝe elektitaj, respondis, ke necesos transpreno de taskoj, kio okazos ambicie sed harmonie.
+
+François Lo Jacomo – ne nova estrarano – respondis, ke li laboras ĉefe rilate Uneskon, kaj intencas partopreni konferencon, kaj okupiĝi pri pli ĝemelaj urboj.
+
+Zdravka Boytcheva notis, ke ŝi, kiel korusistino, ne ekzistus sen publiko, kaj volas vidi kunlaboradon por ke muziko estu tiel abunda por kontribui al la disvastigo de Esperanto, kiel estas libroj. Ŝi estas preta krei komisionon, kaj ŝatus, ke kontribuu ĉiu. La spektantaro tuj aplaŭdis, kiam ŝi substrekis, ke mesaĝoj senditaj finiĝu per: ”Mi povus kontribui per …”
+
+Ŝi nenion menciis pri la revuo Esperanto , kiu laŭ la rekomendo de la elekta komisiono apartenu al ŝiaj respondecoj. Neniuj vidpunktoj aŭ demandoj pri la revuo estis levitaj dum la tuta programero.
+
+Miora Raveloharison diris, ke ŝi respondecos pri virina agado kaj scienco, tamen ankoraŭ ne planis ion detalan. Ŝi invitis ĉiujn partopreni morgaŭan sesion, en kiu ŝi prezentos porvirinan agadon pasintan kaj venontan. Laŭeble ŝi volas kontribui al la scienca fako.
+
+Gabrielo Beecham komentis, ke jam de sep jaroj ne aperas Jarlibro, kaj ke ĝin ne anstataŭis interreta servo, kiu necesos, kiam ne plu estos Centra Oficejo. En dua demando li petis informojn pri la Almanako longe promesata por anstataŭi Jarlibron, kaj pri Delegita Reto.
+
+Fernando Maia klarigis, ke la haltigo de la jarlibro estis ”necesa paŝo pro la financoj de UEA”. Li raportis, ke ”se mi bone memoras” la deficitoj superis 100 000 eŭrojn. En tiu momento oni decidis haltigi la Jarlibron, kaj krei Almanakon, kiu ne aperos ĉiun jaron.
+
+Pro troaj laborŝarĝoj tamen ne eblis intertempe ĝin eldoni. Informis Maia, ke estis invitita ĝin redakti Miĥaelo Bento, kiu loĝas en Brazilo kaj nuntempe estas asistanto al la Ĝenerala Direktoro, dum Maia kunordigas. La Almanako estas nun planata, kaj UEA esperas lanĉi ĝin kadre de la Virtuala Kongreso pli malfrue ĉi-jare.
+
+La Almanako estos ĉefe reta eldonaĵo, sed eblos al tiuj, kiuj volos havi ĝin surpapere, aĉeti ekzempleron. Maia informis, ke eldonos ĝin, uzante laŭmendan sistemon, Eldonejo Libera, kaj ĝin enpaĝigos Impeto, la firmao de la redaktor-paro de la revuo Esperanto , kiu enpaĝigas ankaŭ la kongreslibrojn kaj IKU-librojn.
+
+Maia atentigis, ke formate la Almanako estos simila al la kongresa libro, kaj iom malsama ol estis la Jarlibro. Pluraj aŭtoroj estas invititaj verki raportojn por ĝi.
+
+Maia agnoskis, ke la ”nebona progreso” de la administra sistemo Akso malhelpas efike funkciigi la Delegitan Reton. Li diris, ke la Delegita Reto ne aperos en la Almanako, ĉar ne eblas aperigi senkonsente personajn detalojn.
+
+Martin Schäffer diris, ke eĉ sen Akso adresoj estas tuj ĝisdatigataj, kiam oni informas UEA. Tamen, ĉar ofte la koncernuloj ne sendas novajn detalojn, multaj informoj restas malaktualaj. Li petis, ke oni kontaktu lin, kiam ŝanĝiĝas detaloj.
+
+Aleks Kadar rimarkigis, ke pluraj homoj montris sian intereson pri la temo, kaj proponis, ke okaze de la Virtuala Kongreso oni kunvenigu delegitojn por paroli pri la Delegita Reto.
+
+Renée Triolle komentis, ke Jarlibroj estis facile montreblaj, kaj plenplenaj de informoj pri Esperanto, kaj do estis utiligataj de veteranoj por informi pri Esperanto.
+
+Boris Mandirola levis la temon de la administra subvencio de EU, kaj demandis, kio estis ebla dank’ al ĝi, kaj kion oni intencas fari per ĝi.
+
+Respondis Fernando Maia, ke la administa subvencio estis parto de la financa resanigo de UEA. Li resumis, ke la komitato kaj estraro multe laboris, kaj ke la unua paŝo estis kontrakti kun la firmao Kosmo, kiu estas tre sperta pri malgrandaj projektoj. Tiu kunlaboro realigis kelkajn projektojn en EU kun tre specifa temo: la celo estis subteni ne la Asocion finance, sed diversajn agadojn.
+
+La prezidanto diris, ke Kosmo multe helpis, sed ke UEA nun kunlaboras kun E@I, kiu same estas sperta, sed pri pli grandaj projektoj: unu menciita nomiĝas ”Vortoj”. Li faris komparon: la unua projekto kun Kosmo ricevis 70 000 EUR. Kun E@I, la sumo estas 200 000 EUR.
+
+Maia klarigis, ke la administra subvencio de EU funkcias laŭ la nombro de dungitoj. UEA tiam havis dungitojn ekvivalente al tri plentempaj dungoj , kaj sukcesis akiri 140 000 EUR. UEA multe laboris kun Sara Spanò, kaj dungis ŝin, anstataŭ pagi Kosmon.
+
+Dungiĝis ankaŭ Mallely Martínez, kiu laboris volontule en la sekretaria fako plentempe. (Ŝi estas la edzino de ĝenerala direktoro Martin Schäffer, kio tamen ne rilatas al la decido de la estraro ŝin dungi.) Tria nova dungito estas Zsófia Kóródy. Per ŝia helpo UEA volas antaŭenigi la starigon de Esperanto-Centroj, ekzemple en Afriko kaj Azio.
+
+La administra subvencio laŭ Maia estas parto de la nova plano: ”Ni ne plu povos dependi nur de kotizoj.” Li aldonis, ke same subvencioj de EU ne estu la panaceo, ĉar ili limigas la agadon al EU. Sara Spanò, do, havas respondecon trovi subvencieblojn el aliaj mondopartoj kaj fontoj.
+
+Aldonis Martin Schäffer, ke la financoj estas en ordo. La subvencioj ne plenigas truon, sed donas okazon sekvi novajn eblojn. Ili, ekzemple, helpis starigi la Universalan Kongreson en Aruŝo. Li substrekis, ke same la malavareco de membroj tre helpas.
+
+Boris Mandirola krome demandis, ĉu ekzistas ideoj pri novaj laborkampoj, kaj en kiuj etapoj kunlaboro kun TEJO povas aldoni valoron.
+
+Maia respondis, ke ĉirkaŭ triono de la novaj membroj de TEJO venas de Afriko, kaj ke So Jinsu (Azio) kaj Jérémie Sabiyumva (Afriko) havas apartan atenton pri TEJO en sia mondoparto. Aleks Kadar aldonis, ke troviĝas kunlaboro kun TEJO okaze de la Poliglota Renkontiĝo.
+
+Sabiyumva komentis, ke oni profitas de nova teknologio por atingi novulojn. Seán Ó Riain substrekis la gravon de la junularo en pliaĝiĝanta movado: ”Necesas atingi Afrikon, Azion, Amerikon.”
+
+Al demando pri la libroservo respondis Maia, laŭ kiu ĉio ĝis nun funkcias kiel antaŭe. La stoko restas en Roterdamo, kie plu deĵoras Ionel Oneț, multe subtenante, kvankam li jam emeritiĝis. Klare necesas trovi solvon, ĉar li ne povas kontribui senfine.
+
+Maia klarigis, ke Duncan Charters havis kelkajn dungrendevuojn, kaj ke UEA havas ĉi-rilate kontaktojn en Francio, Pollando, Slovakio, Nederlando. Li sciigis, ke nun diskutiĝas, ĉu konservi stokojn en diversaj mondopartoj: sendokostoj pliboniĝus, se pakaĵoj estus sendataj de relative proksime.
+
+Respondante demandon pri la kultura agado Maia menciis, ke oni ofte kritikas la ĉeson de la eldona agado de UEA. Laŭ li eldonado tamen estas agado kiu postulas multan laboron kaj rimedojn, kaj ne indas ke UEA konkuru kun eldonejoj kiuj jam bele faras la laboron. Kiel sukcesan ekzemplon de la kultura agado li menciis kunlaboron kun la teamo Bobelarto .
+
+István Kabók demandis, kial en la diskutoj pri la ĝis nun ne aperinta Strategia Laborplano oni rekomendas, ke UEA kunlaboru kun ”progresemaj organizoj” kaj laŭ kiuj kriterioj oni tiukaze difinu, kiuj asocioj estas ”progresemaj”.
+
+– Mi konsideras min konservativa homo, tamen mi parolas Esperanton. Mi opinias, ke oni devus forpreni tiun atributon ”progresema”, kaj simple diru ”ĉiuj organizoj kiuj celas apogi Esperanton”. Se venos ekzemple AfD aŭ Marine le Pen, volos apogi Esperanton kaj petos kunlaboron, kion ni faros?
+
+Fernando Maia respondis, ke UEA sekvos sian statuton, ke homaj rajtoj estas baza kondiĉo por la agado de UEA, kaj ke oni fortigu kunlaboron kun organizaĵoj kiuj antaŭenigas tiajn valorojn.
+
+– Nenion la estraro decidos sola, ni intencas kunlaborigi la komitaton.
+
+Finante la sesion, kiu daŭris iomete pli ol unu horon, la nova prezidanto asertis intencon de la estraro plilaborigi kaj kunlaborigi la komitaton pli konstante, kaj invitis ke oni kontaktu lin rekte, se plu restas demandoj.
+
+Tim Owen
+
+
+---
+
+# UEA ŝanĝos statuton sed ne havas strategion
+
+**Published:** 2025-08-02
+
+**URL:** https://www.liberafolio.org/2025/08/02/uea-sangos-statuton-sed-ne-havas-strategion/
+
+**Categories:** movado
+
+Kvar landaj asocioj de UEA riskas eksigon, inter tiuj Rusia Esperanto-Unio, konstatis la komitato en vendredo. Plu mankas fina versio de la strategia plano, kiun la nun eliranta prezidanto Duncan Charters nomis grava prioritato en 2020. Nova retejo estu preparita “rapide sed senhaste”.
+
+La vendreda kunsido de la komitato de UEA decidis pri la komenco de statutŝanĝo, kiu devas okazi pro la volo kongruigi la statuton de la asocio kun la nederlanda leĝo pri neprofitcelaj asocioj. Kiel konstatis la profesiaj revizoroj kiujn UEA uzas jam de kelkaj jaroj, la statuto havas partojn, kiuj ne kongruas kun la leĝo.
+
+Unu el la menciitaj ekzemploj estis, ke UEA laŭ sia statuto emas kolekti kapitalon, ĉar ekzemple granda parto el pli grandaj donacoj iras rekte al la ĝenerala kapitalo, kvankam la donacinto tion ne celis. La kolektado de kapitalo ne devus esti unuavica tasko por neprofitcela asocio en Nederlando.
+
+La fakto ke estas nun devige ŝanĝi la statuton samtempe ebligos fari ankaŭ aliajn modifojn al la statuto.
+
+Unu el la proponoj jam alvenintaj al la estraro kaj la komitato estas tiu de la usona landa asocio. Laŭ ĝi UEA  havu pli da komitatanoj kiuj reprezentas la individuajn membrojn, sed ankaŭ malaltigu la kvanton de membroj, kiun landa asocio bezonas por plia komitatano.
+
+Nuntempe landaj asocioj povas ricevi duan komitatanon nur post mil membroj, dum la usona propono metas tiun limon al nur 250.
+
+La limdato por sendi pliajn proponojn pri statuta reformo estas la fino de ĉi tiu jaro. La estraro devus raporti al la komitato ĉiun duan monaton pri la progreso en la preparado de nova statutpropono. La celo estas ke en sekva ordinara komitatkunsido dum la Universala Kongreso en Graco (Graz) oni jam povu akcepti la proponon por la nova statuto.
+
+La komitato aŭdis ankaŭ raporton de la ĝenerala sekretario pri landaj asocioj. Nuntempe UEA havas 72 landajn asociojn kaj krome tri asociojn, kun kiuj ne estas kontaktoj. Temas pri la asocioj en Ebura bordo, Estonio kaj Norda Makedonio.
+
+El tiuj landoj nur Estonio ŝajnas havi esperantistojn, kvankam la kontakto kun la landa asocio ĉesis. Se kontakto kun tiuj landaj asocioj ne estos restarigita dum tri monatoj, UEA konstatos tiujn landajn asociojn eksiĝintaj.
+
+Krome Rusia Esperanto-Unio ne pagis dum pasintaj jaroj siajn kotizojn, kaj tial necesos fari decidon pri ĝia eksigo. Kelkaj komitatanoj tamen atentigis, ke la decido pri la membreco de REU ne devus esti pure administra, sed necesus ankaŭ fari politikan decidon.
+
+Laŭ la statuto de UEA, aliĝinta asocio povas esti konsiderata kiel eksiĝinta, se ĝi “ĉesas plenumi la kondiĉojn priskribitajn en la Ĝenerala Regularo, kaj se tion formale konstatas la Komitato surbaze de raporto de la Ĝenerala Direktoro.”
+
+En 2022 Rusia Esperanto-Unio protestis kontraŭ la decido de UEA ne reelekti la ĉefdelegiton por Rusio, kaj en oficiala letero al UEA skribis:
+
+Ni ripetas nian proponon daŭrigi la ĉefdelegitecon de Svetlana Smetanina kaj avertas, ke ni ne kunlaboros kun alia Ĉefdelegito, se li aŭ ŝi estos enoficigita rezulte de la maljusta eksigo de la nuna.
+
+Neniu ĉefdelegito por Rusio ĝis nun estis elektita de UEA, kaj antaŭ du jaroj REU decidis “haltigi sian membrecon” en UEA proteste kontraŭ la eksigo de Smetanina. En la praktiko tio signifas, ke REU ne plu pagas sian kotizon al UEA, kaj tiel ne plenumas la kondiĉojn por membreco.
+
+La komitato elektis István Szabolcs el Hungario kaj Guy Matte el Kanado kiel komitatajn reviziantojn kaj taskis al la estraro kaj al la elekta komisiono fari proponon pri Financa komisiono ĝis la fino de aŭgusto.
+
+La komitato kunsidos distance sekvafoje en novembro, kiam ĝi traktos buĝeton por la jaro 2026 kaj eventuale aliajn financajn aferojn. Jam nun la komitato decidis laŭ la propono de la ĝenerala sekretario ne altigi la bazan membrokotizon por la venonta jaro.
+
+Inter la komitataj forumoj kiuj raportis pri la rezultoj de sia kunveno estis tiu pri strategio. Ĝi tamen ne povis prezenti finan version de la strategia laborplano, kies preparo devis esti unu el la prioritataj taskoj de la asocio dum la du mandatperiodoj de Duncan Charters.
+
+La antaŭa strategia plano de UEA ĉesis validi en 2017, kaj dum la ĵaŭda programero “ UEA respondas ” la unua demando de la publiko temis pri la manko de tia plano. La nova prezidanto de la asocio, Fernando Maia, aludis ke la komitato en vendredo ja ricevos aktualan laborplanon por aprobo.
+
+La dokumento prezentita al la komitato tamen neniel povas esti nomata preta laborplano. Ĝi refoje listigas diversajn punktojn kiuj estis levitaj dum la multjaraj diskutoj, kun komentoj kiel “Valoras enketi pli pri tio, ĉar tio ne estas nia nuna politiko” kaj “Atentu kio estas realisma, kaj prioritatigu agadojn por kiuj ni havas la homfortojn kaj financan apogon, kiam necese.”
+
+Kiel unu el la prioritataj celoj en la rekomendoj de la forumo pri strategio denove estas menciata modernigita retejo. Tiun prioritatan celon UEA starigis al si jam en 2013, sed la planata dato de la realigo daŭre estis ŝovata antaŭen .
+
+La rekomendo de la komitata forumo tiurilate estas iom enigma:
+
+La partoprenantoj konsentas ke necesas progresigi la projekton AKSO k.e.p. rapide, tamen kun tempo por ĉion pritaksi plene kaj senhaste.
+
+La partoprenantoj de la komitata forumo pripensis ankaŭ la diskutpunktojn pri Centra Oficejo kaj konkludis jene:
+
+Sen specifaj komentoj, sed ĉeestantoj menciis la deziron havi portempan oficejon en Roterdamo kun bazaj funkcioj de Centra Oficejo kiam vendiĝos la nuna domo.
+
+La komitato akceptis la raportojn de la dumkongresaj komitataj forumoj, kaj la kongresan rezolucion.
+
+Laŭ informoj de Jukka Pietiläinen
+
+
+---
+
+# Smetanina denove prezidanto de REU
+
+**Published:** 2025-08-12
+
+**URL:** https://www.liberafolio.org/2025/08/12/smetanina-denove-prezidanto-de-reu/
+
+**Categories:** movado
+
+Rusia Esperantista Unio (REU) elektis kiel sian novan prezidanton Svetlana Smetanina, la eksigitan ĉefdelegiton de UEA. REU plu ne pagos siajn kotizojn al UEA, kvankam la asocion nun minacas eksigo.
+
+La landa asocio de UEA en Rusio, REU, en 2022 protestis kontraŭ la decido de UEA ne reelekti la ĉefdelegiton por Rusio, kaj en 2023 deklaris, ke REU ”haltigas” sian membrecon en UEA pro la sama kialo. En la praktiko tio signifas, ke REU de tiam ne pagas siajn kotizojn al UEA.
+
+La komitato de UEA dum la ĵusa Universala Kongreso en Ĉeĥio konstatis , ke pro la nepago de kotizoj necesos fari decidon pri eksigo de REU. Tiu novaĵo tamen ne influis la decidojn de la 33-a konferenco de REU, kiu okazis apud Krasnojarsko unu semajnon post la fino de la UK.
+
+Dum la konferenco oni ja diskutis la rilatojn de la asocio kun UEA, sed nenion novan decidis pri la temo, interalie ĉar neniuj reagoj de UEA venis al la komuniko de REU farita antaŭ du jaroj. Sekve REU plu ne pagos siajn kotizojn, kaj formala eksigo el UEA proksimiĝas.
+
+Kiam la estraro de UEA en aŭgusto 2022 decidis ne reelekti Svetlana Smetanina kiel ĉefdelegiton, la motivo estis, ke ”ĉiuj ĉefdelegitoj kiel ofichavantoj de UEA kaj reprezentantoj de la Asocio en siaj landoj devas atenti pri siaj eldiroj, ĉu publikaj, ĉu privataj, ĉar en ĉiu momento ili reprezentas UEA kaj iliaj eldiroj respektu la statutajn celojn, statutan neŭtralecon kaj statutajn difinojn de la Asocio.”
+
+La komentoj, kiuj ekigis la diskuton pri la statuso de la ĉefdelegito de UEA en Rusio, Svetlana Smetanina, aperis en Facebook la 26-an de julio 2022. Laŭ la estraro de UEA la komentoj de Smetanina subtene al militaj agoj ne konformas al la Statuto de UEA kaj damaĝas la publikan bildon de la asocio.
+
+Smetanina mem poste neis, ke ŝi verkis la komentojn aperintajn en Facebook ŝianome, sed ne klarigis, kiel povis okazi, ke ili aperis. Krom tiuj komentoj, kies aŭtorecon ŝi dementas, ŝi ŝajne ne esprimis sin publike pri la milito en Ukrainio. Tion aliflanke faris la prezidanto de REU, Aleksandr Lebedev, kiu publike subtenis  ”kompletan likvidon de la nuna ukraina ŝtato ” .
+
+La ĵusa REU-konferenco konstatis, ke en la asociaj diskutoj ne estas permesataj ajnaj politikaj esprimoj kaj ke la pozicio de ĉiu membro estas ties privata afero. La rezolucio de la konferenco aparte mencias, ke neniu havas la rajton paroli nome de REU aŭ ”rusiaj esperantistoj” kiel kolektivo.
+
+Kiel prezidanto de REU anstataŭ Aleksandr Lebedev estis elektita Svetlana Smetanina, kiu jam estris la asocion dum la jaroj 2013–2019. Lebedev estis prezidanto de 2019 ĝis nun.
+
+Kvankam Lebedev ne estis reelektita kiel prezidanto, li restas estrarano. Krome la novan estraron eniris Jevgenij Bojĉin, Abduraĥman Junusov, Jurij Karcev, Ilja Muravjov, Anton Rudnev, Vladimir Sapoĵnikov kaj Marija Verzun.
+
+Libera Folio petis de Svetlana Smetanina komenton pri la estonta rilato de REU al UEA, sed ne tuj ricevis respondon.
+
+
+---
+
+# Nekutime internacia IJK en Indonezio
+
+**Published:** 2025-08-19
+
+**URL:** https://www.liberafolio.org/2025/08/19/nekutime-internacia-ijk-en-indonezio/
+
+**Categories:** TEJO, movado
+
+Dum la ĵusa IJK en Indonezio multaj kongresanoj manifestaciis kontraŭ ”genocido en Palestino” kaj alvokis al TEJO aliĝi al la kondamno. Oni anoncis, ke la sekva IJK okazos en Katalunio. La eksigita prezidanto sensukcese provis refoje iĝi komitatano. La komitato eĉ ne donis al li parolrajton dum la kunsido. Multaj eŭropanoj spertis stomakproblemojn kaj oni ofte aŭdis la anglan, Tyron Surmon rakontas en sia raporto.
+
+La 81a Internacia Junulara Kongreso de Esperanto (IJK) ĵus okazis en Cisarua, Indonezio. Entute estis 140 partoprenantoj el 33 landoj, inter kiuj 122 partoprenis la tutan tempon. Ĉeestis la tuta Estraro de TEJO kaj du estraranoj de UEA (So Jinsu kaj François Lo Jacomo). La plej oftaj loĝlandoj estis unuavice Indonezio, duavice Japanio, kaj triavice Aŭstralio kaj Hispanio.
+
+Tiu ĉi estis la unua IJK ekster Eŭropo post 2017, kiam ĝi okazis en Togolando. Konsidere ke mi ĉeestis IJKojn nur ekde 2018, miaj IJK-spertoj estas plene eŭropaj, do miaj taksoj efektive komparas tiun ĉi kongreson kun la ordinaraj eŭropaj.
+
+La kongreso grandparte iris glate, kun ĉio kion oni kutime atendus de IJK. Estis novula programo, ĉiutaga kurso por komencantoj, bone faritaj Malfermo kaj Fermo, koncertoj, bunta tagprogramo kaj specialaĵoj kiel Interkona Vespero, Internacia Vespero, Junulara Movada Foiro kaj Trinkomanĝa Nokto. Mi taksas ke la kvalito de tiuj grandskalaj ĉiam okazantaj ecoj de la Kongreso estis eĉ pli bona ol ĉe kutima IJK.
+
+Ankaŭ la ”esperantisteco” de la partoprenantoj havis la saman kvaliton kiel kutime. La organizteamo sume parolis dekojn da lingvoj, kaj unu indoneziano scipovis pli ol 10 lingvojn. Estis multaj homoj kiuj devenis de unu lando sed loĝas en alia. Unu partoprenanto biciklis dum 6 monatoj el Francio por ĉeesti la kongreson, alia tute ne flugis, sed uzis trajnojn grandan parton de la vojo el Eŭropo.
+
+Ĉefa afero kiun mi rimarkis, estis kiel tiu ĉi IJK estis multe pli internacia. Kutime la IJK estas grandparte eŭropanoj, kun eta kolekto de alikontinentanoj (inter kiuj multaj fakte loĝas en Eŭropo). Do ĉeesti vere internacian IJK-n estis nova sperto por mi. Germanoj, francoj kaj italoj kune sumis nur ~10 homoj (kiam kutime sumis pli kiel 50). Inverse, estis fortaj taĉmentoj el landoj kiujn mi kutime ne vidas ĉe kongresoj.
+
+Aparte menciindas Vjetnamio, Orienta Timoro, Filipinoj kaj D.R. Kongo, kies ĉeestoj estis forte videblaj kaj senteblaj dum la kongreso, per viglaj kontribuoj al prelegoj, trinkomanĝa nokto kaj Internacia Vespero. Ekzemple, estis la iniciato #KuruPorKongo (gvidata de germana junulo) kie partoprenantoj sponsoras kurantojn, kun specifa sumo dependan de la distanco kiun ili sukcesis trakuri ĉirkaŭ la kongresejo ene de duonhoro.
+
+Per tio oni finfine kolektis pli ol 1500 eŭrojn por subteni projektojn gvidatajn de lokaj esperantistoj en milittrafita orienta D.R. Kongo.
+
+La kongresejo estis hotelo en montaro, sufiĉe izolita. Funkciis bone kun la tuta spaco nur por la IJK, ĉiuj loĝejoj kaj ĉefaj salonoj proksimis unu al la alia, kaj naĝejo estis forte bonvena. Tamen, Cisarua estas konata kiel ”la urbo de pluvo”, kaj tio montriĝis, kun sinsekvaj tagoj de pluvego kiam nek suno nek la montaro videblis.
+
+Aldone, pro tiu izoliteco oni malpli sentis ligon kun la loka ĉirkaŭaĵo. Kontraste kun la pasintjara IJK en Litovio, kiu sentiĝis tre litova, ŝajnis ke la kongresejo povus esti ie ajn. Se mi ne mem vojaĝus ĉirkaŭ Indonezio la semajnon antaŭe, mi verŝajne sentus ke mi ne sufiĉe bone konatiĝis kun la lando sole per la IJK.
+
+Flanke de TEJO, tri organizaj punktoj aparte menciindas. Unue, tiu ĉi estis la unua kongreso ekde la dungo de specifa kongresa oficisto (la eksprezidanto Albert Stalin Garrido). Li multege laboris por la kongreso, kaj justas diri ke la kongreso ne povus okazi sen lia dungo, se konsideri la malfacilaĵojn organizi IJK-n ekster Eŭropo.
+
+Due, per la fonduso Partoprenu IJK-n oni sukcese subtenis la ĉeeston de deko da partoprenantoj, pli ol ĉe iu ajn antaŭa IJK. Trie, prioritato de la kongreso estis dokumenti ĝin pli bone ol antaŭe. Specife ĉe Instagramo kaj TikTok, la rezultoj estis senteblaj, kun multe pli da dumkongresaj afiŝoj ol antaŭe.
+
+Okazis la ordinara komitatkunveno de TEJO. Oni jam alelektis novan Estraron dum reta eksterordinara komitatkunveno en julio, do tiu ĉi kunveno trafis aliajn temojn, nome: kelkajn reglamentŝanĝojn; alelekton de Elekta Komisiono kaj konfidencpersonoj; aprobon de Strategia Plano 2026-2030 (kiun mi kunverkis) kaj Jarraporto 2024.
+
+La ĉefa interesaĵo temis pri la eksigita eksprezidanto Michal Matúšov (KuboF Hromoslav). Kvankam li strebis reeniri la komitaton, oni konstatis ke li jam tro aĝas, kaj lia strebo nomumi novan komitatanon por Vikimedio Esperanto (organizo kiun li regas) kaj poste esti ”anstataŭanto” por tiu komitatano estis rifuzita – pro tio ke la homo ne mem petis la anstataŭadon, kaj fakte ne estas valida membro de TEJO por 2025.
+
+Laŭ la Reglamento de TEJO, nekomitatanoj ja rajtas paroli dum komitatkunveno se ili estas membroj de TEJO, se la komitato tion aprobas. Sed ĉi-foje la komitato voĉdonis per granda plimulto ne permesi al li paroli.
+
+Oni ankaŭ anoncis la IJK-n 2026, kaj dum la komitatkunsido, kaj dum aparta prezento dum la lasta tago de la Kongreso. La IJK 2026 okazos en Tiana, Katalunio, de la 9a ĝis 16a aŭgusto. Dum la lastaj jaroj KEJ iĝis unu el la plej aktivaj landaj sekcioj de TEJO, kun sia ĉiujara evento ’RenKEJtiĝo’ akiranta internacian partoprenantaron. La plej rimarkinda afero estas ke plena suneklipso okazos dum la IJK, la unua en Eŭropo ekde 1999 (kiam oni spektis ĝin dum la IJK en Veszprém, Hungario).
+
+Indonezianoj ĝenerale forte subtenas Palestinon, kaj tio videblis dum la kongreso. Estis 2-hora programero ’Libera Palestino’ (gvidata de indoneziano) kaj kandelluma vigilo kun multaj partoprenantoj, inkluzive afiŝojn kontraŭ ”Israela genocido”.
+
+Tio rezultis en komuna deklaro kiu alvokis al TEJO, ke ĝi faru oficialan deklaron kontraŭ la agoj de la israela registaro. Ne klaras ĉu oni nun planas okazigi specifan estraran aŭ komitatan voĉdonon pri tio.
+
+Manĝoj menciendas. Plimulto de la eŭropanoj malsaniĝis dum la kongreso, eĉ se azianoj kaj afrikanoj ne spertis problemojn. Ne temas pri kontaĝa infekto, sed stomakaj problemoj – verŝajne kaŭzitaj de la kuirejo (tiuj kiuj vizitis ĝin donis malaltajn taksojn pri ties higieno) kaj kranakvo.
+
+Ne estas kulpo de la organizantoj – la fenomeno estas vaste konata por eksterlandanoj en Indonezio, kaj mi mem spertis la saman malsaniĝon dum propra vojaĝo semajnon antaŭ la kongreso – sed la afero menciendas, konsidere kiom ĝi efikis sur la IJK-sperton de multaj kongresanoj.
+
+La nokta vivo estis malpli vigla ol dum kutimaj IJK-oj. Grandparte tio rilatas al la kvanto kaj konsisto de la partoprenantoj. La IJK estis iomete malpli granda ol en la pasintaj jaroj, kaj pli aĝa (la mezuma aĝo estis 31, pli alta ol en ordinara IJK), do foje ne kolektiĝis ”sojla amaso” de partoprenantoj por noktaj programeroj kiel diskejoj.
+
+Simile, kvankam drinki ne kontraŭleĝas, indonezianoj grandparte estas islamanoj kiuj ne drinkas.
+
+Sed krome organizaj decidoj influis la aferon. Mi bedaŭris ke la trinkejo ĉiutage malfermiĝis nur post la lasta vespera programero (foje  je la 23-a horo) – tio certe malinstigis viglan noktan vivon. Kaj la decido ĉiunokte strebi fari kaj diskejon kaj gufujon kaj karaokeon samtempe tro dividis la partoprenantaron.
+
+La lingva nivelo estis malpli alta ol en kutima IJK. Krokodilado estas atendebla (kompreneble oni ofte aŭdis la indonezian), sed ankaŭ la angla ofte estis aŭdata. Ŝajne por multaj partoprenantoj, en la praktiko la angla – ne Esperanto – estis la pli ofte uzata lingvo de interkomunikado.
+
+Tyron Surmon
+
+La aŭtoro estas brita esperantisto. Li estis prezidanto de TEJO en 2023-2024 kaj nun estas komitatano.
+
+
+---
+
+# Konkursa komuniko kaŭzis konfuzon
+
+**Published:** 2025-08-26
+
+**URL:** https://www.liberafolio.org/2025/08/26/konkursa-komuniko-kauzis-konfuzon/
+
+**Categories:** movado
+
+Gazetara komuniko de UEA pri du sciencaj konkursoj kaŭzis ampleksajn diskutojn kaj kritikon. Ĉu ĵuriano kaj kunordiganto de la konkursoj premiis sin mem? Laŭ Amri Wandel tamen neniam estiĝis konflikto de interesoj.
+
+Universala Esperanto-Asocio la 16-an de aŭgusto publikigis iom konfuzan gazetaran komunikon pri la rezultoj de du sciencaj konkursoj kaj pri la scienca programo de la ĵus okazinta Universala Kongreso en Ĉeĥio.
+
+La aperigon de la komuniko sekvis bruaj diskutoj en pluraj forumoj, ĉar eblis konkludi, ke organizantoj de la konkurso premiis sin mem. Laŭ la originala teksto inter la membroj de la ĵurio estis Carlo Spinola, dum la konkursojn kunordigis Amri Wandel.
+
+La unuan lokon en la konkurso Premio Pirlot pri sciencaj libroj gajnis la verko Astronomio kaj astrofiziko por ĉiuj , verkita de A. Wandel kaj C. Spinola. Krome duan lokon en la sama konkurso gajnis la pasintjara IKU-libro kunredaktita de A. Wandel. Aldone Wandel gajnis la unuan lokon en la kategorio “longa scienca prelego” en la konkurso Premio Power.
+
+Heroldo Komunikas publikigis la tekston de la gazetara komuniko senŝanĝe, sed kun grasigo de ĉiu apero de la nomo Wandel – evidente por subkomprenigi ke temas pri konflikto de interesoj.
+
+En diskuto en la komentoj de Libera Folio “Johano” resumis sian komprenon pri la afero:
+
+AIS organizis du konkursojn; la prezidanto de AIS kunordigis ilin; la trezoristo de AIS estis en la ĵurio; la prezidanto de AIS mem partoprenis en ambaŭ konkursoj; la prezidanto de AIS gajnis la unuan premion en ambaŭ; la verko per kiu la prezidanto de AIS gajnis en unu konkurso estis verkita kun Carlo Spinola; Carlo Spinola estis unu el la ĵurianoj, do li premiis sin mem.
+
+Poste tamen montriĝis, ke Carlo Spinola ne ekzistas kaj neniu ĵuriano premiis sin mem. La premiito estas la hispano Carlos Spinola, dum ĵuriano en la koncerna konkurso estis la italo Carlo Minnaja, tute ne menciita en la gazetara komuniko.
+
+Efektive estis du malsamaj ĵurioj por la du malsamaj premioj. Tamen nur la ĵurianoj de la nova premio Power estis listigitaj en la komuniko, dum tute ne estis menciite, ke temis pri du apartaj ĵurioj. Nur poste, kiam la komuniko estis republikigita diversloke kaj la konfuzo iĝis evidenta, UEA kompletigis la informon pri la ĵurioj en sia retejo kaj korektis la nomon de Carlos Spinola.
+
+Amri Wandel tamen ja estis kaj organizanto de la konkursoj kaj samtempe premiito. Ni petis lin komenti la aferon.
+
+Libera Folio: Ĉu vi komprenas la kritikon pri intereskonflikto? Kiel vi sintenas al ĝi?
+
+Amri Wandel: – Specife, mi nek iniciatis la premiojn (Pirlot funkcias de 1994, kaj Power estis iniciatita ĉi-jare de ĝia usona mecenato), nek servis en la ĵurioj de ambaŭ premioj. Mi ja estas kunorganizanto de la konkursoj nome de AIS, sed tio apenaŭ povas esti konsiderata kiel intereskonflikto. Estas simila situacio kiel en IKU, kies sekretario mi estis dum preskaŭ 20 jaroj, kaj tamen estis ofte elektita de la komisiono kiel IKU-preleganto.
+
+Ĉu la rondoj de esperantistaj sciencistoj estas tiel malgrandaj, ke ne eblas eviti tiajn koliziojn?
+
+– Kiel mi jam respondis, esti kandidato en konkurso kiun oni kunorganizas (sed ne prijuĝas) ne estas kolizio. Se tamen oni opinias ke eĉ roli kiel organizanto (kvankam ne ĵuriano) estas kolizio, la respondo estas jes. Kiel mi jam respondis, mi ne estis membro de ajna el la du ĵurioj.
+
+Noto de la redakcio: En pli frua versio la demandoj al Amri Wandel kaj liaj respondoj aperis en misa ordo. Ni pardonpetas pro la eraro.
+
+
+---
+
+# Esperanto malpermesita en Esperanto-kongreso
+
+**Published:** 2025-09-01
+
+**URL:** https://www.liberafolio.org/2025/09/01/esperanto-malpermesita-en-esperanto-kongreso/
+
+**Categories:** movado
+
+En kiu lingvo oni parolu en nacia Esperanto-aranĝo? La demando estas same malnova kiel la organizita Esperanto-movado. Ofte oni plendas pri troa krokodilado en la nacia lingvo, sed en la ĵusa asembleo de Itala-Esperanto okazis male: oni oficiale malpermesis al la vicprezidanto de la asocio paroli en Esperanto.
+
+Dum la lasta semajno okazis en Salsomaggiore Terme en norda Italio la 91-a Itala Kongreso de Esperanto. La kongreso havis riĉan programon kun prelegoj, ekskursoj, koncertoj kaj kurso de Esperanto.
+
+La programo enhavis ankaŭ la jaran asembleon de Itala Esperanto-Federacio. Unu el la partoprenantoj estis la konata itala esperantisto Brunetto Casini, vicprezidanto de la asocio, kiu deziris paroli pri la oficiala revuo de la asocio. Li tamen estis haltigita, kiam li komencis paroli en Esperanto, kaj la kunsidestro postulis, ke li parolu en la itala.
+
+– En la tuta kunveno ĝis tiam estis nur intervenoj en la itala, kun pluraj eksterlandanoj kiuj foriris iel malĝojaj.  Mi preferas paroli en Esperanto, kaj dum la pasintaj jaroj kaj jardekoj (de 1972 mi partoprenas tiun kunvenon) ĉiam oni akceptis intervenojn en ambaŭ lingvoj, malgraŭ ke la protokolo estas farata en la itala, Brunetto Casini rakontas al Libera Folio .
+
+La argumentoj laŭ li estis, ke la protokolo devas esti en la itala, kaj ke ne ĉiuj membroj de Itala Esperanto-Federacio scipovas Esperanton. Casini kontraŭargumentis, ke nenio malhelpas protokoli esperantlingvan diskuteron en la itala, kaj ke same povas esti membroj de la asocio, kiuj ne scipovas la italan.
+
+Per formala voĉdono oni tamen decidis, ke ne estu permesitaj diskuteroj en Esperanto. Sekve Casini daŭrigis sian replikon itallingve, tamen protestante pri la decido.
+
+Libera Folio: Kial vi opinias, ke gravas rajti paroli en Esperanto en tiu kunveno?
+
+Brunetto Casini: – Ĉefe pro du kialoj. Ankaŭ eksterlandaj samideanoj devas havi superrigardon pri tio, kio okazas en la movado de Italujo, eble eĉ kapti ideojn, kion fari aŭ ne fari. Kaj samkiel inter membroj povas esti komencantoj, kiuj ne sufiĉe parolas la internacian lingvon, povas esti ankaŭ membroj, kiuj ne sufiĉe regas la italan.
+
+Laura Brazzabeni, la prezidanto de Itala Esperanto-Federacio, diras ke la oficiala kunveno devas okazi en la itala, ĉar IEF estas oficiale listigita en la ŝtata registro de la asocioj de la tria sektoro (RUNTS).
+
+– La protokoloj devas esti prezentataj en la itala lingvo kaj kolektitaj en aparta libro pri asembleoj, kaj en nia asocio dum asembleoj partoprenas ankaŭ homoj kiuj ne parolas aŭ ankoraŭ ne komprenas Esperanton, ĉu ĉar ili estas novuloj, ĉu ĉar lernantoj.
+
+Kiam Brunetto Casini tamen komencis paroli en Esperanto, oni voĉdonis pri la afero, kaj la majoritato decidis, ke Esperanto ne estu permesita.
+
+– Sinjoro Casini devas akcepti la decidon de la plejmulto, diras Laura Brazzabeni.
+
+Kial en antaŭaj jaroj oni rajtis paroli en Esperanto?
+
+– FEI estas membro de RUNTS ekde junio 2024, kaj sinjoro Casini ne partoprenis en la lasta asembleo en aŭgusto 2024, kiam neniu uzis Esperanton.
+
+
+---
+
+# KEA: ”En Gazao la afero estas tre klara kaj akuta”
+
+**Published:** 2025-09-02
+
+**URL:** https://www.liberafolio.org/2025/09/02/kea-en-gazao-la-afero-estas-tre-klara-kaj-akuta/
+
+**Categories:** movado
+
+Kataluna Esperanto-Asocio en aŭgusto faris oficialan komunikon pri la situacio en Gazao, kun la titolo ”Ĉesigu la genocidon”. Libera Folio petis la prezidanton de KEA klarigi, kial la asocio decidis fari deklaron ĝuste pri Gazao, sed ne ekzemple pri la milito en Ukrainio, kiu rekte tuŝas multajn esperantistojn.
+
+La deklaro de Kataluna Esperanto-Asocio pri Gazao aperis la 11-an de aŭgusto, sed pro someraj ferioj la asocio ne povis tuj respondi al la demandoj de Libera Folio , klarigas la prezidanto de KEA, Alfons Tur i Garcia.
+
+– Tamen nek la sinteno de nia asocio nek bedaŭrinde la realo estas aliaj ol estis antaŭ dek kvin tagoj. Mi volus emfazi ke ĝi ne estas mia persona respondo sed tiu de nia asocio, priparolita kadre de nia estrara grupo.
+
+Kial Kataluna Esperanto-Asocio decidis fari komunikon pri la situacio en Gazao?
+
+– KEA havas en sia statuto la celon kontribui al internacia kompreno laŭ la Deklaracio de Homaj Rajtoj. La situacio en Gazao estas homarana katastrofo, kie civiluloj suferas pere de kolektiva puno. Temas ne pri nura opinio de nia asocio, sed pri afero kiun klare kondamnis ankaŭ Unuiĝintaj Nacioj. La Ĝenerala Asembleo kaj la Sekureca Konsilio plurfoje atentigis pri la homa  katastrofo en Gazao kaj postulis respektadon de la internacia juro. Ni, kiel asocio kiu celas antaŭenigi pacon kaj interkomprenon pere de Esperanto, opiniis ke nia devo estas aldoniĝi al tiu voĉo. Ni ne elpensis aŭ fabrikis aferon: ni subtenis la jam oficialan, internacian startpunkton.
+
+Kiel okazis la interna diskuto pri tia decido, ĉu estis kontraŭaj voĉoj?
+
+– La propono aperis dum interreta interkonsiliĝo de la estraro pere de nia Telegram-kanalo, same kiel okazas aliaj asociaj debatoj. Ni konsentis pri teksto kiu akcentas homan dimension. Neniu kontraŭis la ideon mem, sed ni volis klare montri, ke temas ne pri preno de “flanko” en konflikto, sed pri defendo de universalaj rajtoj.
+
+Kion vi esperas atingi per tia deklaro?
+
+– Ni ne havas iluzion, ke nia voĉo solvos la konflikton. Sed ni opinias, ke nia devo estas aldoniĝi al la ĉeno de civila socio postulanta respekton de homaj rajtoj kaj internacia juro. Por niaj membroj kaj por la pli vasta esperantistaro, ni volis montri ke Esperanto estas parto de la suferanta mondo.
+
+Ĉu vi kuraĝigas aliajn Esperanto-organizaĵojn fari similan deklaron?
+
+– Kompreneble ĉiu asocio mem decidas. Sed ni opinias ke la Esperanta movado, kiu ĉiam strebis al paco kaj justeco, devas esti aŭdebla ankaŭ hodiaŭ. Se aliaj organizoj inspiriĝus kaj esprimus sian sintenon, tio plifortigus la kredindecon de nia komunumo.
+
+Kiel la situacio en Gazao diferencas de multaj aliaj krizoj en la mondo, pri kiuj Esperanto-asocioj ne faris similajn deklarojn?
+
+– Ni ne povas reagi al ĉiu konflikto en la mondo, tamen ni faris ankaŭ en la Iraka milito pere de oficiala deklaro kaj partopreno en la popola manifestacio. Sed en Gazao la afero estas tre klara kaj akuta: UN mem konstante denuncis la kolektivan punon kontraŭ civiluloj kaj loĝantaro kiu estas kaptita sen elirejo. Aliaj konfliktoj eble estas pli kompleksaj aŭ jam traktitaj en nia medio; ĉi-kaze ni rimarkis grandan mankon de voĉoj en la esperantista sfero. Tial ni sentis la devon agi. Tamen tio ne signifas, ke ni ne kondamnas ĉiajn perfortojn.
+
+Ĉu Kataluna Esperanto-Asocio konsideris fari deklaron pri la milito en Ukrainio, kiu trafas multajn esperantistojn?
+
+– Estas ankaŭ teruraj konfliktoj en DR Kongo, Haitio, Libano, Sirio, Libio, Jemeno kaj tro da aliaj lokoj, ofte preteratentataj de la esperantistaro. Ni diskutis pri tio. Fine ni konkludis, ke jam okazis pluraj reagoj el la esperantista medio mem: organizoj, kluboj kaj individuoj esprimis sin pri la milito en Ukrainio, kaj tiu terura situacio jam ricevis atenton en niaj rondoj.
+
+– Male, pri Gazao ni rimarkis preskaŭ kompletan silenton en la esperantista medio, spite al la ripetaj kondamnoj kaj alvokoj de UN mem. Pro tiu manko ni opiniis, ke nia voĉo povus havi utilan valoron.
+
+Ĉesigu la genocidon
+
+Oficiala komuniko de Kataluna Esperanto-Asocio
+
+Kataluna Esperanto-Asocio, fidela al sia fondoprincipo antaŭenigi la internacian lingvon Esperanto kiel ilon de frateco kaj interkompreniĝo inter la popoloj, esprimas sian profundan konsterniĝon pri la nuntempaj okazaĵoj en Gazao.
+
+La universalaj idealoj inspirataj de Esperanto, en plena harmonio kun la Universala Deklaracio de Homaj Rajtoj, morale devigas nin levi niajn voĉojn, kiam sistema ekstermado estas farata kontraŭ civila loĝantaro.
+
+La raporto de Unuiĝintaj Nacioj de la 20a de septembro 2024 kondamnas la uzon de malsato kiel militmetodo (art. 24), la konscian detruon de san-instalaĵoj (art. 42) kaj la limigojn de humanitara helpo (art. 69), plenumatajn kontraŭ la civila loĝantaro de Gazao, kaj taksas ilin genocidaj agoj fare de la israela registaro [1].
+
+Tiuj malobservoj de la internacia juro pliakriĝis: UN nuntempe raportas la murdon de almenaŭ 242 ĵurnalistoj [2], frontan atakon kontraŭ la libereco de informado kaj la rajto de la homaro ekscii la veron.
+
+Kataluna Esperanto-Asocio aliĝas al la voĉoj, postulantaj tra la mondo la tujtujan finon de tiu genocido, okazigata antaŭ ĉies okuloj, sed plene senpuna, kaj reasertas sian engaĝiĝon defendadi la dignon de ĉiuj popoloj kaj la pacon.
+
+Estraro de Kataluna Esperanto-Asocio
+
+11an de aŭgusto 2025
+
+—
+
+[1] ONU. Informe del Comité Especial encargado de Investigar las Prácticas Israelíes que Afecten a los Derechos Humanos del Pueblo Palestino y Otros Habitantes Árabes de los Territorios Ocupados . 20 de setembre de 2024. https://documents.un.org/doc/undoc/gen/n24/271/22/pdf/n2427122.pdf
+
+[2] Noticias ONU. Gaza: Israel mata a seis periodistas, la ONU condena los asesinatos . 11 d’agost de 2025. https://news.un.org/es/story/2025/08/1540316
+
+La deklaro en la retejo de KEA
+
+
+---
+
+# Trump haltigas libropakaĵojn de UEA al Usono
+
+**Published:** 2025-09-03
+
+**URL:** https://www.liberafolio.org/2025/09/03/trump-haltigas-libropakajojn-de-uea-al-usono/
+
+**Categories:** kulturo, movado
+
+La libroservo de UEA ne plu povas sendi pakaĵojn al Usono. Tio estas unu el la sekvoj de la kaosa doganpolitiko de Donald Trump. Usono unuflanke nuligis regulojn pri sendogana sendado de pakaĵoj ĝis certa valoro. Ĉar nun mankas ajnaj novaj reguloj, simple ne eblas sendi pakaĵojn el Eŭropo al Usono.
+
+Dum preskaŭ du monatoj eŭropaj kaj alilandaj poŝt-entreprenoj atendis klarigojn pri la novaj doganreguloj, post kiam la usonaj aŭtoritatoj nuligis la antaŭan regulon, kiu permesis sendoganan sendon de varoj ĝis certa valoro. Tamen ne eblis ricevi informon pri tio, kiuj reguloj nun validos.
+
+Ĉar ne eblas scii, kiu respondecos pri eventuala resendo de pakaĵoj, eŭropaj poŝt-entreprenoj ne plu akceptas pakaĵojn al Usono. Eblas sendi nur simplajn leterojn. Tio evidente influas ankaŭ esperantistojn. En la retejo de la libroservo de UEA aperis averto pri la temo:
+
+Bedaŭre pro la postuloj de la Blanka Domo rilate importadon de varoj el EU en Usonon, momente ne eblas sendi pakaĵojn el Nederlando al Usono. Sekve ni ne plu akceptas mendojn sendendajn al Usono, ĝis la situacio solviĝos.
+
+Ni demandis al Ionel Oneţ, la prizorganto de la libroservo de UEA, kian solvon oni povas atendi, sed laŭ li neniu scias ion ajn.
+
+– Nek la nederlanda poŝto, nek la aliaj kurieroj kiujn ni uzas, povas doni al ni pli precizajn informojn. Ŝajne eĉ la usona dogano ne scias kiel trakti la ĥaoson kaŭzitan de Trump. Kiel la tuto evoluos, ne eblas diri nun.
+
+– Certe, kiam la aferoj revenos al ia normalo (kio estas ”normala” nuntempe?) ni rekonsideros la aferon. Mi nur timas ke niaj klientoj en Usono devos pagi pli ol nun, ĉar por Trump kaj lia koterio, libroj ne estas ”edukmaterialoj” sed simple varoj, do impostendaj.
+
+La eldonaĵoj de Esperanto-Asocio de Britio ne estas same rekte tuŝataj de la usonaj doganreguloj, diras Tim Owen, direktoro de EAB.
+
+– Ne, ĉar plej multaj niaj libroj troviĝas malmultekoste ĉe la usona Amazono. La laŭmenda servo, kiun ni uzas, havas presejon en Usono. Libroj menditaj de usonanoj, do, presiĝos en Usono.
+
+– Estos problemo, se iu en Usono volas aĉeti ion alian, ekzemple miajn librojn, kiujn ni vendas senprofite, kaj do malpli koste ol eĉ Amazono, aŭ niajn infanlibrojn, sed ŝanĝiĝos nenio rilate eldon-planojn.
+
+Brandon Sowers, la prezidanto de Esperanto USA, rakontas ke la usona asocio bonŝance jam estis preparita, kiam la sendado de pakaĵoj al Usono estis ĉesigita:
+
+– Efektive la tuta afero venas kiel surprizo, kvankam malfacilas plu esti surprizita de la aventuroj de Trump. Tamen, ni almenaŭ povas diri, ke rilate al esperantaj libroj, ni sufiĉe iniciatis dum la lastaj du jaroj, tiel ke ne estas tiel katastrofe, kiel se okazus dum la pasintaj jaroj.
+
+Kiam la libroservo de Esperanto USA antaŭ unu jaro estis modernigita, la kvanto de mendoj pliiĝis, la stoko komencis elĉerpiĝi, kaj oni decidis freŝigi la provizon.
+
+– Ni komencis mendi de pluraj aliaj libroservoj por havi freŝajn ofertojn por esperantistoj en Usono. Menciindas, ke dum nia ĵus okazinta Dulanda Kongreso en Toronto, ni profitis de la lastatempe transsendita al Kanado stoko de KAVA-PECH, el kiuj multaj titoloj nun estas haveblaj pere de ni. Kompreneble, la situacio estas ne eltenebla longperspektive.
+
+Momente Esperanto USA laŭ li tamen havas strategian rezervon de diversaj esperantaĵoj, kiuj estas liverataj el Eŭropo.
+
+– Tio ankaŭ substrekas la gravon de bone funkciantaj esperanto-organizoj, kaj de la plurflanka laboro, kiun ni entreprenis dum la lastaj du jaroj, por aliĝi al tiu kategorio. Kvankam eblas imagi, ke ĉio povas funkcii virtuale, dise, kaj unuopule, tiu pensado tamen montriĝas fantazia la momenton, kiam aŭtoritatemuloj komencas fermi pordojn.
+
+
+---
+
+# Sveda vortaro migras reten – ĉu aliaj sekvos?
+
+**Published:** 2025-09-09
+
+**URL:** https://www.liberafolio.org/2025/09/09/sveda-vortaro-migras-reten-cu-aliaj-sekvos/
+
+**Categories:** interreto, kulturo
+
+Pasis pli ol naŭdek jaroj de kiam pasintfoje aperis tute nova, granda vortaro Esperanta-sveda. En 1933 neniu aŭdis pri interreto. Nun denove aperis ampleksa vortaro Esperanta-sveda, sed ĝi vivas nur en la reto. Eble poste oni disponigos ankaŭ paperan version, se iu ankoraŭ deziros tian. Sed ne ĉiuj Esperanto-vortaroj jam faris la paŝon al la reta mondo.
+
+La granda Esperanta-sveda vortaro de Paul Nylén aperis en 1933. Ĝia kompletigita eldono estis presita en 1954. Sojle de la reta epoko, en 1992, aperis la grandverko de Ebbe Vilborg, la 478-paĝa Vortaro Sveda-Esperanta.
+
+Tiu vortaro jam estis komputile enpaĝigita, kaj Franko Luin kunlabore kun Eldona Societo Esperanto ekde 2001 disponigis ĝin senpage en la reto.
+
+“Temas tre verŝajne ankaŭ pri la plej granda esperanto-vortaro en la intereto, pri kio ni svedaj esperantistoj vere povas fieri”, Franko Luin tiam skribis en La Espero .
+
+Post la forpaso de Franko Luin kaj la ĉeso de la retprovizanto Algonet, kie loĝis la vortaro, ĝian prizorgon transprenis Andreas Nordström.
+
+– Kiel prizorganto de la retejo de la Gotenburga Esperanto-klubo mi akceptis senkoste loki ĝin provizore en nia kluba retejo. Sed mi devis ŝanĝi la teknikan solvon, alie ni devus pagi pli al nia retejprovizanto, ĉar la antaŭa solvo postulis komputadon ĉe la servilo.
+
+– Mi elektis solvon kie oni aŭtomate elŝutas la tutan vortaron al onia komputilo antaŭ ol ekuzi ĝin. Tiel la komputadoj estas farataj sole ĉe la komputilo de la uzanto. (La vortaro malaperas el la komputilo kiam oni forlasas la retpaĝon.)
+
+Tiu retejo poste iĝis la bazo ankaŭ por la nova granda Vortaro Esperanta-Sveda , kies origina aŭtoro, Roland Lindblom, forpasis en 2016. Li postlasis kompletan manuskripton, kiu tamen ne estis en komputila formo, sed parte tajpita kaj parte manskribita. Ambaŭ vortaroj nun loĝas en la sama retejo .
+
+Dum preskaŭ dek jaroj grupo de sep personoj zorge prilaboris kaj enkomputiligis la manuskripton, kiu nun estas finredaktita kaj uzebla en la sama retejo, kie jam troviĝis la alidirekta vortaro de Ebbe Vilborg.
+
+La vortaran teamon komence gvidis Leif Nordenstorm, kiu trovis la manuskripton lingve ege bonkvalita.
+
+– Kelkfoje ni tamen renkontis vortojn, kies difino estas neklara. Ni uzis NPIV, Vikipedion kaj aliajn vortarojn por kontroli la difinojn. Alifoje ni vidis vortojn, kiujn ni komprenis, sed kies svedan ekvivalenton ni ne trovis. Unufoje mi eĉ inventis novan svedan vorton per la helpo de la norvega. Ĉiuj tamen tuj komprenos ĝin! Mi tie ĉi ne malkaŝos pri kiu vorto temas. Alia demando estas kiom da neologismoj ni aperigu. Kaj kiom da arĥaikaĵoj?
+
+Libera Folio: Kiel vi dividis la taskon? Kiel vi kunlaboras kaj diskutas proponojn?
+
+– Ni dividas la laboron laŭ literoj. Kiam ĉiuj literoj estis enkomputiligitaj, ĉiun literon kontrolas alia homo. (Do, ne la sama, kiu enkomputiligis.) Do, kutime du personoj diskutas ĉiun probleman vorton. La tuta grupo retkunsidis nur unufoje por priparoli principajn demandojn. Grava afero estas ke unu el ni – Martin Häggström, kiu poste transprenis la gvidadon de la teamo – jam en la komenco faris regularon kiel skribi la vortojn, la klarigojn, la signojn, la mallongigojn ktp. Ke tio estis preta jam en la komenciĝo ege faciligis la laboron.
+
+Kiajn konsilojn vi donus al aliaj teamoj, kiuj okupiĝas pri novaj vortaroj?
+
+– Uzu NPIV kaj Vikipedion. Unue faru la retan version, poste la paperan. Konsciu ke la laboro estas temporaba, sed interesega. Do, ĝuu ĝin.
+
+Ĉu plu entute havas sencon aperigi presitajn vortarojn?
+
+– La retaj eldonoj certe estos la plej gravaj en la estonteco, aŭ eĉ jam nun. Tamen nuntempe oni povas fari malgrandnombrajn paperajn eldonojn sufiĉe malmultekoste. Tial ni povas pensi kaj–kaj. Avantaĝo pri la reta versio cetere estas ke ĝi estas facile kompletigebla.
+
+Se temas pri naciaj lingvoj, diversspecaj retaj vortaroj jam tute superregas, ĉar ilin eblas rapide kaj facile konsulti kie ajn, necesas kunporti nur la telefonon.
+
+En Esperantujo la afero ne estas same evidenta. Plena Ilustrita Vortaro kompreneble de multaj jaroj troviĝas en la reto, samkiel Reta Vortaro , sed tre malmultaj el la grandaj, bonkvalitaj vortaroj inter naciaj lingvoj kaj Esperanto troveblas en la reto.
+
+Krom la sveda vortaro ja ekzistas kelkaj pliaj, sed la plej multaj el la ligiloj en la listo en Vikipedio gvidas al ofte tre mankohavaj retejoj. Eĉ dum la lastaj jaroj aperis en presita formo pluraj ampleksaj vortaroj inter diversaj grandaj naciaj lingvoj kaj Esperanto, kiuj tamen ne estas uzeblaj rete.
+
+Unu ekzemplo estas la ampleksega Plena Vortaro Esperanto-Germana de Erich-Dieter Krause, la rezulto de jardekoj da laboro. Ĝi ja aĉeteblas kiel du apartaj pdf-dosieroj, sed krom la alta kosto, la formato mem ne estas aparte oportuna por rapida konsultado.
+
+Mala ekzemplo estas la granda vortaro Itala-Esperanta de Carlo Minnaja, kiu estis meritoplene enretigita de laborgrupo de Itala Esperanto-Federacio. Krome la dosieroj de la vortaro eĉ estas libere elŝuteblaj.
+
+Simile en la reto troveblas ankaŭ la elstara Granda vortaro Hispana-Esperanta de Fernando de Diego.
+
+Eblas argumenti, ke por arkivaj celoj gravas eldoni vortarojn en presita formo, kaj ke libera disponigo de vortaroj en la reto igas la eldonadon malprofita. Sed se vortaroj ekzistos nur en papera formo, ĉiam malpli da homoj ilin uzos.
+
+
+---
+
+# TEJO preparas deklaron pri Palestino
+
+**Published:** 2025-09-16
+
+**URL:** https://www.liberafolio.org/2025/09/16/tejo-preparas-deklaron-pri-palestino/
+
+**Categories:** TEJO, movado
+
+Kataluna Esperanto-Asocio en aŭgusto diskonigis oficialan komunikon pri la situacio en Gazao. Dum la IJK en Indonezio multaj kongresanoj manifestaciis kontraŭ ”genocido en Palestino” kaj alvokis al TEJO aliĝi al la kondamno. Nun TEJO starigis laborgrupon por verki propran deklaron.
+
+Dum la Internacia Junulara Kongreso en Indonezio okazis duhora programero kun la nomo ”Libera Palestino” kaj kandela manifestacio kun afiŝoj kontraŭ ”Israela genocido”. La partoprenantoj verkis komunan alvokon al TEJO, kiu ĵus aperis en la komitata diskutejo de TEJO.
+
+La deklaron subskribis kaj individuoj kaj organizaĵoj. Inter la subskribintaj organizaĵoj estas kvar landaj sekcioj de TEJO: Itala Esperanto-Junularo, Litova Esperantista Junulara Organizo, Kataluna Esperanto-Junularo, Pola Esperanto-Junularo kaj Indonezia Esperantista Junulara Organizo. Estas en la listo ankaŭ unu landa asocio de UEA: Itala Esperanto-Federacio.
+
+La dokumento nomiĝas ” Alvoko por Komuna Deklaro ”, kaj ĝi argumentas ke TEJO faru publikan deklaron por montri subtenon al la palestina popolo, sed ankaŭ por esprimi solidarecon al la israela popolo kaj ĉiuj judoj en la mondo, kiuj ”suferas severajn diskriminaciojn pro la agoj de la israela registaro”.
+
+Laŭ la teksto de la alvoko, la ”homa tragedio de Palestino estas simbolo de tio, kion ni ne volas plu vidi en la mondo. Ĝi estas unu inter multaj kazoj de subpremado okazanta ĉirkaŭ ni. Ni staras klare kontraŭ ĉi tiu kaj ĉiuj aliaj formoj de subpremo.”
+
+La subskribintoj argumentas, ke ĉar TEJO en februaro 2022 per oficiala deklaro klare esprimis solidarecon al la popolo de Ukrainio pro la agreso de Rusio, la asocio devus fari similan deklaron solidare al Palestino:
+
+…tial ni, kiel membroj de TEJO kaj subskribintoj de tiu ĉi manifesto, esprimas nian desapontiĝon pro la malfruo prezenti oficialan kondamnon al la agoj de la israela registaro kaj solidarecon al Palestino, viktimo de ĉiutagaj masakroj kaj de milita strategio efektivigata kadre de pli vasta subprema plano.
+
+En respondo nome de TEJO vicprezidanto Igor (Ikvero) Almeida esprimas la aprezon de la estraro pro la iniciato:
+
+Ni la Estraro certe volas publike deklari nian solidarecon al la homoj, kiuj suferas pri la nuntempaj militoj kaj ni pardonpetas pro tio, ke ni sentigis nian Membraron ke ni troe prokrastas reagi al la situacio.
+
+Sekve li anoncas la malfermon de laborgrupo por verki tian deklaron, kaj anoncas ke li mem gvidos la grupon. Li alvokas komitatanojn kaj aktivulojn de la landaj sekcioj aliĝi al la grupo.
+
+Legu pli:
+
+KEA: ”En Gazao la afero estas tre klara kaj akuta”
+
+Nekutime internacia IJK en Indonezio
+
+
+---
+
+# Esperantistoj partoprenis la protestojn en Nepalo
+
+**Published:** 2025-09-23
+
+**URL:** https://www.liberafolio.org/2025/09/23/esperantistoj-partoprenis-la-protestojn-en-nepalo/
+
+**Categories:** movado
+
+En Nepalo post tumultaj protestoj komence de septembro la ĉefministro kaj pluraj aliaj ministroj demisiis kaj fuĝis. La protestantoj grandparte estis studentoj kaj aliaj junuloj. Inter ili estis pluraj esperantistoj, rakontas Bharat Kumar Ghimire, prezidanto de Nepala Esperanto-Asocio, kiu ankaŭ mem estis surstrate dum la manifestacioj.
+
+La protestoj en Nepalo komenciĝis, kiam la registaro blokis la aliron al pluraj popularaj interretaj servoj, interalie Youtube, Facebook, Instagram, Signal, Snapchat kaj X. La decido malpermesi tiujn retservojn estis farita la 4-an de septembro, kaj la protestoj eksplodis kelkajn tagojn poste.
+
+– Tiuj retoj estis ne nur fonto de laboro por multaj junuloj, sed ankaŭ loko por esprimi sin. La veraj postuloj tamen estis forigo de korupto, nepotismo kaj malegaleco, rakontas Bharat Kumar Ghimire, prezidanto de Nepala Esperanto-Asocio.
+
+Pluraj protestantoj estis mortigitaj, kio kondukis al multe pli vastaj protestoj, li rakontas.
+
+– Preskaŭ ĉiuj el ni partoprenis en la protesto en la dua tago. Niaj junaj esperantistoj tamen estis aktivaj jam ekde la unua tago. Laŭ mia scio, ĉiuj fartas bone, kaj neniu suferis korpan vundon.
+
+Esperanto havas longan historion en Nepalo , kien ĝi estis portita en 1957 de Tibor Sekelj. La movado revigliĝis en la 1990-aj jaroj, kaj multaj homoj lernis la lingvon.
+
+La partopreno de la esperantistoj en la protestoj ne estis kunordigita, sed okazis spontanee, Bharat Kumar Ghimire diras.
+
+– Tio okazis aŭtomate. Tio ne estis farita de politika partio. Ĉiu protestis individue. Pasintjare mi instruis ĉirkaŭ 40 gejunulojn, kaj mi kredas, ke ĉiuj aktive partoprenis en la protesto. Mi tre bedaŭras ke junuloj perdis la vivon.
+
+Bharat Kumar Ghimire mem trovis sin proksime al perfortaĵoj.
+
+–Mi ne vidis la pafadon mem, sed mi vidis homojn kurantajn. Kiam mi rimarkis ambulancon, mi tuj eknervumiĝis. Kelkaj homoj estis vunditaj dum ili kuris al ĝi.
+
+Post kelkaj tagoj la situacio trankviliĝis. Sushila Karki, antaŭa juĝisto de la supera kortumo, estis elektita provizora ĉefministro, la parlamento estis dissendita, kaj novaj elektoj estas planataj por la 5-a de marto.
+
+– Hodiaŭ [la 16-an de septembro] okazis tre kortuŝa afero: amasa kremacio de la forpasintoj, la martiroj. La tuta lando ploras. Mi ne ĉeestis, sed oni vidas ĉion en la televido. La parencoj de la mortintoj ploras, svenas… Mi mem vidis tre teruran situacion kaj sentas min malbone.
+
+Momente homoj sentas sin pli liberaj, ĉar ili ne devas timi la subpremon de la antaŭaj regantoj, sed multo estis detruita dum la revolucio, interalie multaj gravaj dokumentoj de la registaro kaj de kortumoj, Bharat Kumar Ghimire rakontas.
+
+– Ni, esperantistoj, tamen provas rigardi la estontecon kun espero. Mi pensas tamen, ke la venontaj jaroj ne estos facilaj,  certe sekvos novaj konfliktoj. Nepalo devas komenci denove de la fundamento. Ĉar la plimulto de dokumentoj neniam estis ciferecigitaj, la ŝtato frontos grandajn malfacilaĵojn.  Mi timas, ke la nova registaro perdiĝos en la nebulo de nia lando. Sed la junuloj tamen havas grandan esperon.
+
+
+---
+
+# UEA trovis aĉetonton por la domo de la CO
+
+**Published:** 2025-09-27
+
+**URL:** https://www.liberafolio.org/2025/09/27/uea-trovis-acetonton-por-la-domo-de-la-co/
+
+**Categories:** movado
+
+La domo de UEA en Nieuwe Binnenweg 176 en Roterdamo estos vendita kontraŭ 1,15 milionoj da eŭroj. Tio evidentas laŭ raporto de la estraro al la komitato, dissendita en vendredo. Post kiam la vendo estos formaligita, la domo devos esti liberigita ene de duonjaro. La sorto de la libroservo daŭre ne klaras.
+
+La gvidantoj de UEA jam dum kvar jaroj klopodas liberiĝi de la domo, en kiu ekde 1962 situas la Centra Oficejo de la asocio. Post longa laborado la estraro de UEA nun ŝajne atingis la decidan horon.
+
+En aŭgusto 2021 la estraro en ampleksa dokumento, sendita al la komitatanoj nur kelkajn horojn antaŭ la komenco de komitata kunsido, proponis , ke la konstruaĵo estu vendita kaj la libroservo transdonita al la organizaĵo E@I en Slovakio. Laŭ la dokumento UEA tiam ricevis oferton de 1 075 000 eŭroj por la konstruaĵo.
+
+La formalan decidon vendi la domon la komitato de UEA faris en februaro 2022 , malpli ol du semajnojn antaŭ la komenco de la rusia invado de Ukrainio. De tiam daŭras la klopodoj trovi aĉetanton, sed interalie ĝuste pro la milito en Ukrainio la merkato de nemoveblaĵoj stagnas, kaj mankis interesiĝantoj aĉeti la domon por la proponata prezo de 1,5 milionoj da eŭroj.
+
+La efektiva merkata valoro de la konstruaĵo laŭ sendependa takso estas 1,1 milionoj da eŭroj, la estraro informas en sia raporto al la komitato. La valoron influas interalie fendetoj en la supra etaĝo, likoj, kaj leĝaj postuloj kaze de renovigo kaj uzoŝanĝo.
+
+En aŭgusto UEA ricevis ofertojn de du interesatoj, kiuj ambaŭ pretis aĉeti la domon por 1,1 milionoj da eŭroj. La maklerista firmao Ooms, kiun uzas UEA, rekomendis akcepti unu el la ofertoj. La estraro de UEA faris kontraŭproponon de 1,18 milionoj al unu el la interesatoj, kaj tiu fine akceptis aĉeti la domon por 1,15 milionoj.
+
+Laŭ la raporto de la estraro la domo estas vendata ”kia ĝi estas” kaj sen aliaj kondiĉoj, kio laŭ la interpreto de la estraro forigas la riskon de postaj disputoj pri garantioj aŭ nefinitaj riparoj. Post kiam la vendo estos formaligita, UEA devos liberigi la domon ene de 4–6 monatoj.
+
+Daŭre situas en la domo interalie la libroservo de UEA, kaj mankas konkreta solvo por ĝia plua laboro. La transdono al E@I en Slovakio neniam realiĝis kaj ŝajne ne plu estas aktuala. La nova sidejo laŭ la estraro povos situi en eksa frizejo en la tiel nomata Volontula domo en Nieuwe Binnenweg 430. Tiun domon UEA aĉetis en 2016 investocele. En la Volontula domo tamen mankas loko por la libroservo.
+
+
+---
+
+# Unikaj retaj kursoj sur universitata nivelo
+
+**Published:** 2025-09-30
+
+**URL:** https://www.liberafolio.org/2025/09/30/unikaj-retaj-kursoj-sur-universitata-nivelo/
+
+**Categories:** movado
+
+La hispana universitato UNED estas la sola eŭropa distanca universitato, kiu proponas kursojn de Esperanto samnivele kiel kursojn de la angla kaj aliaj grandaj naciaj lingvoj. Ekzamenoj okazas ĉeeste, sekvante la Komunan Eŭropan Referenc-Kadron por Lingvoj. Tion ebligas interkonsento inter UNED kaj Hispana Esperanto-Federacio. La kursojn povas partopreni ĉiuj, kiuj pretas pagi la kotizon. Kompreno de la hispana estas nepra en la unua kurso, konsilinda en la dua, nenecesa en la tria.
+
+Komenciĝas la lernojaro 2025-2026 kaj ankaŭ la oka eldono de la kursoj de Esperanto en UNED (Hispana Nacia Distanca Universitato). Kvankam ĝis nun apenaŭ rimarkitaj de la internacia esperanta movado, ili estas la solaj universitataj distancaj kursoj de nia lingvo en la mondo. Necesas iom retrorigardi kaj enkuntekstigi ilin.
+
+La kursoj ekestis kiel ideo dum la preparoj de la 77-a Hispana Kongreso kaj 51-a ILEI-Kongreso, kune okazintaj en julio 2018 en la universitata kvartalo de Madrido kaj gastigataj de UNED (Universidad Nacional de Educación a Distancia), kiu estas la plej granda hispana universitato laŭ nombro de studentoj.
+
+Brila parto de la duobla kongreso estis dutaga simpozio kunorganizita de UNED danke al Manuel Pancorbo, mem profesoro de fiziko en UNED kaj esperantisto kapabla, kvankam ne tre konata en la internacia movado.
+
+Tuj ĉe la fino de la kongreso okazis renkontiĝoj inter estraranoj de Hispana Esperanto-Federacio (HEF) kaj estroj de UNED, kiuj estis impresitaj de la sukcesa kongreso kaj de la konstato ke la esperantistaro ne nur ekzistas, sed ankaŭ havas altan kulturan nivelon. Tiel eblis subskribi interkonsenton por lanĉi Esperanto-kurson en la sekva aŭtuno mem.
+
+Krom la tipaj fakoj kaj diplomoj de normala universitato, UNED jam instruis 15 lingvojn, ĉefe pro prestiĝo kiel ŝtata universitato, ĉar krom la angla ĉiuj lingvokursoj estas deficitaj (en la jaro 2023–24 lernantoj de la angla estis 53%). Krome, jam ekzistis precedenco: instruado de hispana signolingvo okazis per speciala interkonsento kun la surdmutula federacio.
+
+Tial oni faris similan interkonsenton: dum UNED disponigas sian tutan teknikan infrastrukturon kaj ekspedas la diplomojn, la tasko de HEF estis elekti la instruistojn, krei la lernomaterialojn kaj diskonigi la kursojn, do ne ekzistas rekta labora kontrakto de la instruistoj kun UNED. Tio estas tre konvena por UNED kaj faciligis la interkonsenton, ĉar por publikaj institucioj estas tre komplike dungi eksterajn laboristojn, eĉ se partatempe.
+
+Aliflanke la kursoj estas oficialaj, ĉar ili okazas laŭ ekzakte la samaj kondiĉoj kiel la aliaj lingvokursoj; la instruistoj estas pagataj laŭ la samaj tarifoj, nur ne rekte: UNED pagas al HEF, kiu tenas 25% kaj ĝiras la ceteron al la instruistoj. Tiusence, la instruado estas profesia, ankaŭ ĉar la instruistoj havas diplomojn pri instruado.
+
+Siaflanke, la studentoj de Esperanto, same kiel tiuj de aliaj lingvoj, devas pagi 254 eŭrojn por la tuta lernojaro (170 eŭrojn se HEF-ano aŭ handikapulo). Profesieco helpas eviti la amatorecon kiu plagas la esperantan instruadon, kaj faras la kursojn daŭripovaj kaj pli valoraj.
+
+Malgraŭ la prezo, la kursoj estas sufiĉe malfermaj, ĉar ne estas postulata iu ajn antaŭa diplomo aŭ hispana civitaneco aŭ eĉ loĝi en Hispanujo, nek esti studento de alia fako. Tio montras, ke UNED imitis la modelon de la brita Open University kaj celis tiujn nekapablajn regule viziti klasojn, ekzemple enkarcerigitojn, militistojn, laboristojn kaj kamparanojn.
+
+Komence, la kunordiganto estis Manuel Pancorbo, kaj la unua instruisto estis Félix Manuel Jiménez Lobo, kiu kreis la unuan kurson sur la bazo de lernolibroj de Miguel Gutiérrez Adúriz kaj propraj materialoj; li daŭre instruas ĝin, korektante ekzercojn kaj ekzamenojn. Kvankam ĝi estas etikedita kiel A2 laŭ la Komuna Eŭropa Referenckadro kaj fakte atingas tiun nivelon, ĝi komencas de nulo, per klarigoj kaj tradukoj en la hispana.
+
+UNED heredis la tradicion de koresponda universitato, do studentoj eniras la virtualan kampuson (nun bazita sur Moodle) kaj lernas solaj per la lernomaterialoj laŭ sia propra ritmo kaj en tempo oportuna al ili, kvankam la lecionoj malfermiĝas en difinitaj datoj unu post alia. Studentoj kaj instruisto povas nesinkrone komuniki per forumoj kaj retpoŝto, sed ili ne multe uzas tiun eblon.
+
+Tamen, ĝuste en 2018 UNED decidis enkonduki ankaŭ iom da realtempa parola praktiko, kiu okazas per Microsoft Teams. La lernantoj rajtas je nur unu horo monate, kaj ankaŭ ĉi-rilate ne ĉiuj kaptas la okazon, sed kiu tion faras multe progresas. Mi estis dungita por tiu rolo kaj, ĉar mi estas diplomita Cseh-instruisto kaj kutimis instrui la hispanan per rekta metodo en Azio kaj Usono, mi paroligas la studentojn en esperanto ekde la unua tago, tradukante nur izolitajn vortojn.
+
+Mi absolute evitas klarigojn en la hispana, ĉar tion ili jam lernas solaj per la nesinkronaj lecionoj. Kontraŭe, mi dediĉas tempon al informado pri esperantaj retejoj, kongresoj kaj kutimoj, por komplementi la tekstojn pri esperanta kulturo inkluzivatajn en ĉiu leciono. Nek la kulturaj tekstoj nek la parola praktiko estas poentodonaj, sed enmovadigo de la lernantoj estas nia absoluta prioritato.
+
+En la lernojaro 2020-21 estis lanĉita la nivelo B1, kreita kaj instruata de Eduardo Berdor, instruisto de la franca, per propraj materialoj, dum mi respondecas pri parola praktiko ankaŭ por tiu nivelo.
+
+En B1 la hispana ne estis uzata kaj kutime la klarigoj mem estis en Esperanto, do principe ankaŭ nehispanlingvanoj povus lerni per ĝi, sed la salto montriĝas iom abrupta por hispanaj lernantoj. Tial en ĉi tiu lernojaro 2025-2026 ni enkondukos novan nivelon B2, tute en Esperanto, dum la nivelo B1 fariĝos pli grada kaj laŭŝtupa.
+
+La finaj ekzamenoj, kiuj okazas maje-junie, kontrolas ĉiujn kvar kapablojn laŭ KER; la parola kaj aŭda okazas distance, sed por la skriba kaj legokomprena la studentoj devas iri al specialaj ekzamenejoj, kiuj troviĝas en ĉiuj mezgrandaj hispanaj urboj kaj ankaŭ en kelkaj eksterlandaj .
+
+Eblas ankaŭ fari nur la ekzamenojn, ne farinte la kurson, kontraŭ pli malalta prezo (75 eŭroj). En ambaŭ kazoj la sukcesintoj ricevas diplomon de UNED tute oficialan, ĉar ĝi donas kreditojn en aliaj studoj de UNED postulantaj lingvosciojn.
+
+Aliflanke la agnosko ekster UNED ne estas aŭtomata, ĉar hispanaj regionoj havas plenan decidrajton pri edukado kaj povas elekteme agnoski UNED-diplomojn nur de difinitaj niveloj kaj difinitaj lingvoj, ekzemple B1 de franca kaj B2 de germana jes sed B1 de germana ne.
+
+Ekster tiaj interkonsentoj devigantaj al aŭtomata agnosko, la diplomitoj tute dependas de la lokaj prijuĝo kaj bonvolo. Tamen unu afero estas certa: diplomo de prestiĝa universitato havas pli da ŝancoj esti libervole agnoskata, ankaŭ eksterlande, ol diplomo de simpla asocio kiel HEF aŭ eĉ UEA.
+
+Ĉu do la UNED-recepto aplikeblas al aliaj lokoj? Eble, kie troviĝos tri faktoroj: respektata ŝlosila esperantisto en la universitato mem (eĉ se ne lingvisto aŭ lingvoinstruisto), firma apogo de nacia asocio, laŭeble per sukcesa kongreso, kaj konsento de universitatestroj; laŭ mia scio okazis io tia ankaŭ en Zhaozhuang (Ĉinujo).
+
+Aliflanke, la lasta faktoro estas ekster la influpovo de esperantistoj: en la fino ĉio dependas de la antaŭjuĝoj aŭ simpatioj de iu decidanta burokrato.
+
+Ĉi-jare la aliĝoperiodo de la kursoj finiĝos la 22-an de oktobro. Por aliĝi sekvu ĉi tiujn instrukciojn .
+
+Rubeno Fernández Asensio Instruisto de konversaciaj klasoj por niveloj de Esperanto A2 kaj B1 en UNED
+
+
+---
+
+# Brajla skribo jubileas kaj evoluas
+
+**Published:** 2025-10-07
+
+**URL:** https://www.liberafolio.org/2025/10/07/brajla-skribo-jubileas-kaj-evoluas/
+
+**Categories:** movado
+
+En la jaro 2025 oni festas la 200-jariĝon de brajlo, skribsistemo inventita por blinduloj en 1825 de la tiam 16-jara franco Louis Braille. Versio de brajlo kun esperantaj literoj estis proponita de la sveda pioniro Harald Thilander ĉirkaŭ la jaro 1900, kaj ekde 1904 daŭre aperadas la brajla revuo Esperanta Ligilo. Otto Prytz en detala artikolo speciale verkita por Libera Folio rakontas pri la estiĝo kaj evoluo de la brajla skribo por diversaj lingvoj.
+
+En 1825 la franco Louis Braille, tiam 16-jara, inventis la skribsistemon, kiu eligis blindulojn tra la tuta mondo el la analfabetismo, kaj kiu portas la nomon de la inventinto – brajlo. Kelkaj erare supozas, ke brajlo estas aparta ”lingvo” por blinduloj, kun sia propra alfabeto. La vero estas, ke brajlo estas skribsistemo aplikebla al ajna alfabeto, iom simila al morso.
+
+Ĉi tiu artikolo ne celas prezenti la brajlan sistemon detale, sed necesas konigi kelkajn bazajn trajtojn de la sistemo, por ke la enhavo de la artikolo estu bone komprenata. La baza unuo de la sistemo estas ĉelo kun 6 pozicioj, 3 vertikale kaj 2 horizontale. Tiu grandeco plej bone taŭgas, por ke tuta ĉelo estu palpebla sub fingropinto per unu tuŝo. En ĉiu pozicio estas du ebloj: aŭ estas punkto en ĝi (duuma unuo), aŭ estas nenio en ĝi (duuma nulo). Oni referencas al pozicio en la ĉelo per la vorto “punkto” sekvata de numero de 1 ĝis 6, jene:
+
+La nombro de kombinoj de punktaj kaj senpunktaj pozicioj en unu ĉelo estas 2 6 = 64, sed unu el tiuj kombinoj estas “spaco”, t.e. senpunkta ĉelo, do la nombro de unuĉelaj brajlaj signoj estas 2 6 − 1 = 63. Tiel, brajla ĉelo estas komparebla al informadika 6-bita signo, kaj la brajla sistemo estas speco de 6-bita signaro.
+
+63 signoj tamen neniel sufiĉas por kontentigi la normalajn bezonojn de skribo. Jam la unua versio de ASCII (American Standard Code for Information Interchange = Usona Norma Kodo por Inform-Interŝanĝo) estas 7-bita, sed ankaŭ tia sistemo estas multe tro malvasta, do ekestis pluraj variaĵoj de 8-bita ASCII. Simile oni lanĉis ankaŭ plivastigitan brajlon 8-punktan, aldonante la pliajn poziciojn sub la 6-punkta ĉelo kaj numerante ilin 7 kaj 8, jene:
+
+Tia ĉelo permesas 2 8 − 1 = 255 punktohavajn kombinojn, do eblas fari unusencan brajlan version de 8-bita signaro. Tio estis tre praktika en la epoko, en kiu 8-bita signaro estis la normala instalaĵo en la komputiloj. Eta ĝenaĵo estas, ke 8-pozicia ĉelo estas iom tro granda por fingropinto, tiel ke oni eble bezonas moveti la fingron por identigi kombinon. Tamen la ĉeloj de la brajlaj ”ekranetoj” produktitaj por komputila brajlo estas 8-poziciaj. Ĉiu ĉelo havas 8 pingletojn, kiuj per piezo-elektra tekniko leviĝas por formi la kombinojn montrendajn. Pro la multekosteco de tia aparato la brajlaj “ekranetoj” estas nur unuliniaj, kaj laŭ la modeloj la longo de la linio varias de 12 ĝis 80 spacoj.
+
+Kvankam 8-bita signaro sufiĉas por unu lingvo kaj eĉ por grupo da lingvoj, ĝi neniel sufiĉas por la nuna tutmonda komunikado. 8-bitaj signaroj nun cedas la lokon al Unikodo, kaj de Unikodo neniel povas ekzisti unusenca brajla versio.
+
+Esenca diferenco inter brajla skribo kaj ”ordinara” skribo, ĉi-sube nomata ”platskribo”, estas, ke brajlo estas sistemo limigita, aŭ finia laŭ matematika termino, dum platskribo estas praktike senlima aŭ ne-finia: eblas kvazaŭ senfine aldonadi novajn skribsignojn kaj modifi jam ekzistantajn skribsignojn.
+
+Malgraŭ sia finieco, la brajla sistemo tamen montriĝis mirinde taŭga por redoni ajnan platskribon, almenaŭ teorie. Por tion atingi oni povas utiligi diversajn procedojn, el kiuj mi mencias la du ĉefajn.
+
+Unu estas doni al unu sama punktokombino diversajn signifojn laŭ la kunteksto. Ankaŭ en platskribo tiu procedo estas konata: unu sama signo (-) signifas jen dividstrekon, jen haltostrekon, jen minus-signon. En brajlo la bezonatan kuntekston ofte signalas markilo indikanta, ke la posta(j) signo(j) ne estu legata(j) kiel litero(j): ”cifersigno” antaŭ la unua cifero de nombro, ”oktavsigno” antaŭ muziknoto(j) ktp. Similaj ”ŝaltiloj” estas troveblaj ankaŭ sur komputilaj klavaroj, ekzemple por majuskligi, grasigi, kursivigi ktp.
+
+La dua procedo estas redoni signon, kiu platskribe okupas unu literspacon, per kombino okupanta pli ol unu ĉelon en brajlo. Platskribo esence estas legata horizontale, sed ankaŭ vertikale. Eblas provizi literon per kromsigno ĉu super, ĉu sub, ĉu eĉ tra litero; indicoj povas esti lokitaj levitaj aŭ mallevitaj kompare kun la cetera teksto, sed tamen sur la sama linio; pri frakcioj konsistantaj el numeratoro supre, streko meze kaj denominatoro sube, vidantoj perceptas, ke la tuta frakcio staras sur unu sama linio.
+
+Brajlo principe estas legata nur horizontale. Sekve tion, kio platskribe situas super aŭ sub signo, sed sur la sama linio, oni brajle devas meti aŭ antaŭ aŭ post la signo, ofte kun markilo indikanta la pozicion. Tiel, io, kio platskribe okupas nur unu literspacon, brajle devas esti redonata per pluraj ĉeloj. Tiu procedo estas multe uzata en matematika kaj fonetika notacio, kaj ekstremagrade en muzika notacio, kies kvinlinia pentagramo devas esti tradukata en horizontale legatan sekvencon.
+
+Grandan parton de la kombinoj Braille grupigis en seriojn de po 10. Por la unua serio li utiligis nur la supran kaj mezan etaĝojn de la ĉelo, t.e. punktojn 1, 2, 4 kaj 5. El la 15 ( 2 4 − 1) punktohavaj kombinoj de tiu ĉelparto li selektis 10. La dua serio estas ripeto de la unua, sed kun aldono de punkto 3. La tria serio estas ripeto de la unua, sed kun aldono de ambaŭ subaj punktoj (3 kaj 6). La kvara serio estas ripeto de la unua, sed kun aldono de punkto 6. La kvina serio estas la unua, movita unu etaĝon suben, do okupanta nur kombinojn de punktoj 2, 3, 5 kaj 6.
+
+Al tiuj 50 kombinoj Braille atribuis laŭvice unue la 25 literojn de la latina (franca) alfabeto, poste, unu diakriton post alia, la francajn literojn kun diakrito, kaj poste la du ”ligaĵojn” uzatajn en la franca, nome œ (oe) kaj w (vv). Tiel li kompletigis la kvar unuajn seriojn, jene:
+
+Serio 1: a b c d e f g h i j Serio 2: k l m n o p q r s t Serio 3: u v x y z ç é à è ù Serio 4: â ê î ô û ë ï ü œ w
+
+La kvinan serion Braille rezervis i.a. por interpunkciaj signoj.
+
+La 10 signoj de la unua serio havas ankaŭ la signifon de la 10 ciferoj 1 2 3 4 5 6 7 8 9 0.
+
+Braille utiligis la sistemon ankaŭ por muziknotoj. 7 el la 10 signoj de la unua serio signifas respektive do re mi fa sol la si, kun 8-ona valoro. La samajn notojn duonajn (kaj 32-onajn) reprezentas la koncernaj signoj de la dua serio, la notojn plenajn (kaj 16-onajn) reprezentas tiuj de la tria serio, kaj la notojn kvaronajn tiuj de la kvara serio.
+
+En la origina brajlo, skizita ĉi-supre, Braille atribuis unuĉelajn kombinojn al ĉiuj francaj literoj kun diakritoj. Tiel li sekvis principon, ke ĉiu litero, ĉu pura aŭ kromsignita, de unu lingvo okupu nur unu ĉelon en la brajlo de tiu lingvo. Tiun principon oni sekvis ankaŭ en la decidado de brajlaj formoj de la kromsignitaj literoj de aliaj lingvoj uzantaj la latinan alfabeton. Tion oni faris laŭ pluraj modeloj.
+
+Unu modelon oni povas nomi ”tradicia”. Oni uzas brajlan simbolon de franclingva litero kun diakrito ankaŭ por la sama alilingva litero kun la sama aŭ alia diakrito. Ü (u kun tremao) estas uzata ankaŭ en la germana lingvo, do ĝia brajla simbolo estas la sama en ambaŭ lingvoj. La skandinavaj lingvoj ne havas â (a kun cirkumflekso), sed ili havas å (a kun ringeto); do la sama simbolo estas uzata por â en franca brajlo kaj por å en skandinavaj brajloj.
+
+Alian modelon oni povas nomi “form-egaleca”. La brajla formo de kromsignita litero memorigas pri la brajla formo de la koncerna pura litero. Pri tiu modelo Esperanto estas bona ekzemplo.
+
+La formon de la Esperantaj ĉapelitaj literoj en brajlo unue proponis Harald Thilander, sveda pioniro de blindul-afero ĝenerale kaj de blindul-Esperantista movado speciale, mem blinda kaj malforte-aŭdanta. Supozeble li ellaboris la proponon ĉ. 1900, kaj la brajla Esperanta alfabeto establiĝis en 1903, danke al la agado de la fama franca Esperanto-pioniro Théophile Cart, kiu en 1904 fondis la brajlan revuon Esperanta Ligilo , eble la plej malnovan Esperantan periodaĵon ankoraŭ aperantan. Thilander havigis al si ekipaĵon por presi brajlon, kaj de 1912 ĝis 1958 Esperanta Ligilo estis presata en la presejo de Thilander.
+
+El la ĉi-supra listo de la literoj inkluzivataj en la 4 unuaj serioj de la brajla sistemo deduktiĝas, ke neniu el la brajlaj simboloj por c, g, h, j kaj s enhavas punkton 6. Do la brajlaj simboloj por la ĉapelitaj literoj ĉ, ĝ, ĥ, ĵ kaj ŝ oportune povis aspekti kiel la respondaj literoj + punkto 6. La brajla u, tamen, jam enhavas punkton 6, kaj por doni brajlan formon de ŭ necesis procedi alimaniere: Thilander simple ”inversigis” la brajlan u (punktojn 136), movante ĝian supran punkton al la alia flanko (punktoj 346).
+
+La unuaj proponintoj de brajlaj versioj de ne-latinaj alfabetoj atribuis al la unua serio de la brajla sistemo la 10 unuajn literojn de la koncerna alfabeto, kiel faris Braille mem. Tia modelo povus faciligi al blinduloj de ne-latin-alfabetaj lingvoj la identigon de la ciferoj kiel la 10 unuaj literoj, sed ĝi kreus ĥaoson inter la brajlaj reprezentoj de diversaj parencaj alfabetoj malsame ordigitaj. Ekzemple la tria signo de la unua serio redonus la latinan literon C, la grekan literon Γ kaj la cirilan literon В (prononcata v).
+
+La modelo, laŭ kiu oni sukcesis krei brajlajn versiojn de alfabetoj, estas redoni ali-alfabetan literon en brajlo per kombino laŭeble reprezentanta ekvivalentan literon de la latina alfabeto. Tiel oni faris interalie pri la greka kaj la cirila alfabetoj. Jen kelkaj ekzemploj el la cirila kaj la latina alfabetoj, kie la brajla redono de la cirila litero samas al tiu de la ekvivalenta latina litero:
+
+Cirila ц (sono «c»), latina c Cirila х (sono «ĥ»), latina h Cirila ж (sono «ĵ»), latina j (laŭ modelo franca) Cirila н (sono «n»), latina n Cirila р (sono «r»), latina r Cirila с (sono «s»), latina s Cirila у (sono «u»), latina u
+
+En kelkaj okazoj ne estas ekvivalento. Ekzemple, la cirilan literon ч (sono “ĉ”) oni redonas per la brajla kombino, kiu reprezentas latinan q.
+
+Sed ne ĉiuj platskribaj sistemoj estas literaj. La japana lingvo havas du silabajn ”alfabetojn”. En brajlo ĉiu silabo okupas unu ĉelon: kombinoj de punktoj 3, 5 kaj 6 redonas la silabkomencan konsonanton, kaj kombinoj de punktoj 1, 2 kaj 4 reprezentas la vokalon (plus eventuala silabfina konsonanto).
+
+La ĉinajn ideogramojn ne eblas rekte ”traduki” en brajlon. Jen rudimenta priskribo de ĉina brajlo, ĉerpita el artikoleto aperinta en Esperanta Ligilo antaŭ pluraj jaroj: La ĉina brajlo baziĝas sur la Pekina prononco. Ĉiu vorto (silabo) konsistas el 3 brajlaj ĉeloj: la unua redonas la komenca(j)n konsonanto(j)n, la dua redonas la silabkernan vokalon (eventuale plus silabfina konsonanto), la tria ĉelo redonas la tonon.
+
+Skribsistemo ne estas statika, sed dinamika. Signoj, kiuj eble ekzistas dum jarcentoj, sed pri kiuj preskaŭ neniu sciis, lastatempe fariĝis ĉiutagaĵoj. Pensu pri #, nemalhavebla en telefona klavaro, @, nemalhavebla en ajna retpoŝta adreso, kaj \, trovebla sur ajna komputilo. Estus anakronisme, ke Louis Braille eĉ imagus inkluzivi tiujn signojn en sian sistemon – kvankam li ja inkluzivis cifersignon, kompareblan al ia uzo de #, tiukuntekste nomata ”numer-signo”. Brajlo devus esti same dinamika kiel ajna skribsistemo.
+
+Ni ne ripozu sur niaj laŭroj, supozante, ke brajlo jam ne bezonas observadon kaj kontroladon. La sistemo ja estas definitiva kaj ”eterna”, sed la enhavon de la sistemo necesas konstante observadi. Kvankam ekzistas organoj, kiuj povus unuecigi la brajlan reprezenton de signoj internacie uzataj, estas tendenco, ke oni por ĉiu lingvo aparte decidas la brajlajn redonojn de novaj signoj. Antaŭ kelkaj jaroj la aŭtoro de ĉi tiu artikolo enketis, kiel oni brajle skribas la ”heliksignon” @ en naŭ lingvoj. Li (mi) konstatis, ke en naŭ diversaj manieroj!
+
+Pro la dinamikeco de brajlo necesas de tempo al tempo publikigi gvidilon pri ĝia uzado. Pri la uzado de brajlo en Esperanto sporade aperis informoj, ĉefe en Esperanta Ligilo , lastfoje en 1970. Laŭ iniciato de la aŭtoro de ĉi tiu artikolo, Ligo Internacia de Blindaj Esperantistoj, en ĝenerala asembleo dum la Internacia Kongreso de Blindaj Esperantistoj en Lahtio 2019, decidis publikigi brajlan kajeron kun tia gvidilo.
+
+La kajero havas la titolon Esperanto-brajla normaro – Gvidilo por ĝusta uzado de brajlo en Esperanto kaj ĝin kompilis komisiono konsistanta el Otto Prytz (Norvegio), Attila Varró (Hungario) kaj Anatolij Masenko (Rusio).
+
+Otto Prytz
+
+
+---
+
+# ”Libera Folio volas ŝoki, skui, ataki”
+
+**Published:** 2025-10-08
+
+**URL:** https://www.liberafolio.org/2025/10/08/libera-folio-volas-soki-skui-ataki/
+
+**Categories:** movado
+
+Mireille Grosjean kune kun Zdravka Boytcheva sendis por publikigo siajn kritikajn vidpunktojn pri Libera Folio. Ni aperigas la tekston en formo de vidpunkta artikolo, kune kun mallonga komento de la redakcio.
+
+Prezento de tri faktoj en rilato kun la ĵurnalisma laboro de diversaj kunlaborantoj de Libera Folio
+
+Punkto 1. Mi [Mireille Grosjean] sidas en la Komitato de UEA nome de Svislando dum la UK 2025 en Brno. En la publiko sidas Jukka Pietiläinen. Ni sekvas la elektojn dum la unua sabata kunsido. Mi partoprenas en ili. Post la elekta proceduro la nova prezidanto anoncas, ke la diskonigo pri disdivido de la diversaj estraraj taskoj okazos en la sekva tago, dimanĉo, dum la vespero. Dimanĉe matene mi ricevas retmesaĝon de Jukka (tra kiu retforumo mi ne plu memoras…), en kiu li detale priskribas kiu estrarano zorgos pri kiu fako. Mi miras. Dum la posttagmezo mi hazarde renkontas Jukka en iu koridoro de la kongresejo. Mi alparolas lin kaj demandas : Laŭ kiuj fontoj vi povas anonci la estrarajn taskodividojn? Li respondas: tion priskribis la elekta komisiono kaj kutime la komitato kaj la estraro sekvas tion, do mi jam anoncis tion. Mi tiam reagas per kritiko: tio ne estas bona ĵurnalisma laboro! Ĵurnalisto anoncu faktojn, ne personajn supozojn!
+
+Punkto 2. En la kunsido ”La nova estraro prezentas sin” sidas Zdravka Boytcheva. Jukka Pietiläinen skribas en Libera Folio : ”Ŝi nenion menciis pri la Revuo Esperanto, kiu laŭ la rekomendo de la elekta komisiono apartenu al ŝiaj respondecoj. Neniuj vidpunktoj aŭ demandoj pri la Revuo estis levitaj dum la tuta programero.” Ŝi komentas: ”De tiuj du frazoj kompreneblas, ke oni neniam demandis aŭ diskutis pri la Revuo Esperanto (RE) dum la programero. Kial do mencii tion kaj kial la frazo eĉ devas eki negative? Tiu premo metis min en tre malkomforta kaj malagrabla situacio. Krom la premo mi sentis ankaŭ tiun nepran emon kaj eĉ agresemon eltrovi ”la sensacion” … Ĝuste la saman kiel faras la paparacoj … Mi klare sentis la mankon de respekto en tiu momento.”
+
+Punkto 3. Libera Folio titolis: ”Esperanto malpermesita en Esperanto-kongreso”. Ŝoka titolo, supozeble tio estis la intenco de la redaktoroj. La situacio en la itala kongreso estas bone konata al mi, ĉar same mi devas liveri diversajn dokumentojn pri Svisa Esperanto-Societo (SES) en la franca. Tamen niaj kunsidoj okazas en Esperanto kaj mi tradukas poste. En Italio ili preferis fari tiun laŭstatutan Ĝeneralan Kunvenon en la itala. Tio estis eta ero de la tuta Kongreso. Laŭ mi tia titolo estas troa ĝeneraligo. Ĝuste kaj fakte estus: Esperanto malpermesita en parto de Esperanto Kongreso.
+
+Konklude. Laŭ Vikipedio ”La redakcio de Libera Folio strebas ’sobre kaj kritike prilumi aktualajn evoluojn’ en la Esperanto-movado”. Laŭ mia observo kaj kompreno Libera Folio volas ŝoki, skui, ataki, sproni, tikli, kritiki. Bone, tio povas esti. Certe diversaj aspektoj de nia Movado meritas skuojn, certe diversaj anguloj de nia Movado meritas prilumon. Sed la diversaj punktoj hodiaŭ prezentataj montras ne seriozan ĵurnalisman laboron.
+
+Zdravka: Kaj laste, estas tre demokratie kaj utile havi opozicion, sed estas multe pli bone se ĝi estus konstrukritikema kaj ke ĝi pretu proponi aliajn alternativojn… Krome, ni ĉiuj veturas en la sama boato kaj oni nepre devas atenti ne troigi por ne sinkigi ĝin… Anstataŭ tio, oni povas elekti helpi ĝin atingi novajn kaj eĉ nekonatajn horizontojn uzante noblajn kaj inteligentajn metodojn. Pacon al ni ĉiuj.
+
+Komento de la redakcio:
+
+Punkto 1 mencias retmesaĝon de Jukka Pietiläinen en iu nekonata forumo. Retmesaĝoj de kunlaborantoj en hazardaj forumoj ne apartenas al la respondeco de la redakcio.
+
+Punkto 2 kritikas la jenan frazon en artikolo de Libera Folio : ”Ŝi nenion menciis pri la revuo Esperanto, kiu laŭ la rekomendo de la elekta komisiono apartenu al ŝiaj respondecoj. Neniuj vidpunktoj aŭ demandoj pri la revuo estis levitaj dum la tuta programero.”
+
+Laŭ niaj informoj efektive neniuj vidpunktoj pri la revuo Esperanto aperis dum la programero, kvankam la revuo estas unu el la plej gravaj servoj de UEA. Estas tute normale mencii en raporto, ke grava afero ne estis diskutita.
+
+Punkto 3 kritikas titolon de artikolo . La titolo ja estas frapa, sed ĝi ne asertas ke Esperanto estis malpermesita dum la tuta kongreso. Laŭ la teksto klare eblas kompreni, ke Esperanto estis malpermesita dum specifa programero.
+
+
+---
+
+# Deklaro de ELI pri la milito en Gazao
+
+**Published:** 2025-10-08
+
+**URL:** https://www.liberafolio.org/2025/10/08/deklaro-de-eli-pri-la-milito-en-gazao/
+
+**Categories:** movado
+
+Esperanto-Ligo en Israelo (ELI) diskonigis novan deklaron pri la milito en Gazao. Unuafoje deklaro de ELI pri la temo aperis en novembro 2023. Libera Folio publikigas la tekston.
+
+Deklaracio de ELI pri la milito en Gaza-strio
+
+Sekve de la lastatempaj evoluoj ĉe la milito en Gaza-strio, Esperanto-Ligo en Israelo (ELI) decidis publikigi sian starpunkton, kiu reflektas la opinion de multaj ĝiaj membroj.
+
+ELI ne reprezentas la israelan registaron kaj forte pledas por paco kaj ĉesigo de la homaj suferoj ambaŭflanke. Oni tamen ne forgesu, ke tiun ĉi militon kaŭzis la terorisma surpriz-atako de Ĥamas, kiu la 7-an de oktobro 2023 kruelege murdis en unu tago pli ol 1000 israelajn kaj alinaciajn civilulojn, pli da judoj ol iam ajn post la Holokaŭsto, plejparte familiojn en siaj hejmoj kaj gejunulojn en muzika festivalo. Aldone estis kidnapitaj 250 vivantaj kaj murditaj personoj.
+
+Kiel landa Esperanto-asocio, la celoj de ELI unuavice estas la progresigo de Esperanto en Israelo kaj en la Mezoriento, klopodante esti politike neŭtrala. Tamen, ELI ne povas resti indiferenta al la lastatempaj okazaĵoj en Gaza-strio, nek al la kondamnoj en la Esperanto-movado, kontraŭ Israelo kaj foje eĉ persone kontraŭ israelaj esperantistoj. Tiuj atakoj minacas la progreson de Esperanto en Israelo kaj damaĝas la statuson de ELI kiel registrita societo. Aliflanke, ni dankas por la multaj esprimoj de subteno kaj zorgo pri Israelo, kiujn ni ricevis de esperantistoj el la tuta mondo.
+
+Hodiaŭ, precize du jarojn post la atako de Ĥamas, kiu kaŭzis neimageblajn suferojn al israelaj civitanoj, samkiel al la palestinaj loĝantoj en Gaza-strio, oni ekvidas la efektiviĝon de la lastatempe proponita kontrakto pri fino de la milito kaj liberigo de la israelaj kidnapitoj. Ni esperu, ke baldaŭ finiĝos la suferoj de centmiloj da civiluloj kiuj estis forpelitaj el siaj hejmoj ambaŭflanke de la limo, kaj ke Gazaanoj, samkiel israelanoj, povos vivi sen minaco de atakoj, terorismaj aŭ armeaj.
+
+ELI esperas, ke tiu kontrakto, kiu jam nun estas vaste subtenata de multaj ŝtatoj en la Mezoriento kaj tutmonde, realiĝos. Ĝi ebligos al Israelo, kunlabore kun la mezorientaj landoj kaj la cetera mondo, trovi solvojn por rekonstrui Gaza-strion kiel prosperan senarmilan regionon pace regatan de siaj loĝantoj, kaj malfermos la vojon por stabileco kaj paco en la Mezoriento.
+
+Esperanto-Ligo en Israelo, 7-a de oktobro 2025
+
+
+---
+
+# Nova PIV estos pli ilustrita kaj unuavice reta
+
+**Published:** 2025-10-14
+
+**URL:** https://www.liberafolio.org/2025/10/14/nova-piv-estos-pli-ilustrita-kaj-unuavice-reta/
+
+**Categories:** movado
+
+La prova versio de la nova Plena Ilustrita Vortaro nun estas libere alirebla en la reto. Bertilo Wennergren okupiĝas pri la renovigo de la plej grava Esperanta vortaro preskaŭ plentempe ekde 2020. Ni petis lin rakonti, kiel la nova vortaro diferencas de la antaŭaj versioj, kaj kiam la prova versio iĝos definitiva.
+
+La estonta PIV estos unuavice interreta vortaro, kiu povos esti konstante korektata, kompletigata kaj ĝisdatigata. Ni plu havas planon el ĝi fari ankaŭ paperan version. Sed la papera versio neeviteble estos iom malpli kompleta ol la interreta versio. Ni vidos, ĉu homoj plu entute deziras paperan eldonon, kiam la tempo estos matura por tia paŝo.
+
+La laboro ekis komence de 2020. De tiam mi okupiĝas praktike plentempe pri PIV, sed mi ne laboras sola. Helpas min teamo de diligentaj kaj laboremaj esperantistoj. Por ebligi tian teaman laboron mi kreis apartan redaktejon en la Interreto, kie ni povas tuj vidi ĉion, kion faras ĉiu alia teamano. La rezulto de tiu laboro aperas tuj ankaŭ en la testa versio, kiu uzas la saman datumbazon kaj la saman programaron kiel la redaktejo mem.
+
+Ni provis krei pli da ordo kaj konsekvenceco en la strukturo de la artikoloj. En la ĝisnunaj eldonoj la aliro al verkado de difinoj tre varias, depende de la aŭtoro. La diversaj kontribuintoj kredeble laboris grandparte sendepende, kaj poste oni kunigis iliajn kontribuojn sen multe da koherigado.
+
+Ni kreis por ni sufiĉe detalajn gvidliniojn por la verkado de la artikoloj, kaj krome okazas abundo da aŭtomata kontrolado de la redaktoj por eviti nekonsekvencaĵojn.
+
+Ni faris gravan principan ŝanĝon rilate al vortanalizado.
+
+En antaŭaj PIV-oj vortoj kiel ”alkanolo” (alkoholo, derivita de alkano), ”ektodermo” (ekstera ĉeltavolo), ”fotosintezo” (sintezo de organikaj substancoj per lumenergio), ”amelazo” (pankreata enzimo), ”etnografio” (priskriba studado de homgrupoj), ”apendicito” (inflamo de la vermoforma apendico), ”neŭrotropa” (nervoafina) estis prezentataj kiel efektivaj Esperantaj kunmetaĵoj: ”alk·an·ol·o”, ”ekto·derm·o”, ”foto·sintez·o”, ”amel·az·o”, ”etn·o·graf·i·o”, ”apendic·it·o” kaj ”neŭr·o·trop·a”, do kiel kunmetaĵoj el Esperantaj elementoj, kiuj simple ne ekzistas kiel efektivaj libere uzeblaj Esperantaj radikoj, prefiksoj aŭ sufiksoj.
+
+Vere tiuj vortoj estas unuradikaĵoj enprenitaj kiel tutaĵoj el aliaj lingvoj (internaciaj vortoj): ”alkanol·o”, ”ektoderm·o”, ”fotosintez·o”, ”amelaz·o”, ”etnografi·o”, ”apendicit·o” kaj ”neŭrotrop·a”. Ni nun prezentas ilin ĝuste tiel. Nia impreso estas, ke plej multaj esperantistoj same opinias, ke tiuj vortoj ne estas Esperantaj kunmetaĵoj.
+
+Ni trakontrolis (kaj plu trakontrolas) ĉiujn ekzemplojn, kiuj havas indikon de aŭtoro (precipe Zamenhof), kontrolante la ĝustecon de la citaĵo, kaj provante trovi, kie precize la ekzemplo aperis. Ni devis tre multajn ekzemplojn korekti, ĉar la formo montriĝis iom alia, aŭ eĉ draste alia, kaj ni aldonis precizajn fontindikojn, precipe al ekzemploj, kiuj estas troveblaj en la Tekstaro de Esperanto .
+
+Ĉe ĉiu tia ekzemplo estas ligilo al la efektiva loko en la koncerna teksto en la Tekstaro. Oni simple alklaku la fontindikon, kaj oni tuj povas vidi la kuntekston.
+
+En multaj okazoj ni devis konstati, ke ekzemplo markita kiel zamenhofa plej verŝajne tute ne estas zamenhofa. Ni tiam forigis la Z-indikon, aŭ eĉ tute forigis la ekzemplon. Krome ni aldonis multege da novaj realaj ekzemploj kun aŭtorindiko. La listo de aŭtoroj kaj fontoj kreskis de 53 en PIV 2020 al pli ol 650 diversaj aŭtoroj kaj fontoj.
+
+Por ĉiu derivaĵo ni klare indikas la kunmetitecon, ekzemple
+
+la vorto ”enkestigisto” aperas en PIV 2020 kiel ”en~igisto” (kie la tildo indikas la radikon ”kest”). Ni ĝin prezentas kiel ”en·kest·ig·ist·o” (aŭ kiel ”en~ig·ist·o” se oni elektas la tradician prezenton kun tildoj), por ke oni klare vidu, ke tie rolas la sufiksoj ”ig” kaj ”ist”.
+
+Ni draste reduktis la nombron de mallongigoj uzataj en la difinoj. Ekzemple ni ne plu uzas ”k” por ”kaj”, sed rekte skribas ”kaj”.
+
+Ni decidis, ke PIV estu vortaro, ne enciklopedio. En la antaŭaj eldonoj oni havis la ambicion, ke PIV povu almenaŭ iom servi kiel enciklopedio por popoloj, kiuj ne havas proprajn enciklopediojn. Tial en iuj artikoloj aperas multe da informoj, kiuj en ordinaraj vortaroj de aliaj lingvoj tute ne aperas.
+
+Precipe la botanikaj artikoloj iafoje aspektas pli kiel eseoj pri la temo ol kiel vortaraj difinoj. Tiu ambicio estis ĉiuokaze nur tre nekonsekvence realigita. Nuntempe, malgraŭ ĉiuj siaj mankoj, la Esperanta Vikipedio plenumas tiun rolon multe pli bone. Tial multaj difinoj estas nun mallongigitaj. Sufiĉas, ke oni komprenu, kion signifas la difinata vorto. Oni ne legu en PIV por lerni pliajn ĉirkaŭajn faktojn pri la koncerna afero.
+
+En difinoj de vortoj fakaj ni provas verki unuavice por nefakuloj, komencante la difinotekston per kiom eble simpla kaj facile komprenebla indiko de la senco, uzante kiom eble facilajn vortojn. Tiaj simplaj difinoj tamen ofte ne povas esti tre precizaj. Tial post la simpla komenco por ordinaraj homoj, ni aldonas pliajn detalojn, kiujn la fakuloj kredeble opinias necesaj. Tial ekzemple la latinsciencaj nomoj de bestoj kaj kreskaĵoj nun ne aperas tuj komence de la difino, sed laste, en aparta faka sekcieto.
+
+Ni abolis la geografiajn koordinatojn, kiuj en antaŭaj eldonoj aperas ĉe multaj loknomoj. Tiuj koordinatoj montriĝis ne ĉiam ĝustaj, kaj ni ĉiuokaze pritaksis, ke nur tre malmultaj legantoj uzas tiujn indikojn por certiĝi, pri kiu loko temas. Anstataŭe ni enkondukis nacilingvajn nomojn kiel aldonaĵojn al la teksta difino, ofte en pli ol unu grava lingvo. Ni pensas, ke tiaj indikoj povas esti multe pli utilaj al la uzantoj de la vortaro. Tiu transiro estas tamen ankoraŭ nur parte plenumita.
+
+Ni aldonas novajn ilustraĵojn anstataŭ tiuj, kiuj estis en antaŭaj eldonoj. La precipa kialo estas, ke ni neniam ricevis la antaŭajn bildodosierojn. Sed ni krome volas uzi pli realismajn kaj ofte eĉ kolorajn bildojn. Tiu laboro estas tamen ankoraŭ nur en komenca fazo. Tial estas ĝuste nun nur malmultaj ilustraĵoj. Ni utiligas por tiu celo la vastan kolekton de libere uzeblaj bildoj en la Vikimedia Komunejo .
+
+Ni draste reduktis la nombron de neesperantaj vortoj, kiuj iom kurioze aperas kun propraj artikoloj en antaŭaj PIV-oj. Precipe temas pri neesperantigitaj propraj nomoj, kiel ”Abiŝag”, ”Barbara”, ”Ceres” kaj ”Kalevala”, sed ankaŭ vortoj kiel ”sennora” kaj ”ghetto”. Finfine ni verkas vortaron de Esperanto, ne de aliaj lingvoj. Kelkaj tiaj nomoj tamen plu restas, se estas ia aparte forta kialo por reteni ilin. Kaj ni devis aldoni ”Zamenhof”, kiu en PIV 2020 kurioze mankas (oni trovas tie nur la apenaŭ uzatan formon ”Zamenhofo”).
+
+Ĉiu artikolo nun prezentiĝas en multe pli klara aranĝo plur-alinee laŭ sekcioj (ne kiel unu longa tekstobloko). La ekzemploj aperas en listoj, en kiuj ĉiu ekzemplo estas aparta linio kun antaŭa buleto. Tamen tiuj, kiuj tion deziras, povas ŝalti unublokan densan prezenton.
+
+Por rimarkoj, kiuj validas por pluraj vortoj, ni enkondukis klarigajn notojn en aparta paĝo. Ĉe ĉiu vorto, por kiu validas tia klariga noto, aperas demandosigna simbolo. Se oni musumas sur ĝi, aperas mallonga versio de la klariga noto. Se oni alklakas la demandosignon, oni sendiĝas al tiu aparta paĝo, kie estas pli longa versio de la noto. Ekzemple por gentovortoj kiel ”anglo”, ”franco” kaj ”japano” ni verkis unu komunan tian noton pri la varieco de sencoj, kiujn havas tiaj vortoj en la praktika uzado.
+
+Kaj kompreneble ni faris milojn kaj milojn da etaj korektoj, kompletigoj kaj ĝisdatigoj. Neniu povas diri, kiam la nun redaktata vortaro povos iĝi la oficiala versio de PIV, sed ni iafoje duonŝerce parolas pri PIV 2030.
+
+Unu grava paŝo estas inviti pli da fakuloj por prilabori kaj kontroli la diversajn fakajn terminojn en PIV. Multo el tiu materialo ŝajnas neĝisdata. Mia propra listo de farendaĵoj cetere estas tiom longa, ke mi eĉ ne kuraĝas ĝin rigardi…
+
+Bertilo Wennergren
+
+La testa versio de PIV estas alirebla ĉe testo.vortaro.net . Tie troveblas ankaŭ ampleksaj klarigoj pri la vortaro.
+
+
+---
+
+# ”Esperanto estas por mi fenestro al la mondo”
+
+**Published:** 2025-10-21
+
+**URL:** https://www.liberafolio.org/2025/10/21/esperanto-estas-por-mi-fenestro-al-la-mondo/
+
+**Categories:** movado
+
+Por kio utilas Esperanto? Juna esperantisto en Kabulo, respondas: ”Mi esperas, ke Esperanto helpos al mi lerni pri aliaj kulturoj kaj komuniki kun homoj ekster mia lando. Ĝi donas al mi senton, ke mi ne estas tute izolita.” Sed dum li mesaĝadis kun Libera Folio , la retligo kun la ekstera mondo estis interrompita de la talibanoj.
+
+Lia vera nomo estas alia, sed ni nomu lin Bahram, ĉar en Afganio estas danĝere esprimi vidpunktojn, kiuj ne kongruas kun la oficiale akceptataj, kaj ankaŭ kontaktoj kun eksterlando povas esti riskaj. Por kontraŭlabori ”malmoralan aktivadon” la talibana registaro de Afganio lastatempe komencis limigi la aliron al interreto, kaj tiel ankaŭ nia kontakto kun Bahram portempe estis rompita.
+
+Libera Folio ekhavis kontakton kun Bahram tra esperantista reta forumo, kaj li konsentis iom rakonti pri si mem.
+
+– Mi estas juna studento en Kabulo. Mi malkovris Esperanton pere de interreto, ĉar mi ĉiam interesiĝis pri lingvoj. Mi lernas memstare, paŝon post paŝo. Mi lernas plejparte per la retejo Lernu, kaj ankaŭ per la aplikaĵo Duolingo, kvankam ĝi ne estas tre efika por Esperanto. Mi plej ofte uzas Esperanton por legi tekstojn en la reto kaj foje por interŝanĝi mesaĝojn kun homoj el aliaj landoj. Ĝi estas por mi fenestro al la mondo.
+
+Bahram ne konas aliajn esperantistojn en Afganio, kaj lin surprizas la Vikipedia informo, laŭ kiu la taĝika esperantisto Saidnabi Saidilhomzoda en 2005, subtenate de UEA, gvidis kurson de Esperanto en la Kabula Universitato (Afganio), al kiu aliĝis ĉirkaŭ 150 personoj. Tiam la cirkonstancoj en la lando tamen estis tute aliaj.
+
+– Mi povas aliri Vikipedion, sed mi ne sciis pri tiu informo ĝis nun. Kiel interese! Mi pensis, ke mi estas la unua esperantisto ĉi tie.
+
+La kontaktoj kun eksterlando nuntempe estas limigitaj, kaj Bahram rakontas ke li mem neniam vizitis alian landon, kvankam vojaĝoj al iuj landoj principe ne maleblas.
+
+– Jes, la situacio ne ĉiam facilas. Kontaktiĝi kun eksterlando povas esti malfacile, foje pro tekniko, foje pro sociaj kialoj. Sed interreto donas iun eblecon. Aliro al interreto ĝenerale estas ebla, sed foje okazas interrompoj. Interreto estas multe pli multekosta ol en niaj najbaraj landoj kiel Pakistano kaj Irano. Multaj eksterlandaj retejoj ne funkcias ĉi tie, kaj iuj aplikaĵoj, kiel Tik Tok kaj la ludo Pubg, estas blokitaj.
+
+La rajtoj de virinoj en Afganio nuntempe estas preskaŭ neekzistantaj. En la universitato de Bahram estas nek virinaj instruistoj nek virinaj studentoj. Laŭ novaĵo de BBC libroj verkitaj de virinoj lastatempe estis forigitaj el universitataj bibliotekoj de Afganio kaj malpermesitaj por uzo en instruado.
+
+– La vivo de virinoj estas tre limigita ĉi tie. Ili eĉ ne havas aliron al bazaj rajtoj kiel edukado post la sesa klaso. Ili ne povas iri al la banejo aŭ parko nek stiri aŭton. Vere, eĉ se mi multe dirus, ĝi estus malmulte por priskribi la situacion. Pri la situacio de virinoj, mi povas paroli kun miaj proksimaj amikoj, ĉirkaŭ ses personoj. Sed kun aliaj homoj ne eblas paroli, ĉar ĉi tie estas tre danĝere, Bahram rakontas.
+
+Malpli danĝere ol paroli pri virinaj rajtoj estas paroli pri lernado de fremdaj lingvoj.
+
+– Laŭ mi tio ne estas riska. Mi havas amikon, kiu interesiĝas pri lingvoj.
+
+Tamen evidente la regantoj ne ŝatas ke oni uzu fremdajn lingvojn por kontakti kun eksterlando kaj ekhavi maltaŭgajn ideojn. En septembro interreto estis malpermesita en nordaj partoj de la lando por ”ĉesigi malmoralajn aktivadojn”, kaj baldaŭ aperis signoj, ke la retligo povos esti interrompita ankaŭ en la ĉefurbo.
+
+– Novaj limigoj estis starigitaj. Eble ni havos interreton nur dum kelkaj tagoj aŭ maksimume unu monato. Poste, laŭ ordono de la Islama Emirlando, la tuta interreto en Afganio estos tranĉita, Hieraŭ mi havis problemojn kun la poŝtelefona interreto, sed ĝi funkcias. Tamen, ili fermis la fibro-optikan interreton, kaj ili eltiradas la kablojn el sub la tero, Bahram tiam skribis al Libera Folio .
+
+Poste kontakto kun li dum tempo estis perdita, kaj efektive interreto estis malŝaltita en la tuta lando dum pli ol du tagnoktoj.
+
+La kompleta perdo de retligo tamen kaŭzis enormajn praktikajn problemojn ne nur al privatuloj, sed al la funkciado de la tuta lando, kaj fine la ligo estis restarigita komence de oktobro. Tiam ankaŭ Bahram povis respondi:
+
+–  Saluton! Preskaŭ 55 horojn en Afganio ĉio estis tute fermita: la interreto poŝtelefona, WiFi fibrooptika, ĉio ajn. Eĉ la telefonaj vokoj kaj SMS-oj ne funkciis. La homoj estis tute konfuziĝintaj kaj maltrankvilaj.
+
+Provizore la retligo en Kabulo ŝajnas funkcii relative stabile, kaj Bahram povas atingi ekzemple Lernu.net.
+
+– Mi esperas, ke Esperanto helpos al mi lerni pri aliaj kulturoj kaj komuniki kun homoj ekster mia lando. Ĝi donas al mi senton, ke mi ne estas tute izolita. Kaj estas simple ke ĉi tiu lingvo interesas min kaj mi ĝuas ĝin.
+
+
+---
+
+# Studprogramo de EU instruos pri Esperanto
+
+**Published:** 2025-10-28
+
+**URL:** https://www.liberafolio.org/2025/10/28/studprogramo-de-eu-instruos-pri-esperanto/
+
+**Categories:** movado
+
+”Esperanto kiel interfaka kampo por transnacia novigado” estas la temo de nova universitata programo, okazonta kadre de Erasmus+.  Ok universitatoj en ok landoj kunlaboras pri la programo.
+
+La miksa intensa programo (Blended Intensive Programme, BIP) estas nova iniciato sub la ŝildo de la EU-programo Erasmus+, celanta plibonigi internacian edukadon per kombino de interreta instruado kaj mallonga surloka studado. Ĉi tiu formato ebligas al studentoj el diversaj landoj kunlerni kaj spertiĝi.
+
+La kursoj disvolviĝas unue interrete kaj la grupo poste kuniĝas en la sidejo de la kunordiganta universitato. Ĉiu BIP enplektas almenaŭ tri universitatojn el tri malsamaj Erasmus+ landoj, kio antaŭenigas interkulturajn interŝanĝojn kaj akademian kunlaboron.
+
+La BIP-programo ”Esperanto kiel interfaka kampo por transnacia novigado” estas la unua dediĉita al Esperanto. La programo estas kunordigita de la Universitato de Tours (Francio), kiu ellaboris la programon kunlabore kun Universidad de Sevilla (Hispanio), Universität Bamberg (Germanio), Università degli Studi di Parma (Italio), Universiteit van Amsterdam (Nederlando), Boğaziçi Üniversitesi (Istanbulo, Turkio), Universiteit Gent (Belgio) kaj Universitatea din București (Rumanio).
+
+Kunlaboro estis proponita ankaŭ al Vytauto Didžiojo universitetas el Kaŭno, kiu tamen ne deziris asociiĝi malgraŭ interkonsento en 2023 kun Litova Esperanto-Asocio por subteno al Esperanto per enkonduko de studobjekto, instruado al gestudentoj kaj kunlaboro al internaciaj projektoj.
+
+La kurso celas enkonduki studontojn en la lingvon Esperanto kaj en ĝian esplor-sferon.  Ĝi esploras la rolon de Esperanto en la moderna mondo, temigante ĝian uzadon en diversaj fakoj kaj ĝian kontribuon al transnaciaj komunikado kaj kunlaboro. Partoprenantoj havos la okazon lerni pri la historia kaj kultura kuntekstoj de Esperanto, analizi ĝian lingvan strukturon kaj esplori ĝian aplikadon en internaciaj kuntekstoj.
+
+La projekto baziĝas sur la konstato, ke la transnacia fenomeno Esperanto posedas plurajn aspektojn (komunikilo, lingva praktiko, historia realaĵo, interkultura komunumo, socia eksperimento, beletra produktado, filozofia demando…).
+
+Tamen, ĝi malofte estas konsiderata kiel interfaka studkampo ebliganta observi la kondiĉojn de kultura interagado en unika transnacia medio, kaj konsekvence ĝi konsistigas riĉan esplorfonton.
+
+La celo de la seminario estas do prezenti la demandojn pri konstruitaj lingvoj kaj lingva justeco en plurlingva kunteksto kaj instigi la studentojn disvolvi pripensojn surbaze de la longdaŭra sperto de la esperantista praktiko-komunumo.
+
+La programo konsistos el du partoj. La retajn lingvo-kursojn gvidos Denis Keefe. Kandidatoj kiuj jam scipovas Esperanton ne devos sekvi tiun parton.
+
+Paralele ĉiuj partoprenos enkondukajn kursojn pri : ”Esperanto en la mondo de lingvistiko” (Philippe Planchon), ”Esperanto kiel konstruita historia studobjekto” (Pascal Dubourg Glatigny), ”Sociolingvistiko de Esperanto” (Federico Gobbo), ”Geografio de Esperanto” (Denis Eckert) kaj ”Filozofia fono de konstruitaj lingvoj” (Başak Aray).
+
+En la unua semajno de junio 2026, la studentoj grupiĝos en Tours por profundigi sian konon de Esperanto kaj partopreni en serio de prelegoj, kaj ili laboros mem en grupetoj sub gvido de pluraj profesoroj el la partneraj universitatoj por pripensi kiamaniere aliri esperanto-rilatajn temojn de sia propra esplorkampo.
+
+La BIP-programo pri Esperanto estas malferma al studentoj ne nur de la partneraj universitatoj sed ankaŭ de kiu ajn altlernejo kiu partoprenas en la BIP-sistemo. Ĝi estas proponata al studentoj de ĉiuj homaj kaj sociaj sciencoj kaj ankaŭ de aliaj fakoj kondiĉe ke ilia hejma universitato rekonu ĝin. Ĝi direktiĝas al ĉiuj, de la unuaj jaroj ĝis doktoriĝo. La partoprenintoj ricevos poentojn (ECTS) por sia hejma diplomo kaj ankaŭ vojaĝ- kaj restadsubvencion.
+
+La BIP-formulo proponas novajn ŝancojn por la enkonduko de Esperanto en la universitataj medioj. Se la kurso ricevos sufiĉe da partoprenantoj, ĝi povos ripetiĝi estonte, kaj laŭbezone pliaj BIP-oj povus esti lanĉitaj, eĉ kun pli specifaj aliroj, aŭ en asociiĝo kun aliaj universitatoj. Interesatoj turnu sin al Philippe Planchon, kunordiganto ĉe la universitato Tours ĝis la 15-a de novembro 2025.
+
+Pascal Dubourg Glatigny
+
+
+---
+
+# Nova plano difinas strategiajn celojn de UEA
+
+**Published:** 2025-10-29
+
+**URL:** https://www.liberafolio.org/2025/10/29/nova-plano-difinas-strategiajn-celojn-de-uea/
+
+**Categories:** vidpunkto
+
+Ofta eraro en la historio de la laborprogramoj kaj strategiaj planoj de UEA estas la emo inkluzivi ĉion kion oni faras en la asocio. Tion skribas la prezidanto de UEA, Fernando Maia, en vidpunkta teksto verkita por Libera Folio . La nova plano kun la akronima titolo AKIRI klopodas eviti tion, difinante po tri strategiajn celojn en kvin agadkampoj.
+
+Kalle Kniivilä invitis min komenti por Libera Folio pri la signifo de AKIRI – la nova strategia plano de UEA por la periodo 2025–2030. Ĝi estis prezentita al la Komitato de UEA per referenca dokumento , publike konsultebla. Membroj povis informiĝi ankaŭ per la novembra numero de Esperanto , kaj AKIRI eniris la tagordon de kunsido de la Komitato de la 29-a de novembro 2025, kiam okazos formala aprobo.
+
+Prezenti strategion ja estis tasko donita al la novelektita Estraro. Mi kiel nova prezidanto fariĝis ĉefrespondeca – sed bonŝance ne devis komenci de nulo. AKIRI estas akronimo por la kvin strategiaj kampoj de UEA: Administrado, Kunlaborado, Informado, Rilatoj kaj Instruado. Tio spegulas la laboron de Duncan Charters, kiu en la antaŭa mandato funkciigis la strategion KIRI.
+
+Duncan faris grandiozan laboron, ofte maljuste nerekonatan: li ne nur analizis la antaŭan planon de Mark Fettes, sed ankaŭ kolektis la ideojn de la komunumo tra la mondo, per partopreno en eventoj, retkunsidoj kaj enketiloj. Ĉion li resumis sub la nomo KIRI, klarigante pri tio per pluraj artikoloj en la revuo Esperanto .
+
+Al mi tamen ne restis nur aldoni la literon ”A” . Mankis al KIRI prezento en memstara formo, kun elementoj, kiuj donu konturojn al la strategio, por pli klara kompreno. Tion sopiris Duncan mem, kaj la tasko finfasoni la strategion fariĝis oportuna okazo por organizi la ideojn, nome pri kio UEA talentas, por kio ĝi ekzistas, kion ĝi celas, kion ĝi esperas, kio por ĝi valoras kaj kiel ĝi laboru. Ankaŭ pri tio mi ne devis ”inventi la radon”, sed ĉerpi el konkretaj referencoj.
+
+La talentojn de UEA mi difinis per analizo de nia preskaŭ 120-jara historio. Ili estas kunligi, reprezenti kaj servi – kaj konscio pri ili gvidis la poluron de la aliaj elementoj de AKIRI.
+
+La misio kaj vizio de UEA kiel difinitaj en AKIRI devus esti evidentaj por esperantistoj, ĉar ili baziĝas sur la Statuto kaj la ideoj de Zamenhof kaj Hodler. Tamen ili gravas ĉefe por komuniki al la ekstera mondo: dum nia vasta laboro pri eksteraj rilatoj ni ofte konstatis mankon de kompreno – aŭ ĉeeston de miskomprenoj – pri tio: por kio UEA ekzistas kaj kion ĝi celas.
+
+Ĝuste tion klarigas la misio kaj vizio. Ni cetere planas prepari nacilingvajn versiojn de tiuj tekstoj. Mencioj pri multlingvismo kaj poliglotismo, kiuj speciale celas la sferojn de UN kaj EU, montras, ke la movado por neŭtrala lingvo ne kontraŭas lingvan diversecon, sed efektive subtenas ĝin.
+
+La valoroj de UEA komplementas la komunikon al la neesperantista publiko, sed ili ja celas ĉefe influi la internan komunumon. Kvankam ili povus ŝajni evidentaj, ili estas necesa reaserto: memorigo pri tio, kion ni valorigu, kie ni investu nian energion kaj kiel ni nutru komunuman kulturon kongruan kun la strategio. Strategio ne realiĝos, se la reganta kulturo estas alia.
+
+Ofta eraro – aparte en la historio de la laborprogramoj kaj strategiaj planoj de UEA – estas la emo inkluzivi ĉion, kion oni faras en la Asocio. AKIRI tamen faras diferencon inter rutino kaj strategio. Tiel por ĉiu el la kvin kampoj de AKIRI estis difinitaj po tri strategiaj celoj, kio indikas la 15 absolutajn prioritatojn de UEA por la periodo.
+
+Ili ne estis elpensitaj de nulo, sed forte referencis al la konkludoj de la komitataj forumoj en Brno – do forte spegulas la dezirojn de la Komitato de UEA. Kaj por konkretigi ilin estas proponate funkciigi strategiajn programojn, kiuj akcelu kaj kombinu agadojn por pli da efikeco kaj sinergio.
+
+Por finfasoni AKIRI mi konsideris ne nur la laboron de Duncan (kaj Mark), sed esploris ankaŭ pri pasintaj planoj kiel tiuj de Ivo Lapena de 1955 kaj 1974. Estas interese noti, ke en la praktiko la diversaj planoj iel havas similan esencon, kompreneble diferenciĝante laŭ detaloj, tipaj de siaj tempoj. Bedaŭrinde simileco ŝajne ankaŭ estas en la manko de pli evidentaj metodoj por difino de celoj kaj ŝlosilaj rezultoj kaj identigo de realigrimedoj, riskoj, alternativoj kaj mezureblaj elementoj, kiuj rolu kiel indikiloj de la progreso.
+
+Pro tio, por AKIRI mi decidis apliki ĉefe la metodon OKR (el la angla Objectives and Key Results, laŭlitere ”celoj kaj ŝlosilaj rezultoj” – kion mi adaptis al ”celoj kaj konkretaj rezultoj”) kaj la nocion KPI (Key Performance Indicator, ”ŝlosila plenum-indikilo” – kion mi adaptis al ”kerna progres-indikilo”). Ĉio povas soni tre merkatece, sed tio vere portas valoron al la mastrumado de la agadoj. Kaj ili ne tedos la ĝeneralan publikon, sed aperos pli en la interna laboro.
+
+Kompreneble tio ĉio sola neniel estas garantio de sukceso. Efektivigo de la strategio daŭre estos vera defio kaj forte dependos de la kapablo de UEA mobilizi la komunumon. Mi provis kombini en AKIRI filozofion kaj praktikon. Mi insistas, ke nia komunumo havu konscion pri la potenco de nia espero kaj de nia aktivismo por la mondo. Samtempe ni estu realismaj pri tio, kion eblas atingi en la mallonga daŭro. Tial AKIRI antaŭvidas revizion ĉiujare, kun difino de prioritatoj por ĉiu funkci-jaro.
+
+AKIRI kalkulas je kolektiva agado. Efektive mi ne intencas investadi (nek investigi) multe da tempo por diskutoj pri la strategio. Ĝi estis prezentita tiel, ke ĝi povu esti relative akceptebla kaj utili kiel bazo por agado kaj agigo. Diskonigo de la strategio ne devos longe daŭri, por ke la fokuso estu sur farado.
+
+Tial mi dankas al Libera Folio por la spaco donita por komentario pri AKIRI. En tiu komentario mi celis ne ripeti tion, kio jam legeblas en la referenca dokumento aŭ en Esperanto. Esperinde la publiko ilin legos – kaj la ĉi-tieaj informoj interesos kaj aldonos ion novan. Kaj des pli esperinde niaj agadoj sukcesos speguli kaj konkretigi – realigi – tiun strategion: favore plene al tio, kion ni deziras akiri kiel Esperanto-movado.
+
+Fernando Maia Jr.
+
+
+---
+
+# Plusoj kaj minusoj en la nova strategia plano
+
+**Published:** 2025-11-04
+
+**URL:** https://www.liberafolio.org/2025/11/04/plusoj-kaj-minusoj-en-la-nova-strategia-plano/
+
+**Categories:** movado
+
+La nova strategia plano de UEA estas facile superrigardebla kaj listigas kvin klarajn celojn por la proksima jaro. Tamen entute dek kvin ”strategiaj” celoj por la sekvaj jaroj estas tro multe, des pli ke ne klaras, kio estas prioritata kaj kiu respondecas pri plenumo, opinias Tim Owen. Francisco Javier Moleón volus ke UEA konsideru, kial esperantistoj ne vidas kialon aliĝi al la asocio, dum Osmo Buller miras ke la prezidanto de UEA indikis sin mem kiel la aŭtoron de la plano.
+
+UEA denove havas strategian planon por la proksimaj jaroj. La plano kun la akronimo AKIRI ekvalidos post kiam la komitato ĝin aprobos, rakontis la nova prezidanto de UEA, Fernando Maia, en vidpunkta artikolo en Libera Folio .
+
+La antaŭa strategia plano de UEA estis kompilita sub la gvido de Mark Fettes, kaj ĝi ekvalidis en 2013. Oni uzis multe da tempo por ellabori tre detalan, 38-paĝan planon, sed efektive preskaŭ nenion planitan la asocio sukcesis realigi. Krome la plano ĉesis validi jam en 2017.
+
+Ellaboradon de nova plano indikis kiel sian prioritaton Duncan Charters en sia unua novjara mesaĝo kiel prezidanto de UEA komence de 2020. Dum liaj du mandatperiodoj oni multe diskutis pri la plano, sed ĝi neniam pretiĝis.
+
+Fine, komence de oktobro 2025, iom pli ol du monatojn post sia elektiĝo, Fernando Maia povis prezenti la planon, kiun li kompletigis kaj kompilis ĉefe surbaze de la diskutoj okazintaj dum la mandatperiodoj de Charters.
+
+La plano prezentas entute dek kvin ”strategiajn celojn” por la kvin ”strategiaj kampoj” – administrado, kunlaborado, informado, rilatoj kaj instruado. La inicialoj de tiuj vortoj formas la akroniman nomon de la plano, AKIRI.
+
+Krom la ”strategiaj celoj” por la jaroj 2025–2030, la plano difinas ankaŭ kvin prioritatojn por la venonta jaro. Tiuj estas:
+
+Funkciigi novan membro-sistemon por plibonigi la uzanto-sperton kaj la efikecon de la internaj procezoj.
+
+Kreskigi enspezojn tra projektoj, donacoj kaj investoj por kompensi redukton de enspezoj pro kotizoj.
+
+Konkludi la vendon de la oficeja domo ĉe Nieuwe Binnenweg 176 (Roterdamo) por subteni pli efikan oficejan modelon (inkluzive revizii la funkciigon de la Libroservo por subteni ĝian mision).
+
+Kreskigi la konscion pri Esperanto por ebligi trafajn informojn kaj akiri pli da subteno al la movado.
+
+Kreskigi la membraron por fortigi la tutmondan reprezentecon de UEA.
+
+Tim Owen, direktoro de Esperanto-Asocio de Britio, trovas tiun listigon de kvin klaraj prioritatoj por la proksima jaro la plej pozitiva trajto de la nova plano.
+
+– En grandaj deklaroj eblas perdi la fokuson, des pli, kiam temas pri periodo kvinjara. Ke tiu kvino estas prezentata eksplicite, do, estas gratulinde.
+
+Des pli laŭdinde estas laŭ li, ke almenaŭ kvar el la indikitaj punktoj estas klare mezureblaj – aŭ oni sukcesos pri la indikita tasko, aŭ ne sukcesos. Tiel ekzemple pri la funkciigo de nova membrosistemo:
+
+– Oni aŭ jes aŭ ne estos sukcesinta funkciigi tion, do facile mezurebla celo. Tio laŭ mi estas la plej decida paŝo, ĉar kredeble ĝi celas ankaŭ la retejon; nenio prezentas UEA kiel stagnan, aliepokan pli ol tio. Se ŝanĝiĝos nenio alia, moderna retejo estos pozitivaĵo. Kaj male: se pliboniĝos ĉio alia, ne vere gravos, ĉar la publika eksteraĵo estos ĉio, kion vidos novuloj.
+
+Malpli facile mezureblas la celo “kreskigi la konscion pri Esperanto”, kaj ĝenerale laŭ Tim Owen ne klaras, kiel tio povus okazi grandskale.
+
+La nova plano estas laŭ li relative facile legebla, interalie ĉar ĝi estas multe malpli ampleksa ol la antaŭa plano.
+
+– La legebleco venas ne sole de tio; multe helpas la moderna prezento. Tiun efikon montras la tute freŝa Strategia Laborplano de TEJO: mi ankoraŭ ne finleĝis ĝin pro ĝia tekstmureco, malgraŭ tio, ke ĝi malpli longas je triono, laŭ vortkalkulo.
+
+La problemo pri la antaŭa laborplano laŭ Tim Owen estis, ke ne evidentis, kiu faros kion, kaj finfine mankis plenumontoj. Similan problemon li vidas en la nova plano.
+
+– Estas prezentataj po tri strategiaj celoj por la kvin branĉoj Administrado, Kunlaborado, Informado, Rilatoj kaj Informado. Kiuj estas prioritatoj? Kiu plenumos? Kiel?
+
+Francisco Javier Moleón, iama oficisto de UEA, pli kritike sintenas al la plano, kaj proponas al la asocio pripensi, kial la kotizaj enspezoj ŝrumpas.
+
+– UEA devus sin demandi, kial esperantistoj ne vidas klaran kialon aliĝi al UEA. Tio estus grava parto de strategia plano. Konsilo: proponu bonajn servojn, kaj homoj volonte aliĝos; proponu mizerajn servojn, kaj homoj same volonte malaliĝos.
+
+En la strategia plano troviĝas interalie ”programoj 101 kaj 1001”, kiuj celas ke landaj asocioj en iuj landoj strebu havigi 101 novajn membrojn, dum landaj asocioj en Ĉinio, Usono, Japanio, Brazilo, Francio kaj Germanio strebu havigi eĉ 1001 novajn membrojn.
+
+Moleón tamen atentigas, ke oni ŝajne ne atendas ke tiuj novaj membroj alportu kotizajn enspezojn. Almenaŭ laŭ la konkreta ekzemplo pri Kubo, prezentita en la plano, la membrokotizoj estu subvenciitaj.
+
+– UEA ne havos novajn enspezojn, sed mem elspezos la necesan monon. Nu, tio estas ja bela maniero atingi 101 membrojn. Tiel oni povos atingi ankaŭ 1001 membrojn. Verŝajne eĉ 10 001.
+
+Nerealisma li trovas la programon Oceanio, kiu celas ”fortigi kaj videbligi la Esperanto-movadon en Oceanio, kun speciala atento al instru- kaj informagadoj kaj al indiĝenaj komunumoj kaj lingvoj”.
+
+– Ĉe legado tiu programo tuj ŝajnis al mi ambicia: la tuta Oceanio! Ĝis mi atingis la finon de la alineo: ”simile por Azio, Afriko, Eŭropo kaj Ameriko”. Tiam la nur ambicia programo iĝis monumenta. Ni vidos, kio iĝos almenaŭ el la nur ambicia programo. Mi ne miros, se la rezulto estos fojaj gazetaraj komunikoj pri kurseto en la urbo XYZ de la oceania lando QWERTY. Kaj fino de la monumenta planero.
+
+Bela kaj pompa laŭ li estas la celo ”fortigi la akademiecan prestiĝon de Esperanto per subteno al universitataj katedroj, bibliotekoj kaj arkivoj, esplorprogramoj kaj sciencaj kongresoj”.
+
+– Sed kion tio signifas en la praktiko? Kiel tia subteno efektiviĝos? Ĉu temas pri mona subteno, sponsoreco (”UEA apogas tion”), kunlaboro kun niaj sciencistoj (kie ili estas?)…? Mi suspektas, ke tio restos bela idealo malfacile konkretiĝonta. Sed eble mi eraras (kiel tiom ofte) kaj ĝi montriĝos la plej sukcesa ero de la plano.
+
+Osmo Buller, antaŭa ĝenerala direktoro de UEA, atentigas ke la dokumento devas esti benita de la komitato por ke ĝi estu konsiderata oficiala strategia plano de UEA.
+
+– Krome en ĝi ne povas esti mi-esprimoj, nek ĝi povas surhavi kovrile individuan aŭtoron. Eĉ Lapenna ne metis sian nomon en siaj strategiaj dokumentoj. Ankaŭ ne faris tion Tonkin nek Fettes.
+
+– La antaŭa strategia plano parolis pri UEA kiel eduka movado kaj difinis kiel ĝian gravan taskon edukadon al tutmonda konscio. Tio ne estas sufiĉe elstarigita en la nun proponata plano. Mi ĉiam vidis UEA ankaŭ kiel klerigan asocion, kiu ĉiel strebu plialtigi la klerecan nivelon de la movado. Tio mankas en la plano, kio konkrete aperas ekzemple en tio, ke ĝi diras nenion pri la revuo, kiu devus havi ŝlosilan rolon kiel kleriganto de membroj.
+
+Ke UEA neglektas sian klerigan taskon, laŭ Buller montriĝas ankaŭ en la formorto de la eldona agado, pri kiu la plano same silentas.
+
+– Estas malĝojige konstati, ke ekzemple pri la movada historio regas granda nescio ne nur inter esperantistoj ĝenerale sed eĉ inter movadaj gvidantoj. Iam mi skribis en la revuo, ke historia kono estas bufro kontraŭ naiveco, kiu delogas fari multekostajn erarojn kaj ripeti samajn elreviĝojn. La strategia plano devus preni serioze refortigon de tiu bufro.
+
+– Bedaŭrinde eblas jam timi, ke la nova plano havos saman sorton kiel la antaŭa, nome forgeson. Kvankam publikigita antaŭ tri semajnoj, en la komitata diskutlisto regas plena silento pri ĝi.
+
+
+---

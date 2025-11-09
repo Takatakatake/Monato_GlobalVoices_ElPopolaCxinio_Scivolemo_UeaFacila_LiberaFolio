@@ -7,7 +7,6 @@ env/
 .env
 *.log
 retradio_cache.sqlite
-output/
 *.zip
 *.Zone.Identifier
 *Zone.Identifier

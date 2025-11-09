@@ -1,0 +1,5161 @@
+---
+source: "Libera Folio (liberafolio.org)"
+generated_at: "2025-11-08T15:40:30.097500+00:00"
+generator: "retradio_lib.py"
+time_range: "2023-01-10 – 2023-12-28"
+---
+
+
+# Kiu aĉetos la Centran Oficejon?
+
+**Published:** 2023-01-10
+
+**URL:** https://www.liberafolio.org/2023/01/10/kiu-acetos-la-centran-oficejon/
+
+**Categories:** UEA, movado
+
+Universala Esperanto-Asocio havas tri grandajn defiojn en 2023. Ĉiuj estas ligitaj al la decido vendi la multjaran sidejon de la asocio en Nieuwe Binnenweg 176. Ĉiuj restas nesolvitaj.
+
+Jam plurajn jarojn daŭras la diskuto pri la sorto de la domo de UEA en Nieuwe Binnenweg, kaj intertempe la situacio diversmaniere ŝanĝiĝis. Jam ne validas la oferto, kiun UEA ricevis pli frue. La merkato de nemoveblaĵoj fariĝis malpli favora por vendanto interalie pro la milito en Ukrainio. Tial ne tute klaras, kiel finiĝos la afero.
+
+Jam en 2019 la tiama prezidanto de UEA, Mark Fettes, proponis ke UEA liberiĝu de la domo en Roterdamo kaj movu reduktitan oficejon al alia lando. En financa raporto publikigita en 2020 oni taksis, ke eblos vendi la oficejon por 500 000 eŭroj. En aŭgusto 2021 Libera Folio povis raporti, ke la estraro de UEA efektive planas fermi la Centran Oficejon en Nieuwe Binnenweg 176 kaj vendi la domon.
+
+En septembro 2021 la komitato de UEA aprobis la planon transdoni la kongresan administradon kaj la libroservon de UEA al la organizaĵo E@I en Slovakio. La arkivon de UEA oni decidis transdoni al la Aŭstria Nacia Biblioteko en Vieno.
+
+En februaro 2022 la komitato sekvis la rekomendon de la ĝenerala direktoro Martin Schäffer, kaj decidis pri vendo de la domo. Laŭ raporto preparita de Schäffer UEA tiam havis oferton de nenomita aĉetanto, kiu pretis pagi 1,075 milionojn da eŭroj por la konstruaĵo.
+
+UEA tamen ne tuj akceptis la oferton, sed publike proponis la domon por vendo ĉe nederlanda maklerista firmao, kun la komenca prezo de 1,8 milionoj da eŭroj. Aĉetanto ne estis trovita, kaj nun tute ne klaras, kiom da mono UEA efektive povos ricevi por la ne plu bezonata sidejo.
+
+En sia buĝeto por la jaro 2023 UEA eliras de tio, ke la domo tamen estos vendita iam meze de la nova jaro – la kostoj por la domo estas duonigitaj kompare kun la jaro 2022. Tamen tio estas nura supozo, laŭ tio, kion diris Martin Schäffer dum la komitata kunsido en decembro 2022:
+
+– La buĝeto estas iurilate tre malsekura, ĉar estas vere multaj aferoj, kiuj ne estas tute klaraj, ekzemple kiam ni sukcesos vendi la domon, kiel evoluos la rentoj, kiel ni sukcesos investi nian monon, kaj tiel plu. Do estas vere pluraj aferoj, kiuj ne estas klaraj, kaj en ĉi tiu jaro estas eĉ pli da riskoj ol ĝenerale.
+
+La problemo pri la vendo de la domo estas la unua kaj ĉefa defio de UEA dum la jaro 2023. La du aliaj defioj rekte rilatas al ĝi: la sorto de la libroservo kaj la sorto de la ĉefa parto de la Biblioteko Hector Hodler.
+
+La buĝeto de la libroservo por 2023 restas tute senŝanĝa, kvankam Ionel Oneţ, la oficisto respondeca por ĝia funkciado, emeritiĝis jarŝanĝe, kaj la tuta libroservo devis esti transdonita al la organizaĵo E@I, kiu jam laŭkontrakte transprenis la prizorgadon de la kongresa fako de UEA. Tamen pro nekonata kialo la kontrakto pri la transpreno de la libroservo ĝis nun ne estis subskribita.
+
+Kune kun la arkivo de UEA, ankaŭ parto de la Biblioteko Hector Hodler pasintjare estis transdonita al la Aŭstria Nacia Biblioteko en Vieno. La aŭstria biblioteko tamen volis transpreni nur verkojn, kiujn ĝi ne jam posedis, kio signifas, ke almenaŭ 95 procentoj de la Biblioteko Hector Hodler daŭre troviĝas en la vendota domo de UEA en Roterdamo.
+
+Libera Folio petis ke la estraro de UEA respondu al tri demandoj pri ĉi tiuj defioj. Anstataŭ respondi rekte al Libera Folio, la estraro decidis dissendi siajn klarigojn al la komitato de UEA kaj al la retpoŝta listo ”UEA-membroj” kun la subsskribo ”La Estraro kaj Ĝenerala Direktoro” eĉ ne menciante, ke temas pri respondoj al niaj demandoj.
+
+Libera Folio: Kio okazas pri la libroservo nun, kiam emeritiĝis Ionel Oneţ? Ĉu oni fine sukcesis interkonsenti pri E@I? Kiel funkcios la libroservo ĉi-jare?
+
+La Estraro kaj Ĝenerala Direktoro: ”La Libroservo seninterrompe funkcios. Nia libroservisto konsentis deĵori kelkajn pliajn monatojn.”
+
+La estraro de UEA tute ne respondis al la demando pri la transdono de la libroservo al E@I, pri kiu la komitato de la asocio decidis jam en septembro 2021. Supozeble de tiam daŭras la intertraktadoj pri la precizaj kondiĉoj de tiu transdono.
+
+La stoko de la libroservo de UEA estas tre granda – ĝi ampleksas proksimume 20 tunojn – kaj laŭ la bilanco de la asocio ĝi valoras proksimume 215 000 eŭrojn. La efektiva merkata valoro tamen sendube estas malpli alta, ĉar temas pri dekmiloj da volumoj, el kiuj multaj restas sen aĉetanto dum jardekoj.
+
+Laŭ informoj de Libera Folio , UEA pretas preni la ĉefan financan riskon pri la plua funkciado de la libroservo. Laŭplane UEA pagu la transporton de la libroserva stoko al Slovakio, kie havas sian sidejon E@I. La stoko plu restos posedaĵo de UEA, kaj E@I prizorgos nur la mendojn kaj ekspedon.
+
+E@I ĝis la publikigo de ĉi tiu artikolo ne respondis al demandoj de Libera Folio pri la planata transpreno de la libroservo.
+
+Libera Folio: Ĉu estas decido pri la sorto de la restanta (ĉefa) parto de la Biblioteko Hector Hodler? Kie oni metos la librojn, kiam la domo estos vendita?
+
+La Estraro kaj Ĝenerala Direktoro: ”La Biblioteko Hector Hodler daŭre troviĝas en Roterdamo. Por ĝi la Estraro serĉadas novan hejmon, kiu povos akcepti la tutan kolekton kaj prizorgi ĝin laŭ la plej bonaj kondiĉoj.”
+
+La respondo de la estraro enhavas neniun novan informon pri la sorto de la biblioteko. Tamen laŭ informoj de Libera Folio el aliaj fontoj, efektive okazas intertraktado kun grava eŭropa biblioteko, kiu pretas transpreni la kolekton kaj plu prizorgi ĝin. La plano transdoni la bibliotekon al E@I en Slovakio ŝajne ne plu estas aktuala.
+
+Libera Folio: Ĉu oni plu planas vendi la domon? Ĉu oni havas aĉetanton, kaj ĉu plu validas la pli frue diskonigita prezopropono?
+
+La Estraro kaj Ĝenerala Direktoro: ”La domo kie dum ses jardekoj estis la Centra Oficejo – en Nieuwe Binnenweg 176 – estas ofertata por vendo, sed ankoraŭ ne estas trovita aĉetanto por la prezo postulata. Jen via ŝanco, se vi deziras aĉeti ĝin aŭ konas potencialan aĉetanton! UEA plu funkcios jure en Roterdamo, el sia alia domo samstrata.”
+
+La lasta respondo de la estraro konfirmas la fakton, ke mankas aĉetanto por la domo. La demando estas, ĉu ”La Estraro kaj Ĝenerala Direktoro” serioze supozas, ke tia aĉetanto troveblas inter la komitatanoj aŭ la legantoj de la retpoŝta listo ”UEA-membroj”.
+
+Plia defio de UEA, ne rekte ligita kun la planata vendo de la domo, estas la sorto de la nova retejo kaj la administra sistemo Akso.
+
+En la decembra kunsido la komitato de UEA neatendite kaj kontraŭ la volo de la estraro akceptis modifon de la buĝeto , laŭ kiu UEA en 2023 uzu pliajn 18 000 eŭrojn por certigi la pretiĝon kaj ekfunkcion de la reteja projekto.
+
+Spite la komitatan decidon, la estraro de UEA laŭ informoj de Libera Folio daŭre hezitas, ĉu efektive indas investi pli da mono en la multjaran projekton. TEJO, kiu kontrakte devontigis sin finfari la projekton, aliflanke ne plu havas monon kaj evidente preferus jam liberiĝi de la tuta afero.
+
+Tial, se UEA decidus ne pagi por plua programada laboro, ekzistas la risko, ke la sistemo neniam povos esti lanĉita, kaj la ĝisnunaj investoj restos vanaj.
+
+Kroma surprizo komence de la nova jaro estas, ke daŭre mankas decido pri la Universala Kongreso de la sekva jaro.
+
+Tiel ne okazis de jardekoj – nun la temo de la diskutoj devus jam esti, kie okazu la UK en la jaro 2025. Tamen daŭre mankas interkonsento pri tio, ĉu efektive la Universala Kongreso en 2024 okazu en Tanzanio.
+
+Kontraŭ tia elekto leviĝis protestoj, precipe pro zorgoj pri sekureco de samseksemuloj, ĉar samseksemo estas punenda krimo laŭ la leĝoj de la lando. Tial decido por Tanzanio laŭ la kritikantoj malrespektus unu el la longe aplikitaj kriterioj de UEA pri taŭgeco de kongreslando.
+
+En novembro 2022 okazis malferma reta renkontiĝo kun Fernando Maia pri la UK-planoj por 2024. Dum la kunsido reprezentantoj de Ligo de Samseksamaj Geesperantistoj atentigis pri la riskoj. Jam pli frue LSG oficiale petis al UEA, ke oni ne okazigu Universalan Kongreson en lando, kie GLAT-uloj riskas enprizonigon.
+
+
+---
+
+# Biblioteko Hodler iros al Pollando
+
+**Published:** 2023-01-16
+
+**URL:** https://www.liberafolio.org/2023/01/16/biblioteko-hodler-iros-al-pollando/
+
+**Categories:** UEA
+
+La estonteco de la biblioteka kolekto de UEA nun ŝajne estas sekurigita. La restanta parto de la kolekto de Biblioteko Hector Hodler estos transdonita al la Pola Nacia Biblioteko en Varsovio.
+
+UEA kaj la Pola Nacia Biblioteko atingis principan interkonsenton pri la transdono de ĉiuj restantaj materialoj de Biblioteko Hector Hodler. Laŭ la kontrakto ĉiujn kostojn de pakado kaj transporto pagos la Pola Nacia Biblioteko.
+
+Gravan rolon en la sekurigo de la transdono havis la antaŭa prezidanto de UEA, Mark Fettes, kiu partoprenis la intertraktadojn kiel direktoro de CED . Li afable konsentis respondi al kelkaj demandoj de Libera Folio.
+
+Libera Folio: Kiuj estas la bazaj kondiĉoj de la transdono? Ĉu ili iel diferencas de la kondiĉoj, laŭ kiu parto de la bibliotekaj havaĵoj estis transdonitaj al la Aŭstria Nacia Biblioteko?
+
+Mark Fettes: – La Pola Nacia Biblioteko havas sian propran ŝablonon por tiaj interkonsentoj, kiun ni adaptis kelkloke laŭ la modelo de la kontrakto kun Vieno. Unu el la plej gravaj punktoj por ni estas ke la kolekto konservos sian nomon kaj integrecon – ĝi restos “Biblioteko Hector Hodler” kaj estos tiamaniere trovebla kaj serĉebla per la biblioteka katalogo.
+
+– Same kiel en Aŭstrio, temas pri plena transdono de ĉiuj materialoj, kun tia kondiĉo, ke se iam la Pola Nacia Biblioteko rezignos pri iu parto de la kolekto, UEA povos rehavigi ĝin aŭ transdonigi ĝin al tria partio. Sed kompreneble neniu antaŭvidas, ke tio reale okazos. En ĉiuj niaj intertraktoj montriĝis, ke la Biblioteko alte taksas la signifon kaj valoron de la kolekto kiel tuto, kaj intencas ĝin profesie konservi kaj alirebligi por la longa daŭro. Tiel estas dirite ankaŭ en la kontrakto.
+
+Kiam kaj kiel la transdono povos okazi?
+
+– La fizika transdono devas esti aranĝita kunlabore inter la Biblioteko kaj la Ĝenerala Direktoro – nome, la Biblioteko sendos homojn al Roterdamo por la pakado kaj etikedado de la materialoj. La intenco estas, ke tio okazu laŭeble baldaŭ, sed ni ankoraŭ ne havas definitivan daton. Ja temas pri granda laboro, ĉirkaŭ 160 laborhoroj laŭ la takso de Bernhard Tuider, kiu detale konatiĝis kun la kolekto en sia rolo por la Aŭstria Nacia Biblioteko.
+
+Kia estis via rolo en la traktado?
+
+– Kiam mi konstatis, ke la aranĝo kun Vieno sekurigis nur ĉirkaŭ 5% de la kolekto, mi konkludis ke CED devus fari ĉion eblan por trovi adekvatan hejmon por la restantaj materialoj. Fakte tion jam sufiĉe emfaze argumentis Humphey Tonkin, kiu kiel antaŭa CED-direktoro daŭre konsilas al la nuna CED-estraro.
+
+– Pritaksante la eblojn kun li, Bernhard Tuider kaj Pascal Dubourg-Glatigny – tri spertuloj, kiuj kombinas bonan konon de la Biblioteko Hodler kun kompreno pri la bezonoj de esplorbiblioteka prizorgo – ni identigis la Polan Nacian Bibliotekon kiel plej taŭgan solvon. En tio ni havis ankaŭ plenan subtenon de la UEA-estraro kaj la ĝenerala direktoro. Feliĉe tiu vojo montriĝis fruktodona.
+
+Pascal Dubourg-Glatigny, kiu partoprenis la intertraktadon, kontentas pri la atingita solvo:
+
+– La ”Hodler-kolekto” en Varsovio utile kompletigos la kreskantan panoramon de publikaj Esperanto-bibliotekoj. En Varsovio, la volumoj estos alireblaj de kiu ajn leganto senpage de lundo matene ĝis sabato vespere. La kolekto ankaŭ kreskos estonte per diversfontaj aldonoj kaj akiroj. Estos ciferecigitaj la dokumentoj kiuj respondas al la kriterioj de POLONA, la cifereca biblioteko de Pola Nacia Biblioteko , kiu ĝis hodiaŭ entenas nur centon da esperanto-referencoj.
+
+– Okazos interagoj kun la cifereca kolekto de Katolika Universitato en Lublino (KUL), kiu jam disponigas ĉirkaŭ 6 000 erojn, ĉefe periodaĵojn. Kune kun Vieno, la konstruata kolekto en Princeton, kaj aliaj gravaj bibliotekoj kiuj aktuale pristudas la eblon starigi Esperanto-kolekton, aperas reto de modernaj kaj sekuraj bibliotekoj kiuj ne nur utilos al la konservado kaj la studo de la esperanta heredaĵo, sed ankaŭ decide kontribuos al la legitimado de la esperantisteco.
+
+Pl pri la temo
+
+Kiu aĉetos la Centran Oficejon?
+
+La arkivo de UEA nun loĝas en Vieno
+
+La arkivo de UEA estos transdonita al Vieno
+
+”Oni devas savi la Esperantan heredaĵon”
+
+
+---
+
+# Tri usonanoj diskutas persone
+
+**Published:** 2023-01-24
+
+**URL:** https://www.liberafolio.org/2023/01/24/tri-usonanoj-diskutas-persone/
+
+**Categories:** interreto, kulturo
+
+Ĉu Esperanto estas sekto? Ĉu tradukado estas mensogado? Kaj kiuj libroj en la ”Baza legolisto” efektive estas legindaj? Jen kelkaj demandoj, kiujn starigas la podkasto ”Usone persone”. Ni petis Hans Becklin rakonti pri la elsendo.
+
+Libera Folio: Kiajn avantaĝojn laŭ vi havas la podkasta formo?
+
+Hans Becklin: – Kiel aŭskultanto, mi trovas podkastojn konvenaj plurkiale. Unue, ili ĝenerale estas senpagaj kaj aŭtomate aperantaj en podkastilo – aboninte ilin, oni ne devas daŭre serĉi ilin, malkiel multajn specojn de informoj, kiujn oni devas postĉasi. Due, ili restas haveblaj longe, kaj oni povas, se pasia kaj interesata, ekŝati podkaston kaj traaŭskulti ĝian tutan katalogon facile. Tio povas esti ampleksa! Mi mem eksekvis podkastojn meze de la unua jardeko de nia nuna jarcento, do dum pli ol unu duono de mia tuta vivo. Podkasto tiel malnova, eĉ se malregula, povas havi amason da epizodoj! Trie, ili povas fokusiĝi pri io tre specifa – multe pli specifa ol televid-programo, ekzemple, kies multekosteco kondiĉas vastan akcepton. Tio kreas bonan etoson, kiu igas la homojn pasiaj kaj engaĝataj. Kiam mi trovas podkaston, kiu traktas temon aparte karan al mi, estas kvazaŭ mi ektrovus en mia urbo miraklan tavernon, kie ĉiuj almenaŭ unuflanke similas min. Kia ĝojo!
+
+– Kiel podkast-kreanto, mi trovas la formon tre avantaĝa. Ne estas tre multekoste krei podkastojn – se oni povas akcepti mezbonan sonkvaliton, oni fakte povas registri podkaston per sia poŝtelefono. La sistemoj por registri, munti, kaj disŝuti, kiujn ni uzas por Usone persone, estas senpagaj. Oni povas krei laŭ sia propra ritmo, fidante, ke la aŭskultantoj kaptos la epizodon, kiam ajn ĝi estos preta. Kaj oni povas elekti tre specifan temon – eĉ en malgranda komunumo kiel Esperantujo – kaj fidi, ke la ĝustaj homoj trovos vin.
+
+Kial vi decidis fari regulan podkaston?
+
+– Same kiel multaj projektoj en Esperantujo, tiu ĉi fontas el pasio kombiniĝanta kun profunda amikeco. Rafa Nogueras kaj mi de longe konas unu la alian, estante pli-malpli kovitaj de la sama, kreskanta Esperanto-movado en Usono antaŭ 7-8 jaroj. Ambaŭ el ni regule partoprenas NASK, kiu estas en Usono ne nur kursaro sed ankaŭ nia ĉefa evento. Simile, ni interesiĝas pri beletro, verkado, tradukado kaj la Esperanta kulturo, kaj ofte korespondas pri ĉio ĉi inter NASK-oj.
+
+– Brandon Sowers, pli longdaŭra Esperantisto el Atlanto (kvankam similaĝa kiel Rafa kaj mi) reaktivis dum la pandemio aparte en tiuj ĉi kampoj. Rapide mi kaj Rafa aparte amikiĝis kun li, kvankam dum sia nova epoko de esperantismo Brandono loĝas konstante ekster Usono – unue en Barbado kaj nun en Portugalujo. Ni de pli ol jaro kritikas kaj komentarias la verkojn de la aliaj kaj babilas preskaŭ ĉiutage per privata grupo en Telegramo.
+
+– Nur unu fojon de la amikiĝo ni tri fakte estis fizike samloke – dum la plej lasta Universala Kongreso en Montrealo. Tiam, kadre de diskutoj jen en kunvenoj, jen en trinkejoj, ni komencis pensi pri nova podkasto – io forte enradikiĝinta en la Esperanta kulturo, lingve elstara, kaj familiara. Ni rimarkis, ke mankis en Esperantujo babil-podkasto, kiu plenumus ĉiujn el tiuj ĉi kondiĉoj. (Plurajn podkastojn mi mem ne povas rekomendi al miaj Esperanto-lernantoj pro konsekvencaj, bazaj eraroj, kvankam mi mem trovas la podkastojn amuzaj kaj ŝatindaj.) Do, anstataŭ vei pri manko, ni decidis kunkrei tion, kion ni volis. Kaj ni rapide rimarkis, ke fakte ne nur ni avidas ion ĉi tian.
+
+Ĉu foje vi havas gastojn?
+
+– Jes, sed ni havas tri ĉefajn kriteriojn: gasto povu prezenti ion gravan al Esperantujo, estu preta paroli kun ni kvazaŭ ni estus ĉirkaŭ tablo en trinkejo, do sufiĉe neformale, kaj parolu Esperanton simile bone kiel ni, por konservi la kvaliton de la elsendo kaj ĝian taŭgon por progresantoj. Ĝis nun ni bonvenigis plej ofte nian amikon Stela Besenyei-Merger. Nia triopo tamen restas la kerno, kaj ni ne volas transiri al plene gastiga podkasto, kvankam gasto faciligas la pretigadon (ĉar tiu prezentas la ĉefajn informojn kaj ni simple respondas).
+
+Kiom da aŭskultantoj kutime havas la eroj?
+
+– Nuntempe, nova epizodo du semajnojn post sia apero ĝenerale estas aŭskultita 400 fojojn. Do sufiĉe multe! Ni dissendas la podkaston per RSS-fluo , kiun oni povas kapti per ajna podkaptilo, kaj ankaŭ per YouTube . Mi antaŭvidas, ke la nombro daŭre kreskos – ĝis nun, unu duono de niaj aŭskultantoj troviĝas en Usono, lando ĝenerale marĝena en Esperantujo.
+
+Kiu ero ĝis nun estis plej populara?
+
+– Eble ne surprizas la legantojn de Libera Folio , ke plej aŭskultita ĝis nun estas la epizodo Ĉu Esperanto estas sekto?! , kiun niaj samideanoj pli ol mil fojojn aŭskultis! Ni provis en ĝi nek dampi la proprajn opiniojn, nek kritiki senbaze aŭ tro persone (spite la nomon de la podkasto).
+
+Kiujn podkastojn vi mem regule aŭskultas?
+
+– Kiam mi estis freŝa Esperantisto antaŭ preskaŭ jardeko, mi multe aŭskultis la podkastojn Kern.punkto kaj Varsovia Vento – fakte, dum mi kuiris vespermanĝon aŭ purigis mian apartamenton, mi preskaŭ ĉiam aŭskultis unu el ili por akrigi mian senton pri parolata Esperanto. Nun, aŭskultinte la tutan katalogon de jamaj epizodoj, mi ne sentas min same fidela al tiuj, kvankam mi daŭre ĉion aŭskultas. Alia projekto, kiun mi tre ŝatas, estas Fremdulo , kvankam tiu lasta ĉesis regule aperi antaŭ jaro.
+
+– En la angla lingvo, mi emas aŭskulti podkastojn pri aktualaĵoj, ĝenerale en mia aŭto survoje ien. Same kiel la plej granda nombro da usonaj podkastemuloj, mi sekvas The Daily , produktatan de la landa ĉefĵurnalo The New York Times . Mi aldone tre ŝatas Freakonomics , Lingthusiasm , the Allusionist , kaj la podkaston de Duolingo por lernantoj de la hispana . Ĉiuj el tiuj ĉi, tamen (eble flankenmetante Lingthusiasm ) celas ion pli profesian, kun multe da muntado, scenaroj, fona muziko, kaj tiel plu. Sed ili havas pli grandan stabon – kaj ankaŭ per sia produkto lukras. Ni simple umas triope de tempo al tempo, kaj registras tion por niaj amikoj.
+
+Ĉu podkastoj laŭ vi iugrade transprenas la rolon de radiaj elsendoj en Esperanto?
+
+– Honeste dirite, frue en mia Esperantisteco eĉ la tradiciaj elsendoj komencis dissendi per podkastoj, sed ne ĉiam same lerte, kiel oni farus kreante ion plene novan. Do mi ne nepre scipovas kompari la oran epokon de la Esperanta radio al la nuna podkasto-periodo; por mi, neniam estis agordado de kurt-onda ricevilo por kapti la akcentatan Esperanton de iu fremdulo.
+
+– Sed indas demandi, ĉu la pli formala formo uzata de la naciaj radioj (eksaj kaj nunaj) de Pollando, Kubo, Ĉinujo, Vatikano, ktp kongruas kun la ĝenro podkasto. Mi dirus, ke ne – ili simple adaptiĝas al la teĥnologio, ne mem tajlante sin al la ĝenro. Tion oni atendus – simile en Usono la plej popularaj podkastoj je la komenco estis radio-programoj, kiujn oni povis per podkastado kapti laŭ la propra ritmo, anstataŭ dependi de horaro. Tio estis iu meza fazo, kaj evidenta plibonigo. Sed ĉesigi la evoluadon en tiu transira fazo estus erare.
+
+– Por mi, do, ne temas pri transpreno de ajna informa (aŭ propaganda) rolo – temas pri la kreado de tute nova ĝenro, kiu malpli utilas al unudirektaj registaraj deziroj, sed pli kongruas kun la bezonoj de la nuntempa Esperanto-komunumo. Iu izolito, sen loka klubo (aŭ eble kun loka klubo plena je krokodiloj) povas per podkastoj en sia domo sperti bonkvalitan, viglan Esperanton kun malpli da pretendoj pri pompo kaj graveco. Eĉ en la epoko de radioelsendoj, oni ofte devis iri al kongreso por tion ĉi ĝui. Kaj nia podkasto ne estas unudirekta – fakte, inspiras nin ofte sugesto aŭ komento de aŭskultanto, kiu ampleksiĝas en nia pretigado ĝis temo taŭga por epizodo. Ni eĉ sendas al demandintoj, kies demandojn ni uzas en la podkasto, glumarkon!
+
+
+---
+
+# Ĉu japanaj anoncoj popularigas Esperanton?
+
+**Published:** 2023-01-31
+
+**URL:** https://www.liberafolio.org/2023/01/31/cu-japanaj-anoncoj-popularigas-esperanton/
+
+**Categories:** movado
+
+La emerita japana entreprenisto Etsuo Miyoshi post multjara paŭzo rekomencis sian grandan reklaman kampanjon por Esperanto en eŭropaj gazetoj. La kostegaj anoncoj tamen estas neprofesie fasonitaj kaj laŭ iuj prijuĝoj povos eĉ malutili.
+
+Denove en tagaj gazetoj de eŭropaj landoj aperas tutpaĝaj, kostegaj anoncoj kiuj celas popularigi Esperanton. La anonckampanjon financas la konata japana entreprenisto kaj mecenato Etsuo Miyoshi, kiu persone decidis pri la enhavo de la anoncoj.
+
+La anoncoj laŭ la ĝisnunaj informoj aperos en Germanio, Francio kaj Pollando, entute sepfoje. Fine de januaro jam aperis tutpaĝaj anoncoj en la prestiĝaj gazetoj Frankfurter Allgemeine Zeitung en Germanio kaj Le Monde en Francio.
+
+Ŝajnas tamen dubinde, ĉu la tre verdaj anoncoj havos pli da sukceso ol la antaŭaj kampanjoj de Miyoshi.
+
+– Estas senutile debati inter ni pri la enhavo de la anonco. Eĉ se ĉiu el ni estas konvinkita, ke li farus tre pli efikan anoncon, tio ne estas ebla sen financanto de la afero. Do, ni provu utiligi tion, kion ni havas kaj danki Mijoŝi-n, skribis Renato Corsetti en la reta diskutejo UEA-membroj .
+
+La antaŭa multjara ĝenerala direktoro de UEA, Osmo Buller, ŝajne opinias, ke la anoncoj povas eĉ malutili al Esperanto:
+
+– Mi kuraĝas spiti la admonon de Renato ne diskuti pri la enhavo de la anonco, por diri, ke la anonco plifortigas la bildon de eksteruloj pri esperantistoj kiel sekto, li skribis en UEA-membroj.
+
+Laŭ Corsetti ne indas debati pri la enhavo, ĉar tia debato nenion ŝanĝus:
+
+– Dum unu jaro kelkaj el la plej normalaj esperantistoj, kiujn mi konas, provis vane sugesti malsamajn tekstojn. Ĉiu el ni, kaj ankaŭ Ecuo, havas siajn firmajn ideojn pri la plej bona maniero prezenti Esperanton. Ni esperu, ke la efikoj estos pli bonaj ol malbonaj.
+
+La nuna ĝenerala direktoro de UEA, Martin Schäffer, ne havis altajn atendojn pri rezultoj:
+
+– Bone planita kampanjo altigus la efikecon multoble. Nun restas al mi nur via espero, ke la efikoj estas pli bonaj ol malbonaj. Mi tamen dubas. En la lastaj tagoj neniu skribis; malmultaj registriĝis kiel “Amiko de Esperanto”.
+
+Lu Wunsch-Rolshoven aliflanke proponis konsideri, ĉu eble ĝuste inter sektuloj oni pli facile povus trovi novajn adeptojn de Esperanto:
+
+– Interesa opinio, tio pri sektoj. El varba vidpunkto ni nun eble demandu nin, kiu procentaĵo de la loĝantaro ŝatas iujn sektojn. Eble estas du ĝis kvin procentoj kaj eble tie troviĝas plia celgrupo por nia varbado, ĉar ja supozeble sektuloj estas homoj, kiuj kapablas agi sendepende de antaŭjuĝoj de la socio.
+
+Etsuo Miyoshi mem estas ano de la religio Oomoto , kiu subtenas Esperanton. Li mem eklernis kaj ekŝatis Esperanton en 1995. Ekde tiu jaro li ankaŭ financis la gravan subvencion Cigno , kiu dum 17 jaroj estis aljuĝita al diversaj esperantistaj agadoj.
+
+Baldaŭ li decidis krome kontribui al la diskonigo de la lingvo per anonckampanjoj en eŭropaj gazetoj.
+
+La unuaj anoncoj aperis jam komence de la 2000-aj jaroj. Poste, en 2005, aperis anoncoj en kvin ĵurnaloj en novaj landoj de EU. En 2006 la tutlanda franca gazeto “Le Figaro” publikigis tutpaĝan anoncon kun intervjuo de la konata socilingvisto Robert Phillipson pri Esperanto kaj la sorto de la eŭropa multlingveco.
+
+La rezultoj estis limigitaj, sed Etsuo Miyoshi daŭrigis la kampanjon en 2008, kaj refoje en 2010.
+
+Poste li dum iom da tempo turnis sian atenton al subtenado de informa agado entreprenata de landaj asocioj, pere de la premio Cigno, kiu anstataŭis la antaŭan subvencion. La unuan premion Cigno en 2012 ricevis Esperanto-Asocio de Britio .
+
+Samjare en intervjuo de Libera Folio Etsuo Miyoshi rakontis, ke li esperas je fina venko de Esperanto en Eŭropa Unio:
+
+– Elekto kaj koncentriĝo estas la vojo al sukceso de ĉia agado. Mi kredas, ke ŝanco de Fina Venko estas nur en EU, ĉar ĝi influos poste al la mondo.
+
+Li tiam proponis, ke UEA sukcesigu Esperanton en Eŭropo, uzante sian kapitalon por ripetaj gazetaj anoncoj. Tion UEA ne faris. Ŝajne tial li nun decidis refoje mem provi.
+
+La prezo de tutpaĝaj anoncoj en grandaj eŭropaj gazetoj estas sveniga, kaj sendube precipe en la reta epoko facile eblus trovi multajn manierojn uzi ĝin kun pli granda utilo al Esperanto. Martin Schäffer ekzemplis per malgranda anonc-kampanjo de Meksika Esperanto-Federacio en Facebook, kiu laŭ li rezultis en aliĝo de sep personoj al pagenda kurso, kaj tiel eĉ estis profitiga.
+
+– Kion do diri pri la nuna reklamado, kiu kostas cent-milojn, li demandis en UEA-membroj.
+
+
+---
+
+# TEJO havas mil membrojn sed neniun AKSO-n
+
+**Published:** 2023-02-08
+
+**URL:** https://www.liberafolio.org/2023/02/08/tejo-havas-mil-membrojn-sed-neniun-akso-n/
+
+**Categories:** TEJO, movado
+
+TEJO nun havas mil individuajn membrojn kaj grandajn planojn por la nova jaro. Tion rakontas Albert Stalin Garrido, la prezidanto de la asocio, en intervjuo de Libera Folio . La projekto por realigi la novan retejon kaj administran sistemon (AKSO), pri kiu TEJO okupiĝas jam plurajn jarojn, proksimiĝas al pretiĝo – sed daŭre ne klaras, kiam AKSO efektive povos esti lanĉita.
+
+Libera Folio: La kvanto de individuaj membroj de TEJO nun atingis milon. Kiel tio okazis, kaj de kie venis tiuj membroj?
+
+Albert Stalin Garrido: – Tiu kresko en individuaj membroj venis el pluraj fontoj. Ĝenerale TEJO nun estas organize multe pli stabila ol ĝi estis antaŭ pluraj jaroj, kaj nun ni rikoltas la rezultojn de pluraj sinsekvaj stabilaj estraraj mandatoj kiuj kapablis realigi pli konkretan agadon.
+
+– La plej impona el tiuj fontoj estis la membriĝo de plurdekoj da homoj okaze de Retoso 2022 . Iuj homoj decidis membriĝi en TEJO eĉ tiel malfrue en la jaro nur por rajti partopreni kaj en Retoso kaj en la Virtuala Kongreso de UEA. Retoso en 2021 alportis al ni almenaŭ plurcent membrojn, kaj ni kredas, ke la samo okazis en 2022. La unua fizika IJK post la pandemio certe ankaŭ helpis, kaj konsidere ke pli ol 80 lokoj estis finance subtenitaj de diversaj projektoj, multaj homoj kiuj alikaze ne povus ĉeesti la eventon (kaj verŝajne ankaŭ ne membriĝi en TEJO) ricevis tiun oportunon. Ankaŭ en la reta hispanlingva enkonduka kurso kiun organizis Kolombia Esperanto-Ligo (KEL) ĉeestis multaj junuloj, kaj al kursfinintoj oni donacis subtenon per individua membreco en UEA-TEJO.
+
+– Laste, junuloj el ekonomie malpli avantaĝaj landoj daŭre estas (re)membrigataj senpage danke al la Fondaĵo Canuto de UEA. Ni povas memori, ke en 2021 la Komisiono pri Landa kaj Faka Agado lanĉis aparte sukcesan kampanjon al tutmonda membriĝo per tiu fonduso, kaj pluraj junuloj daŭre profitas de tiu financa subteno.
+
+Kiaj estos la ĉefaj aranĝoj de TEJO dum la venonta jaro?
+
+– Ni daŭrigas nian rekomencitan tradicion de fizikaj kongresoj per la 79-a IJK , kiu okazos de la 5-a ĝis la 12-a de aŭgusto en Lignano Sabbiadoro, Italio kune kun la 56-a ILEI-Kongreso kaj tuj post la 108-a Universala Kongreso en Torino. Ni ne forlasas, aliflanke, nian sindevontigon alirebligi TEJO-n al homoj de diversaj kontinentoj, kaj tie rolos Retoso kiel nia ĉefa reta evento de la jaro, en si mem havanta proprajn identecon kaj programon. Okazos ankaŭ niaj Kontinentaj Junularaj Konferencoj (KJK), iniciatitaj en la pasinta jaro, kiu estas serio da retaj kunvenoj por disvolvi la junularan movadon de ĉiu kontinento.
+
+Kio plia estas en la planoj de TEJO por la venonta jaro?
+
+– La organizo havas buntan planon, kiun la membraro povas anticipi de ĝi. Ni planas plivigligi nian kulturan kaj artan agadon post la tre sukcesa okazigo de la muzikalo “ June kaj Kune ” prezentita dum la IJK 2022 (kaj nun s pektebla en YouTube ). Kunlabore kun ILEI kaj UEA ni nun antaŭvidas pli da edukaj kaj sciencaj aktivaĵoj. Nia TEJO-Trejnistaro ankaŭ planas komenci retajn atelierojn por junuloj de la tuta mondo. Aperos ankaŭ la nova lingvopolitiko de TEJO kaj regularoj por fari TEJO-n kaj ĝiajn eventojn pli sekuraj spacoj kontraŭ seksperfoto kaj -ĝenado. Laste, ni ŝatus ankaŭ en 2023 enkonduki apartan diploman sistemon por rekoni junulojn kaj junularajn organizojn kies elstara agado multe kontribuas al la evoluigo de TEJO. Ĉion oni trovos en nia Realigplano 2022-2023, la plej ampleksa kaj kompleta en jaroj, publike legebla .
+
+Ĉu vi scias kiam AKSO estos preta kaj lanĉita?
+
+– La nuna fazo de la laboro estas plani por la provlanĉo, kiam oni montros la funkciadon de AKSO en ĉiuj eroj kun la veraj membrodatumoj (malsame kiel antaŭe, kiam oni uzis nur testdatumojn). En tiu momento, ĝi efektive aspektos kaj funkcios ekzakte kiel ĝi devos por la vera lanĉo. Nur poste oni decidos pri la dato de plena lanĉo, ĉar influas tion multaj faktoroj krom la teknika preteco de AKSO mem (ekz. la kongresa sezono, trejnado de oficistoj en la sistemo ktp). Kvankam la laboro progresas bone, ni ne pretas doni publikan prognozon ĝuste nun.
+
+En via anonco, vi diris ke TEJO estas en intertraktoj kun UEA pri la pago de 18 000 eŭroj por la salajro de AKSO-oficisto kaj pago de 30 000 eŭroj al TEJO post la fino de AKSO. Kiel fartas la interparoloj, ĉu estas malfacilaĵoj pri la ricevo de la mono?
+
+– La 30-mil-eŭra pago reprezentas la lastan duonon de la tuta pago, kiun TEJO devas ricevi je la fino de la AKSO-projekto, kaj ĝi okazos post la sukcesa plenumo de niaj kontraktaj respondecoj. Ni planas diskuti tion kun UEA post la provlanĉo, kiam ni estos liverintaj la pretan sistemon kaj ne antaŭvidos problemojn.
+
+– Kvankam ni sukcese petis al la Komitato de UEA la apartigon de tiu 18-mil-eŭra sumon por AKSO, ni ankoraŭ ne petis utiligi tiun monon. Ĉefe ni vidas ĝin kiel “asekuron”, por certigi ke decidoj post la fino de la kontrakto ne finance malavantaĝos al TEJO (ekzemple pro laborleĝoj ni ne povas tuj maldungi, do se oni decidus post la fino de la kontrakto ne plu uzi la samajn dungitojn, tio kaŭzus al ni grandajn financajn problemojn), kaj ke la portempaj financaj problemoj de TEJO ne endanĝerigos la tutan projekton.
+
+Robert Nielsen
+
+
+---
+
+# TEJO denove esperas je granda EU-subvencio
+
+**Published:** 2023-02-14
+
+**URL:** https://www.liberafolio.org/2023/02/14/tejo-denove-esperas-je-granda-eu-subvencio/
+
+**Categories:** TEJO, movado
+
+Pasintjare TEJO ne ricevis la buĝetitan administran subvencion de 85 000 eŭroj. Tiu EU-mono devus kovri 58 procentojn de la elspezoj. La perdo kaŭzis grandajn problemojn al la organizo. Ĉi-jare TEJO denove kalkulas je eĉ pli granda EU-subvencio, kiu laŭplane kovros 91 procentojn el la elspezoj de la asocio.
+
+Ekde la nericevo de la administra subvencio pasintjare, TEJO strebas kontraŭ financa deficito. Nun la organizo publikigis sian buĝetproponon por 2023, kaj denove ĝi ĉefe dependas de la ricevo de EU-subvencio.
+
+La buĝeto de TEJO por la nova jaro 2023 plejparte estas la sama kiel tiu de 2022. Oni prognozas pli-malpli la saman enspezon kaj elspezon por volontuloj, IJK kaj aliaj projektoj. Kiel pasintjare, preskaŭ la tuta enspezo venas el EU-subvencioj, la kotizoj de la membraro estas nur eta kontribuo al la tuta buĝeto.
+
+Unu granda diferenco estas, ke TEJO nun dungas malpli da homoj ol en 2022. Kiam la kontrakto de komunikisto finiĝis en julio, oni ne dungis novan homon. La dungoj de la oficistoj por eksteraj rilatoj kaj kunordigado de la volontuloj finiĝis en decembro 2022. Anstataŭe, la duontempa subvencipetisto iĝos plentempa kaj kunordigos la volontulojn. La buĝeto sugestas ke eble la Germana Esperanto-Junularo (GEJ) pagos duonon de la salajro, sed ŝajnas ke tio ne estas konfirmita.
+
+Estas du versioj de la buĝeto: “bona scenaro” kaj “malbona scenaro”. Laŭ la bona, TEJO ricevos 125 000 eŭrojn da subvencio de EU. Tio kovros preskaŭ la tutan elspezon (entute 137 482 eŭroj) por la jaro. En ĉi tiu situacio, TEJO laŭ la buĝeto havos suman enspezon de 206 440 eŭroj kaj grandan pluson de 68 958 eŭroj.
+
+Sed en la malbona scenaro, TEJO ne ricevos la subvencion kaj kun enspezo de nur 71 234 eŭroj, sed elspezo de 101 704 eŭroj, ĝi havos deficiton de 30 740 eŭroj. Tiu estus pli-malpli la sama rezulto kiel en 2022.
+
+Libera Folio : Kiel statas la financoj de TEJO kaj kiel oni planas plenigi la truon, kiun kaŭzis la nericevo de EU-subvencio ĉi-jare?
+
+Albert Stalin Garrido: – La stabo de TEJO nun koncentriĝas sur la financa resanigo de TEJO kaj stabiligo de la kasfluo. Nia kasisto Wilson, kun la kontribuo de pluraj estraranoj, lerte preparis buĝeton por la jaro 2023. Je la komenco de la mandato, ni adoptis striktan financan politikon, kio ŝparigas al ni monon sed en ĉiu kazo laŭeble permesas la daŭrigon de la kutima funkciado de la organizo ĝis nun. Ekzemple, ni detenas nin de kostaj estraraj vojaĝoj kiam preskaŭ ĉion eblas fari rete kaj ne antaŭvidas ke ni kunsidos fizike ĝis ni ricevos la administran subvencion.
+
+– Antaŭ la fino de la pasinta jaro ni sukcesis submeti kandidatiĝon por la administra subvencio en 2023. Aldone, ni ankaŭ jam ricevis plurajn bonajn novaĵojn, ke eŭropaj instancoj aprobis niajn proponojn pri trejnadoj, studsesioj, kaj aliaj kapabligaj kaj eksterrilataj oportunoj, kio signifas, ke TEJO ankoraŭ povos oferti al siaj membroj tiujn oportunojn, kiel ĝi historie faradis en la pasintaj kelkaj jaroj.
+
+TEJO maldungis du oficistojn, ĉu tiu malhelpos la agadon de TEJO?
+
+– Ĝis iu grado, certe, sed ne tiom. Ni ne dungis anstataŭanton post la foriro de nia komunikisto en julio, kaj kvankam ni sukcese vivtenis la kvaliton de nia ĉeesto en sociaj kanaloj, la estraro kaj volontuloj vere sentis la ŝanĝon. Je la fino de 2022 nia duontempa eksterrilatisto foriris, kaj aldone ni ne renovigis la kontrakton de nia surloka volontula kunordiganto. Karlos, kiu laboris en TEJO antaŭe duontempe sed nun plentempe, transprenis plurajn el la respondecoj de tiuj lastaj du, aldone al liaj jam ekzistantaj taskoj kiel subvencipetisto.
+
+– La laboro daŭras, kaj TEJO travivos, sed la manko de tiuj oficistoj ja estas sentebla. En iu senco tio signifas ke la laboro de la nuna stabo estas pli streĉa, kaj en pluraj fakoj ni sekve devas esti malpli ambiciaj. Tamen, plejmulto de la agado de TEJO venas el la propra iniciato kaj kolektiva kunlaboro de niaj komisionoj kaj interesgrupoj, kiuj kvankam laboras volontule, tamen tre konkrete plenumas nian Realigplanon.
+
+TEJO petis la administran subvencion por 2023, ĉu vi opinias ke TEJO sukcesos? Kio okazos se TEJO malsukcesos?
+
+– Jes, ni sufiĉe fidas ke TEJO ricevos la administran subvencion por 2023. Pasintjare oni subite ŝanĝis la procedon por postuli pli altajn monpetojn sed sen ŝanĝo al la tuta buĝeto. Pro tio multaj organizoj, inkluzive de TEJO, malsukcesis malgraŭ plurfoja sukceso antaŭe (imagu, nia kandidatiĝo ricevis 59 poentojn, kaj la minimumo por esti konsiderata estis 60 poentoj …). Do ne vere temis pri malbona kvalito de kandidatiĝo flanke de TEJO, sed pri fiaskoj ĉe la subvencidona instanco, pri kiuj pluraj organizoj malferme esprimis sian konsterniĝon.
+
+– Tamen ĉi-jare ili reagis al la kritikoj, kaj multe pligrandigis la tutan buĝeton, pro kio ili povos doni multe pli da subvencioj. Aldone menciindas la diĥotomio, ke eĉ se TEJO havas grandan krizon nun ĉar ni ne ricevis la administran subvencion, pro tiu altigo de la averaĝa monpeto, kaze de ricevo ni fakte estos multe pli finance stabilaj ol antaŭe.
+
+La komitato de TEJO debatos kaj voĉdonos pri la buĝeto ĝis eksterordinara komitatkunveno la 4-an de marto.
+
+Robert Nielsen
+
+
+---
+
+# La revuo de UEA silentas pri gravaj temoj
+
+**Published:** 2023-02-21
+
+**URL:** https://www.liberafolio.org/2023/02/21/la-revuo-de-uea-silentas-pri-gravaj-temoj/
+
+**Categories:** UEA, movado
+
+Libera Folio trarigardis la lastajn 14 numerojn de la revuo Esperanto . Montriĝis, ke la oficiala organo de UEA preskaŭ plene silentas pri la plej gravaj okazaĵoj en la asocio: la sorto de la Centra Oficejo, la biblioteko kaj la libroservo. Ankaŭ pri la milito en Ukrainio ne aperis eĉ unu vorto.
+
+Laŭ la gvidlinioj de UEA pri la oficiala organo de la asocio, ĝi devas unuavice prezenti ĝustan, ĝisdatan kaj inspiran bildon pri la agado kaj strategio de UEA, informi precize kaj akurate pri grandaj movadaj evoluoj, kaj provizi senpartian kaj altnivelan forumon por movadaj diskutoj.
+
+La plej gravaj strategiaj decidoj de UEA dum la lasta tempo temas pri la sorto de la Centra Oficejo, Biblioteko Hector Hodler kaj la libroservo de la asocio. El tiuj tri grandaj demandoj unu nun ŝajnas solvita: la ĉefa parto de la biblioteko de UEA ŝajne estos transdonita al Pola Nacia Biblioteko en Varsovio, kiel povis raporti Libera Folio en januaro.
+
+Tiu, kiu legas la oficialan revuon de UEA, aŭ la gazetarajn komunikojn de la asocio, tamen ĝis nun nenion povis ekscii pri la sorto de la biblioteko. Same aperis neniuj artikoloj en la revuo Esperanto pri la progreso de la planata vendo de la domo en Nieuwe Binnenweg 176 aŭ pri la planata transdono de la libroservo al Slovakio.
+
+Tio malmulta, kio legeblas pri la menciitaj temoj, troviĝas en kelkaj malkonkretaj frazoj en ampleksaj ĝeneralaj artikoloj de prezidanto Duncan Charters pri ”strategio” kaj ”progreso”, kaj en la estrara raporto.
+
+Tiel, en januaro 2022, preskaŭ kvarpaĝa artikolo de Duncan Charters kun la titolo “Kio estas progreso por UEA”, enhavas la jenajn preterpasajn menciojn: ”Ni ne hezitis proponi historiajn ŝanĝojn pri la Centra Oficejo por pli efike servi. Ni ankaŭ aktive konsideras novan lokon por la libroj de Biblioteko Hodler, sen findecido.” Jen ĉio – tiel aspektas progreso por UEA.
+
+En la februara numero aperas nenio. En la marta numero Duncan Charters en artikolo pri ”Strategia planado – pliaj paŝoj” skribas jene:
+
+La Ĝenerala Direktoro kaj la Estraro post detala esplorado venis al la konkludo ke unu logika paŝo en la nunaj cirkonstancoj estus vendo de la Asocia domo troviĝanta en Roterdamo ĉe Nieuwe Binnenweg 176. Ege signifa evoluo.
+
+La Ĝenerala Direktoro kaj la Estraro post detala esplorado venis al la konkludo ke unu logika paŝo en la nunaj cirkonstancoj estus vendo de la Asocia domo troviĝanta en Roterdamo ĉe Nieuwe Binnenweg 176. Ege signifa evoluo.
+
+Li plue rakontas, ke kvankam la estraro mem rajtus fari la decidon, oni decidis lasi la komitaton voĉdoni pri la afero.
+
+La decido estos vojmontra por la estonta rolo de la Asocio en la diskonigo kaj antaŭenigo de Esperanto, kaj ĝia libereco utiligi la plej flekseblajn modernajn rimedojn por atingi celojn neniam ĝis nun atingitajn.
+
+La decido estos vojmontra por la estonta rolo de la Asocio en la diskonigo kaj antaŭenigo de Esperanto, kaj ĝia libereco utiligi la plej flekseblajn modernajn rimedojn por atingi celojn neniam ĝis nun atingitajn.
+
+Tamen nenie en tiu aŭ alia numero la revuo aperas raporto pri la komitata diskuto , dum kiu la afero estis pritraktita, nek pri la voĉdonrezulto .
+
+Ankaŭ la gazetaraj komunikoj de UEA nenion rakontas pri la afero. La 14-an de februaro 2022, la tagon post la fino de la voĉdonado pri la vendo, UEA anstataŭe komunikas : ”Elektitaj (sen baloto) 4 komitatanoj B de UEA”. Tri tagojn poste UEA komunikas : ”Noto pri trompo-provoj per Esperanto: esperantistoj restu atentaj”.
+
+La 24-an de februaro 2022 komenciĝis la plenskala atako de Rusio kontraŭ Ukrainio. Ĝi atendeble kondukis ankaŭ al akra disputo en Esperantujo, kiam la prezidanto de Rusia Esperanto-Unio publike subtenis ”likvidon” de la nuna ukraina ŝtato, dum la Facebook-konto de la ĉefdelegito de UEA en Rusio deliris pri ”usona naziismo en Ukrainio”.
+
+La ĉefdelegito de UEA pro tio perdis sian postenon, dum la prezidanto de REU perdis sian studrajton ĉe Interlingvistikaj Studoj de Universitato Adam Mickiewicz. Pri nenio el ĉio ĉi raportis la revuo Esperanto , nek la gazetaraj komunikoj de UEA.
+
+Legantoj de la revuo tamen povis diveni, ke io speciala okazas en Ukrainio, ĉar ekde aprilo aperadas en Oficiala Informilo la sekcio ”helpo al Ukrainio”, poste ”helpo al esperantistoj el Ukrainio”. Multaj homoj donacas, eĉ grandajn sumojn – sed ne klaras, kial esperantistoj en Ukrainio bezonas helpon, aŭ kial ili baldaŭ jam ne estas en Ukrainio, sed ”el Ukrainio”.
+
+Mencio pri Ukrainio trapasis la cenzuron en raporto pri la prezento de la internacia Esperanto-ĥoro dum la kongreso en Montrealo:
+
+Ĝi omaĝis ne nur la kanadan kaj indiĝenajn kulturojn, sed ankaŭ dediĉis unu kanton al Ukrainio (laŭ la vortoj de la famega ukraina poeto Ŝevĉenko) – la homoj estis invititaj stari dum la prezento.
+
+Ĝi omaĝis ne nur la kanadan kaj indiĝenajn kulturojn, sed ankaŭ dediĉis unu kanton al Ukrainio (laŭ la vortoj de la famega ukraina poeto Ŝevĉenko) – la homoj estis invititaj stari dum la prezento.
+
+Se oni legas nur la komunikojn de UEA, tamen tute ne klaras, kial oni devus stariĝi. Post la komenco de la milito UEA dissendis ampleksan sed malklaran gazetaran komunikon pri ”militaj tondroj kaj homa sufero en la oriento de Eŭropo”. La teksto tamen ne enhavas la vorton ”Ukrainio”, do ne vere klaras, pri kio temas.
+
+Spite tion oni evidente trovis ĝin tro akra por la revuo – neniu vorto pri ĝi aperas tie. Same nenio aperas pri la publika kritiko kontraŭ la deklaro de UEA.
+
+Kvankam aperis neniuj raportoj pri komitataj decidoj rilate la Centran Oficejon, legante la novembran numeron de la revuo oni povas konkludi, ke la komitato verŝajne decidis pri vendo. En artikolo de Duncan Charters kun la informplena titolo ”Strategia planado” troveblas la jena frazo:
+
+Ni ne plu havos la tradician Centran Oficejon en Roterdamo, tamen en nia hodiaŭa mondo multaj asocioj pliefikigis sian laboron uzante la plej talentajn kaj dediĉitajn membrojn el ĉiuj mondpartoj por specifaj taskoj.
+
+Ni ne plu havos la tradician Centran Oficejon en Roterdamo, tamen en nia hodiaŭa mondo multaj asocioj pliefikigis sian laboron uzante la plej talentajn kaj dediĉitajn membrojn el ĉiuj mondpartoj por specifaj taskoj.
+
+En la decembra numero aperas nova artikolo de Duncan Charters pri strategia planado, ĉi-foje kun la titolo ”Survoje al Strategia Planado. Kio plej gravas?”. En la subsekcio ”Ekzemploj de aliaj kategorioj kiuj havu planojn kaj celojn por interna agado” oni unuafoje povas legi ion ajn pri la planoj por la libroservo:
+
+Libroservo (kalendaro por organizi la translokiĝon el Roterdamo al Slovakio, ĝisdatigo de sistemo, novaj iniciatoj por stimuli libroaĉetadon, kuraĝigi eldonadon).
+
+Libroservo (kalendaro por organizi la translokiĝon el Roterdamo al Slovakio, ĝisdatigo de sistemo, novaj iniciatoj por stimuli libroaĉetadon, kuraĝigi eldonadon).
+
+Kion tio signifas ne tre klaras, ĉar kontrakto pri transdono de la libroservo daŭre ne estas subskribita.
+
+En la januara numero de 2023 aperas teksto de vicprezidanto Amri Wandel kun la titolo ”Duonjarcento kun Esperanto: atingoj kaj defioj sojle de 2023”.
+
+”La jaro 2023 markos mian 50-an datrevenon de Esperantiĝo”, li skribas en la teksto. Li poste klarigas: ”Okazas ke por progresi estas bezonata drasta ŝanĝo, forlaso de longa kaj ŝajne sekura rutino, kiu tamen fariĝis balasto.” La balasto estas la Centra Oficejo en Roterdamo.
+
+Dum la tuta pasinta jaro kaj en la tri unuaj numeroj de la nuna jaro aperas eĉ ne unu vorto pri la plej gravaj strategiaj decidoj de UEA, verkita de iu alia ol la estraranoj de la asocio. Tial eblas demandi, ĉu vere la revuo de UEA provizas senpartian forumon por movadaj diskuto aŭ prezentas ĝustan bildon pri la agado de UEA, kiel ĝi laŭ la propraj gvidlinioj devus fari.
+
+Efektive mankas en la revuo ia ajn diskuto. Ŝajne tute malaperis la aparta rubriko por reagoj, kiu en la pasinteco ofte estis vigla. Unu ”letero de leganto” aperas en la februara numero de 2023, sed ĝi tamen efektive estas io tute alia: laŭda artikolo pri la reklama kampanjo de Etsuo Miyoshi, verkita de la reklamanto mem.
+
+La ”letero de leganto” finiĝas per la jenaj vortoj: ”Mi ne povus morti antaŭ ol persvadi EU-gvidantojn, kiel la EK-prezidanto Von Der Leyen [tiele – devus esti von der Leyen] , la franca prezidento Macron ktp., ke EU forigu la anglan dominadon.” Evidente leviĝas neniaj kritikaj demandoj pri la reklamkampanjo, same kiel neniaj kritikaj demandoj pri io ajn leviĝas en la revuo de UEA. Aliflanke la revuo ja estas bunte multkolora.
+
+La redaktoroj de la revuo Esperanto ne tuj reagis al peto pri komento, sed ili estas bonvenaj klarigi sian redakcian politikon ekzemple en vidpunkta artikolo en Libera Folio.
+
+
+---
+
+# Esperantistoj ambaŭflanke de la fronto
+
+**Published:** 2023-02-24
+
+**URL:** https://www.liberafolio.org/2023/02/24/esperantistoj-ambauflanke-de-la-fronto/
+
+**Categories:** movado
+
+Antaŭ unu jaro komenciĝis la grandskala rusia invado de Ukrainio. Multaj ukrainiaj esperantistoj estis rekte trafitaj de la milito – vivis sub rusia okupacio aŭ fuĝis de siaj hejmoj al aliaj partoj de la lando aŭ eksterlanden. En Rusio la prezidanto de la landa asocio gratulas ĉiujn rusiajn batalantojn.
+
+La 24-an de februaro 2022 komenciĝis la grandskala atako de Rusio kontraŭ Ukrainio. Kelkajn tagojn poste Libera Folio intervjuis la esperantiston Ihor Jasinskij, kiu fuĝis de la urbo Ĥarkiv al Nederlando.
+
+– Mi proponis min por la teritoria defendo, sed oni diris ke mi jam estas tro maljuna. Mi estas 64-jara, kaj oni akceptas ĝis 60. Al mi jam tedis sidi sub la tero kaj atendi bombon, li tiam rakontis.
+
+Nun li loĝas en Amsterdamo kaj trovis laboron en granda manĝodeponejo.
+
+– Nun mi kontaktas nur foj-foje kun lokaj esperantistoj en Amsterdamo. Okaze de la trista datreveno mi pensas ke, certe, Ukrainio ne estis tre bone preparita por la invado sed ankaŭ la helpo estis ne rapida kaj ne tre signifa, bedaŭrinde, li diras.
+
+Natalia Ivanova en Kijivo rakontas, ke la plej multaj esperantistoj restas en Ukrainio, kaj dum la milito daŭre restas en kontakto unu kun la alia.
+
+– Ni ege maltrankvilis kiam ni dum monato ne povis kontakti Ivan en la urbeto Dimer en la regiono de Kijivo. Dimer estis okupita, li loĝis tie dum monato sen elektro kaj akvo, li renkontis la okupantojn, ili venis al la loĝejo kaj serĉis tie “Bandera”, se vi aŭdis tiun nomon. Sed tamen kiam la urbo estis liberigita, haleluja, Ivan restis viva kaj havis tiun barbon teruran, tre similis al Zamenhof.
+
+Alia esperantisto, Svetlana, estis sub okupacio en la regiono de Ĥarkiv, rakontas Natalia Ivanova.
+
+– Ŝi trovis tie sian vunditan amikinon kaj okupiĝis pri tiu vundo. Estis terura afero, ĉar komenciĝis gangreno. Ili telefone kontaktis kun kirurgo kiu diris ke necesas ĉion fortranĉi. Ŝi rakontis al mi ke ŝi ploris kaj tranĉis, ĉar ŝi simple devis tion fari. Poste iu tute freneza volontulo sukcesis alveturi kaj ili venis al Ĥarkivo. La vundita virino restis viva kaj ĉio nun estas en ordo pri ŝi.
+
+Svetlana kune kun sia filino venis al Kijivo kaj dum iom da tempo loĝis tie. Poste, kiam komenciĝis la amasa bombado de elektra infrastrukturo kaj la regiono de Ĥarkivo jam estis liberigita, ŝi reveturis tien, Natalia Ivanova rakontas.
+
+– Ŝia loĝejo ĉi tie estas en la naŭa etaĝo kaj ĉio estas dependa de elektro. Se ĝi estas, ĉio estas en ordo. Se ne estas, la lifto ne funkcias, ne eblas ion prepari por la manĝo kaj estas terure malvarme. Ili revenis al la privata domo en Balakleja en la regiono de Ĥarkiv, tie estas pli-malpli normale.
+
+Natalia Ivanova mem en la komenca fazo de la milito fuĝis al okcidenta Ukrainio, sed revenis al Kijivo, kiam la ĉirkaŭa regiono estis liberigita.
+
+– Komence estis terura timo kaj tuta senforto, konstanta maltrankvilo pri parencoj, amikoj, soldatoj, konatuloj, maldeziro manĝi kaj nekapablo dormi. Dum la unua semajno de la milito mi perdis 5 kilogramojn. Nun apetito revenis, sed ekdormi restas problemo.
+
+– Mi trovis por mi stimulon por vivi kaj esti necesa kaj vivi ĝis la venko: mi ĉiutage veturas al volontula organizaĵo, kie homoj okupiĝas pri multaj aferoj por subteni nian armeon. Persone mi plektas kamuflajn retojn.
+
+Almenaŭ du esperantistoj servas en la ukraina armeo. Neniu ukraina esperantisto ĝis nun pereis rekte pro la milito, Natalia Ivanova diras.
+
+– Esperantistoj en Ukrainio ne multas, kaj estas plejparte maljunaj homoj. En vilaĝo apud Buĉa estis unu esperantisto kiu tie travivis la okupacion, sed pri ŝi ĉio estas en ordo.
+
+En Rusio multaj esperantistoj ŝajnas subteni la militon kontraŭ Ukrainio. Tiuj, kiuj ĝin ne subtenas, ĉefe silentas, ĉar malsilentado povus konduki al seriozaj sekvoj.
+
+La 23-an de februaro la prezidanto de Rusia Esperanto-Unio, Aleksandr Lebedev, atentigis la rusiajn esperantistojn okaze de grava nacia festotago:
+
+“Hodiaŭ nia lando festas Tagon de defendanto de la Patrujo. Okaze de la festo mi gratulas ĉiujn, kiuj iam servis aŭ nun servas en nia armeo kaj floto, kaj unuafoje tiujn, kiuj batalas por Rusio ĝuste nun. Mi gratulas ankaŭ laborantojn de armilindustrio kaj ĉiujn aliajn, kiuj klopodas por nia armeo en sia laborkampo. Gloron al vi ĉiuj, fortunon kaj venkojn!”
+
+Evidente ne nur rusiaj esperantistoj simpatias kun la agado de la regantoj en Kremlo. Iu usona esperantisto eĉ decidis translokiĝi al Rusio jam post la komenciĝo de la milito, laŭ informo de Andrej Grigorjevskij en retpoŝta listo de rusiaj esperantistoj:
+
+“En Peterburgo aperis usona e-isto, kiu decidis migri al Rusio. Fluge li atingis Helsinkon, de tie buse veturis al Peterburgo. Peterburganoj renkontis lin, loĝigis, helpis pri la unuatempa adapiĝo. Li nomas sin rusmaniere “David Ivanovich” aŭ mallonge Dave. Li planas ekloĝi ie en Volgio, preferinde en Saransk (pri kiu li legis kiel la plej ekologie pura rusia regiona centro).”
+
+
+---
+
+# UEA decidis kongresi en Tanzanio en 2024
+
+**Published:** 2023-03-02
+
+**URL:** https://www.liberafolio.org/2023/03/02/uea-decidis-kongresi-en-tanzanio-en-2024/
+
+**Categories:** UEA
+
+La Universala Kongreso de Esperanto en 2024 okazos en Arusha, Tanzanio. Tion decidis la estraro de UEA. Tio estos la unua Universala Kongreso en Afriko. La plano kongresi en Tanzanio estas kritikata interalie de Ligo de Samseksamaj Esperantistoj.
+
+La decido pri la loko de la Universala Kongreso 2024 estis nekutime malfrua, sed ne prezentas grandan surprizon – jam de longe la estraro de UEA strebas aranĝi Universalan Kongreson en Afriko.
+
+La invitanto estas la plej nova landa asocio de UEA, Esperanto-Asocio de Tanzanio (EATA). Ĝia aliĝpeto estis akceptita de la komitato de UEA antaŭ sep monatoj, dum la Universala Kongreso en Montrealo.
+
+UEA pli frue jam havis landan asocion en Tanzanio, kun la nomo Tanzania Esperanto-Asocio (TEA). Ĝi tamen ĉesis aktivi antaŭ multaj jaroj. La nova asocio EATA estis fondita en decembro 2019, parte de aktivuloj de la antaŭa asocio. Ĝia aliĝo al UEA daŭris, ĉar UEA ne povis akcepti la originan statuton.
+
+La fine akceptita versio de la statuto laŭvorte ripetas la formulojn en la statuto de UEA pri neŭtraleco kaj respekto al homaj rajtoj. Samtempe EATA sin devigas sekvi ĉiujn leĝojn de Tanzanio, kio evidente estas nepra kondiĉo por ke la asocio povu funkcii.
+
+Kritikantoj de la plano kongresi en Tanzanio tamen atentigas, ke la leĝoj de Tanzanio konfliktas kun baza respekto al homaj rajtoj, ĉar la rajtoj de samseksemuloj estas severe limigitaj. La puno por seksumado de viraj aŭ virinaj paroj en Tanzanio estas tutviva malliberigo. Laŭ enketo de 2007, 95 procentoj el tanzanianoj opinias, ke samseksemo ne estu akceptita de la socio.
+
+La decido kongresi en Tanzanio laŭ la kritikantoj tial malrespektas unu el la de longe aplikataj kriterioj de UEA pri taŭgeco de kongreslando.
+
+En novembro 2022 okazis malferma reta renkontiĝo kun Fernando Maia pri la UK-planoj por 2024. Dum la kunsido reprezentantoj de Ligo de Samseksamaj Geesperantistoj atentigis pri la riskoj. Jam pli frue LSG oficiale petis al UEA, ke oni ne okazigu Universalan Kongreson en lando, kie GLAT-uloj riskas enprizonigon.
+
+En intervjuo de Libera Folio en aŭgusto 2022 Osmo Buller, antaŭa ĝenerala direktoro de UEA, forte kritikis la proponon kongresi en Tanzanio:
+
+– Ne necesas, ke la homrajta situacio estu ideala, sed ke la programo de UK povu esti libere kunmetebla kaj realigebla kaj ĉiuj fakaj asocioj povu libere kunveni. Estus skandalo, se UK estus asignita al Tanzanio. Tiam LSG devus fari siajn konkludojn, ĉar temus pri malrespekto de ĝia kunlabora kontrakto kun UEA.
+
+Universala Kongreso en Afriko aperis en la planoj de UEA antaŭ multaj jaroj. Laŭ ĵusa gazetara komuniko, la estraro de UEA per sia decido ”plenumas devon de la Asocio, kiu en la pasinta jardeko deklaris la okazigon de UK en Afriko kiel strategian elementon por UEA”.
+
+Jam en la komenco de la 1980-aj jaroj oni serioze konsideris okazigi Universalan Kongreson en Afriko. Oni planis ĝin por la jaro 1990, eventuale por Abiĝano en Eburbordo. Tamen fine la ideo tiam estis forlasita, kaj post 1987 ne plu aperis en la diskutoj de la estraro.
+
+Post la rezigno pri UK en Afriko aperis malpli ambicia ideo pri Afrika Kongreso kaj la unua okazis en Togolando jarŝanĝe 1990-91, kun partoprenantoj ankaŭ de aliaj kontinentoj.
+
+La ideo de Universala Kongreso en Afriko ankaŭ ne aperas en la strategia laborplano de UEA por la jaroj 2001–2010 , nek en la ” Strategia vizio” de 2012 aŭ la strategia laborplano por la jaroj 2013–2017 . Pli novan strategian laborplanon UEA tute ne havas. Do almenaŭ en siaj oficialaj strategiaj dokumentoj UEA ŝajne ne deklaris okazigon de afrika UEA ”strategia elemento”.
+
+Aliflanke la strategiaj dokumentoj ja plenas de multaj aliaj ”strategiaj elementoj”, kiuj neniam estis realigitaj.
+
+
+---
+
+# UEA: IJK okazu en Tanzanio samtempe kun la UK
+
+**Published:** 2023-03-06
+
+**URL:** https://www.liberafolio.org/2023/03/06/uea-ijk-okazu-en-tanzanio-samtempe-kun-la-uk/
+
+**Categories:** TEJO, movado
+
+La decido pri la loko de la venontjara IJK estis prokrastita, ĉar UEA lastmomente proponis, ke TEJO organizu ĝin en Tanzanio samtempe kun la UK. Tamen eĉ ne venis invito de Tanzanio. Laŭ la jara raporto de TEJO la asocio havas 50 landajn sekciojn. El tiuj 32 ŝajnas ne plu aktivi.
+
+Dum reta kunsido de la komitato de TEJO la 4-an de marto la TEJO-prezidanto Albert Stalin Garrido raportis pri la planoj por IJK 2024. Li rakontis ke venis kandidatiĝoj de Burundo kaj Litovio, du landoj kiuj neniam antaŭe gastigis la kongreson. Li intervjuis la teamojn de la du landoj kaj raportis ke ambaŭ havas fortan proponon.
+
+La estraro planis decidi dum kunsido je la 26-a de februaro sed en tiu tago subite aperis nova propono de la kongresa fako de UEA, kiu nun estas prizorgata de la organizaĵo E@I en Slovakio. La propono estis ke IJK okazu en Aruŝa, Tanzanio, dum la sama semajno kiel la UK. Kiam la kongresa fako kontrolis ĉu Aruŝa estus taŭga por UK, ŝajnas ke ili trovis lokon kie ankaŭ IJK povus okazi.
+
+Garrido diris ke la propono povus krei “komplikaĵojn”, ĉar Tanzanio ne kandidatiĝis por IJK, do tiu povus esti malrespekto al la aliaj kandidatoj. Oni diris al li ke Burundo subtenos la kandidatiĝon de Tanzanio, sed Burundo ne konfirmis tion al li.
+
+Komitatano B Josuo Maro atentigis ke samseksemo estas kontraŭleĝa en Tanzanio kaj “homoj estas eĉ mortigataj pro tio”. Pro tio li ne aprobus okazigi IJK en la lando. Alex Monaghan (komitatano B) diris ke kiel GLAT-ulo li ne riskos sian vivon por iri al kongreso.
+
+(GLAT – gejoj, lesboj, ambaŭseksemuloj kaj transgenruloj.)
+
+Garrido respondis ke li havas personajn hezitojn pro tiu problemo kaj li ne volas endanĝerigi iun ajn kongresanon. Samseksemeco tamen estas kontraŭleĝa ankaŭ en Burundo.
+
+Michel Boris Mandirola (komitatano Ĉ) diris ke oni konsideru la situacion ne nur kiel problemon sed ankaŭ kiel oportunon, ĉar progresemaj homoj povus konvinki kontraŭglatulojn. Eble se ili amikiĝus kun glatuloj, ili ne plu havus negativajn opiniojn kaj ŝanĝus sian vidpunkton.
+
+Vicprezidanto Tyron Surmon diris ke kiel gejo li komprenas la timojn, sed ankaŭ Togolando havas leĝojn kontraŭ samseksemo, kaj IJK 2017 okazis tie senprobleme. Li aliflanke avertis ke IJK povus perdi sian identecon se ĝi okazus samtempe kaj samloke kiel UK. Garrido siaflanke diris, ke IJK riskas iĝi la junulara programo de UK se ĝi okazos samtempe kaj samloke.
+
+Estrarano Patricio Iglesias atentigis ke IJK ne okazis ekster Eŭropo ekde 2017 kaj pro tio oni riskas ke junuloj en neeŭropaj landoj perdos intereson kaj vidos TEJO-n kiel organizaĵon nur por eŭropanoj. Garrido konsentis ke okazigi UK kaj IJK en Afriko estus granda simbola paŝo por la komunumo. Sed li ankaŭ diris ke oni devas pripensi la financan flankon, ĉar la pasinta IJK en Afriko estis malprofita kaj TEJO nun estas en “fragila financa stato.”
+
+Kelkaj kompromisoj estis sugestitaj, ekzemple okazigi IJK en Aruŝa, sed la semajnon antaŭ aŭ post UK, organizi viglan junularan programon por UK, sed havi IJK en Litovio – aŭ okazigi IJK en Burundo, kiu estas najbara lando al Tanzanio. Tamen la distanco inter Aruŝa kaj Buĵumburo estas pli ol mil kilometroj kaj vojaĝo laŭ Google-mapoj daŭrus dek ses horojn.
+
+Oni ne decidis pri la loko de la IJK dum la kunsido, anstataŭe oni petis pli da informo kaj starigis opinisondadon inter komitatanoj pri preferataj lokoj.
+
+La komitato krome aprobis la jarraporton, laŭ kiu en 2022 TEJO havis 1 068 individuajn membrojn kaj 50 landajn sekciojn. Mandirola levis la fakton, ke nur 16 landaj sekcioj nomumis komitatanon A por reprezenti sin kaj demandis kiom da landaj sekcioj nun dormas.
+
+Tobiasz Kubisiowski, la Ĝenerala Sekretario, koncedis ke kelkaj landaj sekcioj estas malaktivaj, sed li ne scias la precizan nombron.
+
+La estrarano respondeca pri landa agado, Patricio Iglesias, diris:
+
+– Mi konscias ke estas grava problemo por TEJO ke ni havas tro multe da surpaperaj sekcioj.
+
+Baldaŭ aperos KODEJO, la raporto de ĉiuj landaj sekcioj al TEJO pri sia agado. Surmon diris, ke oni povos uzi tiun por kalkuli kiom da landaj sekcioj estas aktivaj.
+
+– En tiu enketo, 18 landaj sekcioj plenumis ĝin, do mi pensas ke ni povas pli-malpli supozi ke estas 18 aktivaj landaj sekcioj de TEJO.
+
+Robert Nielsen
+
+
+---
+
+# Nederlanda gazeto pri konfliktoj en Esperantujo
+
+**Published:** 2023-03-07
+
+**URL:** https://www.liberafolio.org/2023/03/07/nederlanda-gazeto-pri-konfliktoj-en-esperantujo/
+
+**Categories:** movado
+
+“Ukrainio kaj japana magnato dividas Esperantujon”. Tiu estas la titolo de dupaĝa artikolo ĵus aperinta en la nederlanda dusemajna gazeto Argus . La atenton de la aŭtoro vekis strange sektecaj anoncoj pri Esperanto en la prestiĝa germana gazeto Die Zeit .
+
+La konata nederlanda ĵurnalisto Theo Dersjant tre surpriziĝis, kiam li vidis la anoncon de Etsuo Miyoshi pri Esperanto en la germana gazeto Die Zeit , li rakontas al Libera Folio . La anonco impresis lin, sed ne en la celita maniero. Li opiniis ĝin sekteca.
+
+– Kiel ĵurnalisto, mi volis kompreni, kiu estas malantaŭ ĉi tio. Tio ne videblis en la anonco. Estis retadreso, www.esperanto.net. Ĝi apartenas al Universala Esperanto-Asocio. Sed ili havis nenian rilaton al la anonco. Tio ŝajnis stranga.
+
+Aldone mirigis lin, ke granda parto de la anonco temis pri Etsuo Miyoshi mem.
+
+– Se vi estas japana filantropo kiu volas antaŭenigi Esperanton, kial fari anoncon, en kiu eble duonon de la spaco okupas vi mem, via infanaĝo kaj via rulseĝo. Tio ja neniel rilatas al Esperanto. Ĉio ĉi estas stranga, estiĝas multaj demandoj, kaj tial mi komencis fari telefonvokojn.
+
+Libera Folio: Kiel vi kredas, ke ordinaraj legantoj reagas al ĉi tiuj anonco, se ili entute reagas?
+
+– Honeste dirite, ne funkcias, se oni devas legi la anoncon kvar aŭ kvin fojojn antaŭ ol oni komencas kompreni, kion ili volas. Tio estas la unua afero. La dua afero estas, se mi estus persono, kiu povus interesiĝi pri Esperanto, kien mi iru? Kion mi faru? Mankas konkreta propono. Tion mi trovis tre frapa.
+
+Kiam Theo Dersjant komencis esplori la aferon, li trovis interalie la artikolon de Libera Folio pri la anonckampanjo, kiun li povis legi helpe de reta tradukilo. Li trovis trafa la opinion de Osmo Buller, la antaŭa ĝenerala direktoro de UEA, kiu estis citita en la artikolo.
+
+– Li diris ke ĝi pensigas pri sekto. Kaj mi opinias ke tio estas tre bona priskribo. Tiu estas la impreso: iaspeca sekto.
+
+Liaj pluaj esploroj kondukis lin al Lu Wunsch-Rolshoven:
+
+UEA plusendas la demandintojn pri la anonckampanjo (”Ni havas nenion por fari kun ĝi”) al Lu von Wunsch-Rolshoven, ”pressesprecher” [gazetara parolisto] de Germana Esperanto-Asocio. Li informas, ke temas pri kampanjo en germanaj ( Die Zeit, Frankfurter Allgemeine Zeitung ), francaj ( Le Monde kaj Les Echos ) kaj polaj gazetoj. La tutpaĝaj anoncoj estos sesfoje ripetataj dum la venontaj semajnoj. Li agnoskas trovi ilin iom nefeliĉaj. ”Se mi mem havus centmilon je dispono, mi ne farus en tiu ĉi maniero. Temas pri privata iniciato de iu, kiu entuziasmas pri Esperanto.” Kaj: ”La celo de la kampanjo efektive ne estas tre klara.” Unu-du minutojn post la telefoninterparolo la ”pressesprecher” retelefonas. ”Jes, vidu, fakte mi volus peti vin teni min iomete en ombro. Ja iom nefeliĉe, sed mi estas ankaŭ privata sekretario de Etsuo Miyoshi, mi helpis lin realigi la anonckampanjon. Kiel gazetaristo de la germana asocio kaj kiel privata sekretario de Miyoshi mi estas en iom malfacila situacio.”
+
+UEA plusendas la demandintojn pri la anonckampanjo (”Ni havas nenion por fari kun ĝi”) al Lu von Wunsch-Rolshoven, ”pressesprecher” [gazetara parolisto] de Germana Esperanto-Asocio. Li informas, ke temas pri kampanjo en germanaj ( Die Zeit, Frankfurter Allgemeine Zeitung ), francaj ( Le Monde kaj Les Echos ) kaj polaj gazetoj. La tutpaĝaj anoncoj estos sesfoje ripetataj dum la venontaj semajnoj. Li agnoskas trovi ilin iom nefeliĉaj. ”Se mi mem havus centmilon je dispono, mi ne farus en tiu ĉi maniero. Temas pri privata iniciato de iu, kiu entuziasmas pri Esperanto.” Kaj: ”La celo de la kampanjo efektive ne estas tre klara.”
+
+Unu-du minutojn post la telefoninterparolo la ”pressesprecher” retelefonas. ”Jes, vidu, fakte mi volus peti vin teni min iomete en ombro. Ja iom nefeliĉe, sed mi estas ankaŭ privata sekretario de Etsuo Miyoshi, mi helpis lin realigi la anonckampanjon. Kiel gazetaristo de la germana asocio kaj kiel privata sekretario de Miyoshi mi estas en iom malfacila situacio.”
+
+Responde al demando de Libera Folio , Lu Wunsch-Rolshoven konfirmas, ke li nun havas la taskon de privata sekretario de Etsuo Miyoshi, kiun antaŭe prizorgis Atilio Orellana Rojas. Lu Wunsch-Rolshoven ne vidas problemon en tio, ke li samtempe estas gazetara respondeculo de Germana Esperanto-Asocio:
+
+– Mi faras ambaŭ taskojn. Kaj mi ne vidas konflikton, nek nun, nek poste.
+
+Krome laŭ Lu Wunsch-Rolshoven ne veras, ke li helpis aranĝi la anonckampanjon, kiel asertas la nederlanda artikolo:
+
+– Mi ne povas imagi, ke ion tian mi diris, ĉar simple ne estas tiel. Mi eklaboris fine de januaro, tiam la kampanjo estis taskigita.
+
+En sia artikolo Theo Dersjant raportas ankaŭ pri la ekonomiaj problemoj de UEA kaj la decido vendi la domon en Nieuwe Binnenweg 176:
+
+Direktoro Martin Schäffer de UEA sciigas, ke “restrukturado” de la laboro de lia organizaĵo – pli da laboro per interreto – kondukis al tio, ke la oficejo iĝis tro granda. “Ni havis deficitojn inter 2016 kaj 2019, sed ekde 2020 ni denove notas nigrajn ciferojn.” Dum la pasintaj jaroj la personaro jam estis reduktita. “Mi ne ekskludas, ke ni plu tenos malpli grandan oficejon en Roterdamo.”
+
+Direktoro Martin Schäffer de UEA sciigas, ke “restrukturado” de la laboro de lia organizaĵo – pli da laboro per interreto – kondukis al tio, ke la oficejo iĝis tro granda. “Ni havis deficitojn inter 2016 kaj 2019, sed ekde 2020 ni denove notas nigrajn ciferojn.” Dum la pasintaj jaroj la personaro jam estis reduktita. “Mi ne ekskludas, ke ni plu tenos malpli grandan oficejon en Roterdamo.”
+
+Pro informoj de Libera Folio , Theo Dersjant ekinteresiĝis ankaŭ pri la konfliktoj ĉirkaŭ la prezidanto de Rusia Esperanto-Unio, kiu volas likvidi la ukrainan ŝtaton, kaj la ĉefdelegito de UEA en Rusio, kies Facebook-konto deliris pri usonaj nazioj en Ukrainio.
+
+En la artikolo li demandas al Duncan Charters, la prezidanto de UEA, ĉu la deziro likvidi landon ne estas kontraŭa al la idealoj de la Esperanto-movado, kaj ĉu ne estas problemo, ke la redaktoroj de la oficiala revuo de UEA troviĝas en lando kiu limigas la liberecon de la gazetaro.
+
+Charters respondas, ke la redaktoroj de la revuo estas tre profesiaj kaj “neniam provis influi la legantojn”:
+
+– Aliaj organizaĵoj elektis en tia kazo nomi superan ĉefredaktoron el alia lando, sed tion ni malakceptis. Kvankam en la Esperanto-movado ekzistas diversaj opinioj pri la afero, neniam estis farita formala alvoko por forpreni la eldonaĵon de la redaktoroj. Kun tiu starpunkto ni fakte subtenas “freedom of expression” [liberecon de esprimado], ankaŭ en Rusio.
+
+Charters argumentas, ke la prezidanto de REU neniam postulis la likvidon de Ukrainio, nur la likvidon de la sendependa ukrainia ŝtato:
+
+– Tio efektive laŭ iuj estas malaprobenda, sed ĝi konformas al la linio de la rusa registaro.
+
+La gazeto Argus aperas nur surpapere, sed Theo Dersjant aperigis la tekston ankaŭ en sia Facebook-paĝo.
+
+
+---
+
+# Duolingo nur por anglalingvanoj
+
+**Published:** 2023-03-13
+
+**URL:** https://www.liberafolio.org/2023/03/13/duolingo-nur-por-anglalingvanoj/
+
+**Categories:** interreto, movado
+
+Estonte nur tiuj, kiuj jam scias la anglan, povos lerni Esperanton per Duolingo. La kursoj de Esperanto en la franca, hispana kaj portugala malaperis en la retejo, kaj la longe preparita kurso de Esperanto en la ĉina neniam estis funkciigita.
+
+Laŭ informoj, kiuj unue aperis en la Telegram-kanalo Agadujo , la kursoj de Esperanto en la franca, hispana kaj portugala malaperis pro decido de Duolingo ne plu akcepti novajn lernantojn. Tiuj, kiuj komencis la kursojn, provizore povos plu lerni, sed la kursoj ne estos ĝisdatigataj.
+
+Ruth Kevess-Cohen, iama gvidanto de la teamo de la unua, anglalingva Esperanto-kurso de Duolingo, citas oficialan respondon, kiun ŝi ricevis de la entrepreno:
+
+Duolingo lastatempe decidis haltigi la evoluigon de la kursoj Esperanto <  portugala, franca kaj hispana. Ni volas fokusi niajn energion kaj rimedojn al plibonigo de niaj nunaj kursoj. Ĝis nun tiuj tri kursoj ricevis tre malaltan interesiĝon kompare kun aliaj kursoj en la platformo, kaj ni ne vidas realisman vojon subteni ilin, almenaŭ en la nuna tempo. Bonvolu noti, ke ĉi tiu decido ne estas definitiva, kaj ke ni rekonsideros nian liston de kursproponoj ĉiujare. Ni scias, ke ĉi tiu estas peza decido, ĉar la kursoj postulis grandan kvanton da laboro de multaj homoj, inkluzive kursajn kontraktulojn kaj Duojn [volontulojn], kaj ĉar Duolingo strebas proponi vastan gamon da lingvoj inkluzive Esperanton (kaj ni plu proponos Esperanto < angla).
+
+Duolingo lastatempe decidis haltigi la evoluigon de la kursoj Esperanto <  portugala, franca kaj hispana.
+
+Ni volas fokusi niajn energion kaj rimedojn al plibonigo de niaj nunaj kursoj. Ĝis nun tiuj tri kursoj ricevis tre malaltan interesiĝon kompare kun aliaj kursoj en la platformo, kaj ni ne vidas realisman vojon subteni ilin, almenaŭ en la nuna tempo. Bonvolu noti, ke ĉi tiu decido ne estas definitiva, kaj ke ni rekonsideros nian liston de kursproponoj ĉiujare.
+
+Ni scias, ke ĉi tiu estas peza decido, ĉar la kursoj postulis grandan kvanton da laboro de multaj homoj, inkluzive kursajn kontraktulojn kaj Duojn [volontulojn], kaj ĉar Duolingo strebas proponi vastan gamon da lingvoj inkluzive Esperanton (kaj ni plu proponos Esperanto < angla).
+
+En la praktiko tio signifas, ke dum la antaŭvidebla estonteco eblos lerni Esperanton ĉe Duolingo nur pere de la angla lingvo. Tio signifas ankaŭ, ke la laboro de multaj volontuloj, kiuj okupiĝis pri la Esperanto-kursoj, grandparte estas forĵetata.
+
+La kursoj en aliaj lingvoj ol la angla ne tuj malaperos, sed novaj lernantoj ne plu povos registriĝi en ili. Tiuj, kiuj ne jam registriĝis, estas nun aŭtomate plusendataj al la anglalingva kurso.
+
+Granda ŝanĝo en la koncepto de Duolingo okazis jam antaŭ du jaroj, kiam la entrepreno ĉesis uzi volontulojn en evoluigo de novaj kursoj kaj iĝis plene komerca entrepreno.
+
+Ĝis tiam, dum preskaŭ dek jaroj, volontuloj havis gravan rolon en la ellaborado de novaj kursoj, interalie la kursoj pri Esperanto. Nun Duolingo volas koncentriĝi je tiuj kursoj, per kiuj ĝi povas gajni monon.
+
+Pasintjare Duolingo krome anoncis, ke malaperos ĝiaj diskutforumoj por specifaj kursoj, inter ili ankaŭ la aktivan esperantlingvan forumon.
+
+La unua Esperanto-kurso en Duolingo, tiu en la angla, estis lanĉita la 28-an de majo 2015. La dua kurso, tiu en la hispana, estis lanĉita fine de 2016, kaj la tria, portugallingva kurso de Esperanto aperis en majo 2018 .
+
+Kurso de Esperanto por ĉinlingvanoj estis anoncita pasintjare kaj devis iĝi alirebla en junio 2022, sed neniam aperis.
+
+‒ Tiu kurso ne estos eldonita de Duolingo, bedaŭrinde. Neniu plu prilaboras ĝin… Ŝajnas, ke la firmao ne konsideras tiun kurson sufiĉe grava por pagi homojn trakti ĝin. Duolingo ne plu permesas volontulan laboron, Ruth Kevess-Cohen tiam klarigis al Libera Folio .
+
+La portugallingva kurso de Esperanto laŭ informo en la retejo de Duolingo havas nun 144 000 aktivajn lernantojn. Tio laŭ la entrepreno do estas “tre malalta interesiĝo kompare kun aliaj kursoj en la platformo” – alivorte, la kvanto de lernantoj ne sufiĉas por doni al Duolingo la deziratan profiton.
+
+La anglalingva kurso de Esperanto nun havas 316 000 aktivajn lernantojn, laŭ informo en la retejo . Momente tio ŝajnas sufiĉi por certigi profiton, ĉar oni ne anoncis fermon de tiu kurso.
+
+En la retejo Reddit la uzanto Verdasuno argumentas , ke esperantistoj devas mem zorgi pri retaj kursoj de Esperanto, ĉar profitcelaj firmaoj evidente ne pretas tion fari:
+
+– Oni ne plu povas fidi al Duolingo, Esperanto ne plu gravas por la kompanio. Estas nur iom da tempo antaŭ ol Esperanto malaperos el Duolingo por ĉiuj, krom anglalingvanoj.
+
+
+---
+
+# Burundo retiris sian kandidatiĝon por IJK 2024
+
+**Published:** 2023-03-16
+
+**URL:** https://www.liberafolio.org/2023/03/16/burundo-retiris-sian-kandidatigon-por-ijk-2024/
+
+**Categories:** movado
+
+La komitato de TEJO vigle debatis ĉu okazu IJK 2024 en Eŭropo aŭ Afriko kaj ĉu TEJO estas tro eŭropcentra. Oni diskutis ankaŭ, ĉu IJK okazu kune kun la UK, aŭ ĉu tio malfortigus la etoson de la renkontiĝo. Meze de la debato, unu el la tri kandidatoj, Burundo retiris sian kandidatiĝon. Oni nun decidos inter Tanzanio kaj Litovio.
+
+Dum komitatkunsido de TEJO je la 4-a de marto, oni diskutis kie okazu IJK 2024. Tuj post la kunsido, la ĝenerala sekretario Tobiasz Kubisiowski petis la komitaton voĉdoni inter la tri kandidat-landoj: Burundo, Litovio kaj Tanzanio. La voĉdonado ne estis decida, sed celis nur montri al la estraro la opiniojn de la komitato. Malgraŭ ke eblis tuj voĉdoni, la ĝenerala sekretario petis, ke oni atendu ĝis la estraro sendos raporton pri la tri proponoj.
+
+La proponoj provokis viglan diskuton en la komitato ĉu IJK devus okazi en Afriko, por ke TEJO estu malpli eŭropeca kaj pli tutmondeca. Lucca Lanzi, komitatano A por Brazilo, forte pledis ne okazigi IJK en Eŭropo, ĉar de post 2017 neniu IJK okazis ekster Eŭropo. Li rimarkigis ke unusola eŭropa lando, Nederlando, jam gastigis IJK dek fojojn, kiuj estas pli ol ĉiuj landoj ekster Eŭropo kune.
+
+– Do, mi ege malĝojus se denove Eŭropo estus elektita, malgraŭ la ekzisto de du afrikaj opcioj. Kiun mesaĝon TEJO donos al la afrikanoj se ni elektos Litovion kiel la kongreslandon? Kion TEJO jam faris por la fizika afrika movado? Kaj kiujn bonajn kialojn afrikaj esperantistoj havus por esti membroj de TEJO se verŝajne la plimulto de ili neniam ĉeestos fizike iun IJK?
+
+Utku Özdemir (komitatano A por Germanio) levis la plej grandan malavantaĝon de IJK en Tanzanio laŭ li.
+
+– La risko perdi la propran sendependan identecon de nia organizo kaj de nia IJK. Ja estus granda avantaĝo ke ĉeestantoj povus ĝui ambaŭ eventojn samtempe kaj samloke, sed laŭ mi estus pli grave protekti la apartan etoson de IJK-oj kontraŭ ilia miksado.
+
+Espoir Kasati, komitatano B, parolis favore al Tanzanio kaj klarigis kial laŭ li Tanzanio havas leĝojn kontraŭ samseksemo:
+
+– Ĉiuj landoj sendube havas siajn leĝojn kaj la leĝoj de tiuj landoj rolas por defendi la valorojn de tiu lando, protekti ties popolon kaj zorgi ke ĝiaj kulturaj valoroj ne perdiĝu. Tio absolute ne atencas la personecon de kelkaj Esperantistoj, kia ajn estu ties doktrino aŭ kredo.
+
+Multaj komitatanoj parolis pri la malfacileco de la decido, kaj Matheus Gamito (komitatano B) resumis la malavantaĝojn rilate al ambaŭ landoj:
+
+– Unuflanke ni havas la eblecon de plia IJK en Eŭropo, kie sumiĝas preskaŭ 70 IJK-oj, multoble pli ol en ĉiuj aliaj kontinentoj kune, kio pruvus teruran, eŭropcentran tendencon de TEJO. Aliflanke, okazigi la IJK en lando kiu ne havas respekton al GLAT-aj rajtoj, povus endanĝerigi niajn samideanojn kiuj apartenas al tiu komunumo.
+
+– Estas terura situacio, kiun mi profunde esperas ne plu sperti.
+
+La estraro petis ke oni ne voĉdonu ĝis ricevo de la detaloj de la kandidatiĝoj, sed ĝi sendis tiujn detalojn nur la 10-an de marto, kiam ses tagoj da voĉdonado jam pasis. Oni rimarkis ke almenaŭ 13 homoj jam voĉdonis antaŭ ricevo de la raportoj.
+
+Karina Oliveira (komitatano Ĉ) bedaŭris ke homoj voĉdonis sen la raporto kaj diris ke sen informoj, ”tiu voĉdonado ne sencas”. Ŝi demandis, ĉu indus simple forigi la voĉdonadon entute.
+
+Òscar Hernández (komitatano A por Katalunio) konsentis ke ”la opinisonda voĉdonado povas esti nehelpa aŭ eĉ malhelpa se voĉoj ne baziĝas sur konkretaj informoj.”
+
+Ŝajnis ke eĉ la prezidanto, Albert Stalin Garrido, dubis pri la valoro de la voĉdonado.
+
+– Mi simple opinias la tanzanian aferon sufiĉe peza por mia mensa sano, ĉar estas tiom da polemiko ĉirkaŭ ĝi. Mi supozas, ke voĉdonigi la komitaton tiel baldaŭ, dum la temo, kun la lastminuta propono pri kongresado en Tanzanio, ankoraŭ ne estas tute matura, fine ne estas tre saĝa ideo.
+
+La situacio draste ŝanĝiĝis meze de la voĉdonado, kiam Gilbert Niyukuri, komitatano A por Burundo, anoncis ke Burundo retiris sian kandidatiĝon kaj subtenas Tanzanion.
+
+Oni sugestis ke IJK povus okazi en Tanzanio, sed ne dum la sama semajno kiel UK.
+
+Sed estrarano Tyron Surmon klarigis ke tio ne eblas, ĉar la Kongresa Fako de UEA pretas helpi organizi IJK nur, se ĝi okazas samtempe kiel la UK. Li skribis ke ĉar multe pli da homoj iros al la UK ol al la IJK, la IJK-anoj ”certe estos forglutitaj.” Li proponis ke ĉar UK havos junularan programon ajnakaze, TEJO subtenu ĝin sed okazigu la IJK en Litovio.
+
+Lucca Lanzi el Brazilo estis unu el la plej fortaj subtenantoj de IJK en Afriko, sed li agnoskis ke li skribis antaŭ ol li ricevis la raportojn pri la kandidatoj. Li konfesis ke li ”opiniis sen klaraj informoj”. Post studado de la raporto, li konsentis pri la kritikoj kontraŭ Tanzanio.
+
+– Se ne eblas okazigi IJK en Tanzanio antaŭ aŭ post la UK, mi sincere ne certas ĉu estus bone por TEJO havi nian kongreson kiel junularan programon de UK. Mi ne multe ŝatis la proponon de Tanzanio, mankas pluraj informoj, kaj mi dubas ke UEA facile donos pliajn detalojn al TEJO.
+
+Finfine, la 14-an de marto, la voĉdonado finiĝis. Laŭ la ne tre klara voĉdon-sistemo de TEJO la rezulto estis, ke Tanzanio kaj Litovio estis egale preferataj (10 voĉdonoj por ambaŭ landoj) kaj ambaŭ estas preferataj al Burundo. Kiel ”egalecrompanto” funkciis la voĉo de la prezidanto, pro kiu  Tanzanio gajnis la voĉdonadon.
+
+Ne certas kiom da homoj voĉdonis ne leginte la raporton aŭ antaŭ la retiriĝo de Burundo. Pro tio, ne klaras ĉu la opinio-sondado helpos gvidi la estraron en la decido.
+
+Robert Nielsen
+
+
+---
+
+# Metropoliteno reveturis al Nederlando
+
+**Published:** 2023-03-21
+
+**URL:** https://www.liberafolio.org/2023/03/21/metropoliteno-reveturis-al-nederlando/
+
+**Categories:** kulturo
+
+En 1933 en Amsterdamo estis eldonita unu el la klasikaĵoj de la originala Esperanta literaturo: Metropoliteno de Vladimir Varankin. Post 90 jaroj la libro denove aperas samlande, nun en nederlanda traduko.
+
+Vladimir Varankin, la aŭtoro de la romano Metropoliteno , lernis Esperanton kiel gimnaziano en 1919, kaj  en 1921 estis inter la fondantoj de Sovetrespublikara Esperanto-Unio (SEU). Kiam komenciĝis la granda purigo de Stalino en 1937, li baldaŭ estis arestita. Oni akuzis lin pri partopreno en elpensita spiona organizaĵo, kaj en oktobro 1938 li estis mortpafita.
+
+Antaŭ tio en Amsterdamo en 1933 aperis lia ĉefverko, la romano Metropoliteno . La libro temas pri juna sovetia inĝeniero, sendita al Berlino fine de la 1920-aj jaroj por studi la konstruadon de metroo, kian oni planas en Moskvo.
+
+William Auld en sia verko Vereco, distro, stilo opiniis la romanon ”unu el la plej maturaj kaj valoraj en Esperanto”. Li trovis la verkistan stilon de Varankin ”nekredeble matura”. La lingvaĵon de la romano tamen forte influis la rusa lingvo. Tiurilate la verko estis iom reviziita en posta eldono, aperinta en Rusio en 1992.
+
+La unua eldono en 1933 aperis ĉe la eldonejo EKRELO (Eldon-Kooperativo por Revolucia Esperanto-Literaturo), proksima al SEU. La eldonejo estis fondita en Lepsiko, sed en aprilo 1933 la nazia registaro detruis la laboristan Esperanto-movadon en Germanio kaj multaj aktivuloj estis arestitaj.
+
+La eldonejo post tio reviviĝis en Nederlando, kie ĝi funkciis dum iom da tempo, antaŭ translokiĝo al Moskvo, kie ĝi fine estis malfondita en 1936. La romano de Varankin publikiĝis dum la nederlanda periodo de EKRELO. Poste ĝi dum multaj jaroj restis elĉerpita, ĝis reeldono en Danio en 1977.
+
+Post la disfalo de Sovetio, en Rusio aperis en 1992 tria eldono de la romano eĉ ĉe du konkurantaj eldonejoj – Sezonoj kaj Progreso. En la eldono de Sezonoj la plej evidentaj lingvaj fuŝoj estis korektitaj. La romano aperis ankaŭ en tradukoj rusa kaj angla, kaj partoj el ĝi estis tradukitaj ankaŭ al la germana.
+
+Nun en la retejo de Esperanto Nederland elŝuteblas nederlanda traduko de la klasikaĵo. La redaktinto Bert de Wit rakontas, ke la afero maturiĝis dum kelkaj jardekoj.
+
+– En la komenco de la okdekaj jaroj mi legis la duan eldonon de Metropoliteno , kaj mi opiniis la enhavon tre interesa, ĉar ĝi ŝajnis tute honesta priskribo pri la situacio tiama en Sovetio kaj Germanio, kaj ankaŭ la dialogoj impresis nature.
+
+Bert de Wit tiam estis prezidanto de la laborista Esperanto-Asocio FLE. Ĉar li ŝatis la libron, kaj ĉar ĝin rekomendis William Auld, li petis alian aktivulon de FLE, A. Kooij-van Holst, traduki kelkajn paĝojn por proponi la verkon al nederlandaj eldonejoj. Ŝi tamen tradukis multe pli ol kelkajn paĝojn.
+
+– Ŝi estis tre bona Esperantistino, siatempe membro de ekzamena komitato, pensiita, kaj tajpis la tradukon per la kutima tajpmaŝino, kaj poste mi ricevis la tuton en dosierujo.
+
+Tamen oni ne sukcesis veki la intereson de nederlandaj eldonejoj, kaj la manuskripto restis en subtegmento, kie Bert de Wit post sia emeritiĝo retrovis ĝin.
+
+– Kiom da laboro farita de kamaradino Kooij! Mi sentis iom da kulpo ke estis mi kiu instigis ŝin al tiu laboro! Do, mi komencis retajpi la manuskripton por stoki ĝin en la komputilo. Tio okazis dum la kronvirusa periodo, kiam mi povis okupi min pri tiu tasko. Mi kelkfoje ŝanĝis la tradukon se ĝi ne estis tiel glata laŭ mia gusto, sed tio okazis nur kelkloke.
+
+Poste la teksto estis enpaĝigita de Terry Vogelaar, juna Roterdama esperantisto kaj grafikisto, kiu krome aranĝis ĝian kovrilon. Nun la pdf-formata teksto troviĝas en la retejo de Esperanto-Nederland, kaj estas plano eldoni ankaŭ kelkajn presitajn ekzemplerojn, interalie por dissendi recenzajn ekzemplerojn al ĵurnaloj.
+
+Libera Folio: Kial laŭ vi indas konigi originalan Esperanto-literaturon en ekstermovada medio?
+
+– Laŭ mi indas diskonigi originalan literaturon en ekstermovada medio, ĉar ne-Esperantistoj ofte havas la ideon ke oni ne povas verki literaturon en Esperanto. Tial estas bone se oni tradukas literaturaĵojn. Tio forigas la ideon ke Esperanto estas io kio tute ne rilatas al la realo.
+
+Tradukoj de beletraj verkoj origine verkitaj en Esperanto aperis dum diversaj epokoj. En la 1990-aj jaroj Willem Verloren van Themaat kompiladis bibliografion de tiaj tradukoj.
+
+En artikolo aperinta en Fonto en februaro 1993 li ne tute surprize trovis, ke la plej multaj tradukoj el Esperanto estas faritaj al lingvoj parolataj en landoj, kie fortas la Esperanto-movado: la hungara, itala, pola, angla, franca, serbokroata, ĉina, japana kaj nederlanda.
+
+Unu el la plej sukcesaj originalaj beletraj verkoj el traduka vidpunkto sendube estas Maskerado ĉirkaŭ la morto , membiografia romano de Teodoro Ŝvarc (verkista nomo de Tivadar Soros), kie li rakontas, kiel li kaj lia familio kiel judoj supervivis la nazian okupacion de Hungario. De post angligo de Humphrey Tonkin en 2000 kaj hungarigo de István Ertl en 2002, tradukoj aperis en almenaŭ dek lingvoj, kvankam foje el la angla.
+
+Alia ofte tradukata Esperantlingva aŭtoro estas Vasilij Eroŝenko. Ĵus en la angla publikiĝis tricentpaĝa kolekto de liaj rakontoj, tradukitaj el Esperanto kaj la japana. Sekve aperis ampleksa artikolo pri Eroŝenko en la usona maldekstra periodaĵo Jacobin.
+
+En pluraj lingvoj (almenaŭ la angla, hungara, pola, portugala, skota, skotgaela) aperis ankaŭ tradukoj de la ĉefverko de William Auld, La infana raso . La nederlandigon faris ĝuste Willem Verloren van Themaat.  Aperis krome antologioj de Esperanta poezio en diversaj lingvoj, kiel Ten Esperanto Poets in English Translation (1991), aŭ laste en la itala fare de Carlo Minnaja kaj Nicolino Rossi – kaj en la rusa , zorge de Mikaelo Bronŝtejn.
+
+La apero de tradukoj ĉe grandaj eldonejoj, kiuj kutime ne interesiĝas pri Esperanto, sendube ofte dependis de hazardaj faktoroj. Ekzemple la grandan popularecon de Maskerado ĉirkaŭ la morto sendube kaŭzis ne nur la evidentaj literatura kaj historia valoroj de la verko, sed ankaŭ la fakto, ke ĝin verkis la patro de la konata financisto kaj mecenato George Soros.
+
+En la finna en 1924, nur unu jaron post la originalo, aperis finna traduko de Abismoj de Jean Forge. Ĝin tradukis Aini Setälä, verkisto kaj tradukisto, kiu estis ankaŭ la edzino de la finna pionira esperantisto Vilho Setälä. La libro aperis en la prestiĝa eldonejo Otava, kie li laboris.
+
+En 2017 Libera Folio povis raporti pri la apero de germana traduko de la originala romano Tur-strato 4 en Aŭstrio. Tiu eldono realiĝis pro la bonaj kontaktoj de loka esperantista librovendisto.
+
+En 1992 en Poprad, Slovakio, eĉ okazis seminario por tradukantoj de beletro el Esperanto. Pri ĝi poste raportis la revuo Esperanto . Laŭ la artikolo verkita de István Ertl, ĉefan obstaklon al la laboro de la tradukantoj starigas la ”malabundaj eldon-ebloj”.
+
+Inter la rekomendoj de la seminario estis starigo de ”strukturo de agentoj, kiuj distribuus informojn pri E-lingvaj eldonaĵoj, fiksus vendokondiĉojn, aranĝus eldonkontraktojn ks.”.
+
+Ŝajnas ke tiuj rekomendoj havis similan sorton kiel la plej multaj aliaj rekomendoj de similaj seminarioj.
+
+
+---
+
+# EU-subvencio savas la financojn de TEJO
+
+**Published:** 2023-03-27
+
+**URL:** https://www.liberafolio.org/2023/03/27/eu-subvencio-savas-la-financojn-de-tejo/
+
+**Categories:** TEJO, movado
+
+TEJO ricevos subvencion de 125 000 eŭroj de EU. Tiu subvencio kovros pli ol 90 procentojn de la buĝetitaj elspezoj de TEJO ĉi-jare. Nun oni denove dungos oficistojn.
+
+La periodo de financa malstabileco por TEJO nun finiĝas, ĉar la organizaĵo ricevos subvencion de 125 000 eŭroj de Eŭropa Unio. Nun la demando estas, kiel TEJO uzos la monon.
+
+De post la nericevo de buĝetitaj 85 000 eŭroj kiel administra subvencio pasintjare, TEJO suferis seriozan financan krizon. Tiu subvencio sola devus kovri 58 procentojn el la kostoj de la asocio. Pro tio, TEJO devis rezigni pri siaj komunikisto kaj eksterarilatisto, kaj kunigis la laboron de la subvencipetisto kaj la kunordiganto de volontuloj.
+
+Eĉ kun tiuj tranĉoj, TEJO havis deficiton de 31 000 eŭroj en 2022 kaj prognozis deficiton de 30 000 eŭroj ĉi-jare, se la asocio denove ne ricevus la subvencion.
+
+Tiu koŝmara situacio tamen nun ne okazis, ĉar dimanĉe la prezidanto de TEJO, Albert Stalin Garrido, anoncis al la komitato:
+
+– Lastatempe venis la decido de la Eŭropa Komisiono pri nia kandidatiĝo por la administra subvencio (sub la fonduso Erasmus+). Rilate tion, kun granda plezuro mi informas vin, ke ni ricevis trijaran kadran akreditiĝon, kiu permesas al ni kandidatiĝi por la administraj subvencioj de 2023 ĝis 2025, kaj ke nia subvencipeto por 2023 estas aprobita kun la aljuĝita sumo de 125 000 eŭroj elspezebla dum unujara periodo.
+
+La komitato jam aprobis la buĝeton por 2023, kiu enhavis bonan kaj malbonan scenaron. Laŭ la bona scenaro, la administra subvencio preskaŭ sola kovros la tutan elspezon de 137 000 eŭroj. Pro ceteraj enspezoj, TEJO havos profiton de 69 000 eŭroj en 2023.
+
+Garrido anoncis, ke la estraro baldaŭ prezentos novan buĝeton al la komitato. Tiu estos la kvara buĝeto en nur du jaroj. La unua prioritato estos dungi novajn oficistojn por anstataŭigi la perditajn. Oni krome volas pagi por ke la volontuloj vojaĝu al renkontiĝoj kadre de sia laboro kaj doni pli da mono al fonduso kiu pagas la vojaĝkostojn de junuloj al IJK.
+
+Garrido klarigis kia senŝarĝigo estas la subvencio por la estraro.
+
+– La ricevo de la administra subvencio ankaŭ forprenas de niaj ŝultroj tre pezan aferon. La estraroj, de la antaŭa ĝis la nuna, ĉiam laboris ĝis nun kun niaj financoj enmense. Nun, ni ne plu bezonos fari pli drastajn paŝojn sed povos pli trankvile plenumi niajn taskojn kaj tiel liveri eĉ pli bonan servon al nia membraro kun la subteno kiun ni ricevos.
+
+Li finis la anoncon per du vortoj: ” TEJO vivas”.
+
+Robert Nielsen
+
+
+---
+
+# Mortkondamno de Billy Waldon nuligita
+
+**Published:** 2023-03-28
+
+**URL:** https://www.liberafolio.org/2023/03/28/mortkondamno-de-billy-waldon-nuligita/
+
+**Categories:** historio, movado
+
+Billy Waldon (Noiĉjo Sekvojo) estas konata ĉeroka esperantisto, kiu en 1991 estis kondamnita je mortpuno interalie pro tri murdoj. Lastatempe la kasacia kortumo de Kalifornio nuligis la kondamnon kaj la tutan proceson kontraŭ li, raportas Brandon Sowers.
+
+En januaro, la kasacia kortumo de Kalifornio anoncis sian decidon pri la kazo de la esperantisto Noiĉjo Sekvojo, kiu estis kondamnita al mortopuno antaŭ pli ol tridek jaroj post akuzo pri interalie tri murdoj. La kasacia kortumo komplete nuligis la rezultojn de lia proceso, kaj sekve la juĝon kontraŭ li.
+
+La kortumo deklaris unuanime ke okazis gravaj problemoj en la proceso kontraŭ Noiĉjo, kaj tial nuligis la tutan proceson, inkluzive de la kondamno al mortopuno.
+
+La problemoj, kiujn la kortumo trovis en lia kazo, povas aspekti arkanaj al ne-advokatoj. Sed baze temas pri tio, ke li ne ricevis adekvatan advokatan reprezentadon, kaj la kortumo en 1991 efektive devis garantii tion.
+
+Principe tiu decido estas bona novaĵo por Noiĉjo, kvankam restas multe da necerteco por li. Oni eble iniciatos novan proceson kontraŭ li, kaj eĉ la decido pri tio ne nepre okazos tre rapide. Noiĉjo nun aĝas 71 jarojn, pasigis pli ol duonon de sia vivo en la fifama prizono San Quentin, kaj suferadas pro malsanoj kaj la malliberejaj kondiĉoj.
+
+San Quentin famiĝis interalie pro koncerto kiun Johnny Cash registris tie en 1969, kaj pro la morto tie en 1971 de George Jackson, influa membro de la partio Nigraj Panteroj (Black Panther Party). Ĝi estas la sola prizono en Kalifornio kun ekzekutejo. Ĝi situas rande de la golfeto de San Francisko.
+
+Ne ĉiu ŝtato en Usono permesas mortopunon. Por tiuj, kiuj permesas, ĝenerale pasas jardekoj inter la kondamno kaj la ekzekuto, dum kiuj okazas diversaj apelacioj. En Kalifornio, 30 jaroj estas konsiderataj ”averaĝa” daŭro por la apelaciaj proceduroj.
+
+Noiĉjo Sekvojo estas ĉeroka Esperantisto, kiu estis tre aktiva en la sepdekaj kaj okdekaj jaroj, en Eŭropo kaj Japanio same kiel en Usono.
+
+Noiĉjo Sekvojo estas la esperantigo de lia nomo en la ĉeroka, ”Nvwtohiyada Idehesdi (N. I.) Sequoyah”. Antaŭ lia aresto li uzis ankaŭ sian anglan nomon, Billy Waldon, kaj multaj esperantistoj eble memoros lin kun tiu nomo. De jardekoj li preferas uzi sian ĉerokan nomon (aŭ ties esperantigitan version).
+
+Li naskiĝis kaj kreskis en Tahlequah, Oklahomo (la ĉefurbo de Ĉerokujo) kaj lernis la ĉerokan hejme de parencoj. Kiel knabo, li jam tre interesiĝis pri lingvoj, kaj pro tio ricevis junaĝe la nomon Sequoyah, omaĝe al la inventinto de la ĉeroka skribsistemo.
+
+La ĉerokoj estas indiĝena popolo, kiu origine loĝis en la sudoriento de la nuna Usono. Inter 1830-50, la usona registaro forpelis ilin laŭ la tiel nomata Vojo de Larmoj trans la riveron Misisipo, kaj promesis lasi ilin tie en eterna paco. Inter 1890-1907, Usono establis tie la ŝtaton Oklahomo, kaj kuraĝigis setladon de ne-indiĝenoj. Nuntempe 16 procentoj el la loĝantaro de Oklahomo estas indiĝenoj (el diversaj popoloj).
+
+La ĉeroka lingvo estas eble unika inter indiĝenaj lingvoj, pro tio ke ĝi havas skribsistemon kreitan de ĉeroko, ne bazitan sur aliaj skribsistemoj. Nuntempe la lingvo havas proksimume 2000 parolantojn.
+
+Noiĉjo Sekvojo lernis Esperanton meze de la 1970-aj jaroj. Kiel marsoldato, li multe propagandis Esperanton surŝipe dum liaj vojaĝoj, ekzemple en Aŭstralio kaj Japanio. Li edziĝis al japana esperantistino, kun kiu li havas du gefilojn kaj tri genepojn.
+
+En la 80-aj jaroj, lia mararmea posteno portis lin al Eŭropo, kaj li aktivis en la movado tie. En 1981, ekzemple, li partoprenis la kongreson de SAT en Britujo. En 1985, li gvidis karavanon da usonaj junuloj al la Universala Kongreso (kaj IJK) en (tiam Okcidenta) Germanujo.
+
+En Esperantujo li ofte prelegis pri ĉerokaj kaj indiĝen-rajtaj temoj, pri kiuj li pasiis. Li estis aktiva en movadoj por indiĝenaj rajtoj, kaj celis montri la utilon de Esperanto por indiĝenoj, por havi komunan lingvon kiu ne estu la angla aŭ de alia koloniista potenco.
+
+Li iniciatis ampleksigitan version de Esperanto (nomatan Poliespo) kun polisintezaj trajtoj, ĉar laŭ li, tio estus pli akceptebla por indiĝenoj kun polisintezaj lingvoj. Li emfazis, ke li ne volas anstataŭigi Esperanton: Poliespo estas aldonaĵo, kaj ĉiu kiu volas lerni ĝin, devas lerni unue Esperanton.
+
+En 1986 li estis arestita en Kalifornio kaj akuzita pri krimoj, pri kiuj li ĉiam asertis sian senkulpecon. Je lia defendo multaj Esperantistoj parolis al la kortumo, pri kaj eĉ en Esperanto. Ŝajnas, ke multaj esperantistoj, kiuj konis lin antaŭ lia aresto, opiniis tre malverŝajna, ke li kulpas pri la akuzoj.
+
+Laŭ raportoj, la etoso en la kortumo tamen estis tia, ke oni male vidis lian Esperantan agadon kiel plian konfirmon de lia frenezeco. En 1991, Noiĉjo estis kondamnita al mortpuno, kaj do restas en prizono ekde tiam.
+
+Pluraj esperantistoj tenis kontakton kun li dum la jardekoj, inter aliaj Vilĉjo Harmon (tre konata usona Esperantisto) ĝis sia morto en 2019. Krome, Sennacieca Asocio Tutmonda iam kolektis monon por li, informis pri li, kaj diversaj SAT-anoj ĉirkaŭ la mondo provis sekvi lian kazon, kvankam ofte malfacilis el ekster Usono.
+
+Se vi volas mem kontribui al la subteno de s-ro Sekvojo, ekzemple skribante al li leteron, vi povas viziti la retejon de lia familio . Tie vi povas ankaŭ trovi iom pli da informo pri li.
+
+Brandon Sowers Adaptita el la origina versio, aperinta en “Muŝflugilo”, la bulteno de Esperantistoj en Porto.
+
+
+---
+
+# Eroŝenko reviviĝas en angla traduko
+
+**Published:** 2023-04-04
+
+**URL:** https://www.liberafolio.org/2023/04/04/erosenko-revivigas-en-angla-traduko/
+
+**Categories:** kulturo
+
+Dum multaj jaroj la blinda esperantista verkisto Vasil Eroŝenko krom en Rusio, Ukrainio kaj orienta Azio, kie diverslingve aperis lia verkaro, estis konata ĉefe en Esperantujo. Ĵus tamen Clemens J. Setz konigis lin en la germana, kaj nun aperis antologio de verkoj de Eroŝenko en la angla.
+
+Geoffrey Sutton en sia enciklopedio de la originala Esperanta literaturo ( Concise Encyclopedia of the Original Literature of Esperanto , 2008) nomas Vasil Eroŝenko ”eble la plej eksterordinara verkisto“ en Esperantujo. Li akiris ioman konatecon ne nur inter esperantistoj, sed ankaŭ inter fakuloj pri la kultura interŝanĝo inter Japanio kaj Ĉinio en la dudekaj jaroj.
+
+Eroŝenko naskiĝis en 1890 en la rusia vilaĝo Obuĥovka apud Belgorod proksime al la ukraina landlimo. Lia patro estis ukraino, kaj dum sia vivo Vasil ofte vestis sin per ukraina kamparana ĉemizo. Li mortis ankaŭ en Obuĥovka, en 1952 – sed kian vivon li havis inter tiuj du datoj!
+
+Kvarjara, li iĝis blinda. En Moskvo li vizitis lernejon por blinduloj. En 1912 li vojaĝis al Londono, kie helpis lin esperantistoj simile kiel dum multaj etapoj de lia posta vivo. Eksciinte, ke en Japanio blinduloj estas bone prizorgataj, li vojaĝis tien en aprilo 1914 helpe de subvencio de UEA.
+
+Li akiris la simpation kaj subtenon de japanaj intelektuloj. Fama pentristo, Nakamura Tsune, en 1920 kvazaŭ eternigis lin; lia portreto de Eroŝenko estas montrata en la Nacia Muzeo pri Moderna Arto en la centro de Tokio.
+
+Eroŝenko verkis aron da porinfanaj fabeloj, en kiuj atenta leganto povas konstati, ke li profunde malŝatis ĉian maljuston, en la socio same kiel en la traktado de bestoj. La fabelon ”Malvasta kaĝo“ oni povas kompreni kiel alegorion kontraŭ koloniismo kaj agreso. Karakteriza deklaro de Eroŝenko estas, ke lia hejmo estas la mondo, lia nacio – la homaro, kaj ke li el la lingvoj plej multe ŝatas Esperanton.
+
+En 1921 li estis trifoje arestita kaj fine deportita; la japana polico mise juĝis la blindulon danĝerulo, eble ĉar li multe rilatis kun socialistoj, anarkiistoj kaj pacifistoj.
+
+Eroŝenko ekloĝis en Pekino kaj Ŝanhajo, kie li trovis multe da simpatio – sed ankaŭ reziston, ĉar la komunismemajn studentojn de la Pekina Universitato ĉagrenis, ke Eroŝenko inkluzivigis en sian kritikon kontraŭ burokratoj kaj dogmemuloj ankaŭ la bolŝevikojn. Tiun kritikon li konservis eĉ post la reveno al tio kio nun estis Soveta Unio. Verŝajne nur lia blindeco savis lin de persekuto sub la reĝimo de Stalin.
+
+La ĉinaj verkistoj Lusin kaj Bakin multe estimis lin. De kelkaj jaroj en la ukraina ĉefurbo estas studocentro dediĉita al li. Sed ekster Rusio, Ukrainio kaj orienta Azio, kie diverslingve aperis lia verkaro, Eroŝenko ĝis antaŭ nelonge ne estis bone konata – ĝis la famiĝanta aŭstria verkisto Clemens J. Setz publikigis en 2020 germanlingve libron, kiu entenas surprize detalan, admiran prezenton de Eroŝenko.
+
+Setz en la posta jaro ricevis la plej renoman literaturan premion por germanlingvanoj. Kaj ĵus, komence de marto 2023, la eldonejo de Columbia-Universitato en Novjorko aperigis preskaŭ 300-paĝan anglalingvan antologion de la verkaro de Eroŝenko, nome tradukojn de liaj fabeloj verkitaj en Japanio kaj Ĉinio, kune kun enkonduko de la kanada tradukinto, Adam Kuplowsky (li tradukis el Esperanto kaj la japana).
+
+Represo de tiu enkonduko legeblas en la reto sub la titolo The Ukrainian Poet and Anti-Imperialist you’ve probably never heard of (”La ukraina poeto kaj kontraŭimperiisto, pri kiu vi verŝajne neniam aŭdis”).
+
+Nun pli multaj homoj povas aprezi la portempe preskaŭ forgesitan poeton, inkluzive de liaj iom melankoliaj, parte paradoksaj fabeloj.
+
+Ulrich Lins
+
+
+---
+
+# Nova retejo por esperantistaj librovermoj
+
+**Published:** 2023-04-12
+
+**URL:** https://www.liberafolio.org/2023/04/12/nova-retejo-por-esperantistaj-librovermoj/
+
+**Categories:** interreto, kulturo
+
+Ĉu denove nova socia retejo por esperantistoj? Sed ĉi-foje ĝi estas ne nur por esperantistoj. Per Libroj.org eblas rakonti en Esperanto pri interesaj libroj kaj trovi aliajn legemajn esperantistojn – sed ankaŭ interrilati kun legemuloj ekster Esperantujo. Libroj.org estas parto de Fediverso, samkiel Mastodon.
+
+Multaj literatur-amantoj ŝatas regule noti, kiujn librojn ili legis kaj kiajn pensojn la libroj vekis ĉe ili. Iuj faras tion publike, ofte en retejoj kiel GoodReads. Sed estas alternativoj al tiaj grandaj komercaj retejoj.
+
+La komputila programisto Neil Roberts, kiu lernis Esperanton antaŭ dudeko da jaroj kaj interalie programis la telefonan aplikaĵon por Reta Vortaro, PReVo, ĵus starigis novan forumon por legemuloj ĉe Libroj.org . Libera Folio petis lin rakonti pri la ideo malantaŭ la projekto.
+
+Libera Folio: Kio estas libroj.org?
+
+Neil Roberts: – Libroj.org estas socia reto por paroli pri libroj en Esperanto. Oni povas spuri sian legadon, fari komentojn kaj recenzojn pri libroj, kaj fiksi por si celon de la nombro de libroj kiujn oni legos dum la jaro. Tiel oni povas diskuti kun la aliaj uzantoj pri libroj kaj trovi sian sekvan legaĵon.
+
+– La retejo uzas la programon BookWyrm, do Libroj.org estas parto de la reto de etaj komunumoj de legemuloj de BookWyrm. Tiel, ni esperantistoj povas havi nian angulon en la reto por paroli pri la libroj kiuj interesas nin, sed ni samtempe estas videblaj al aliaj uzantoj de la reto kaj ankaŭ povas vidi kion ili legas kaj interagi kun ili.
+
+Kiel ĝi diferencas de komercaj servoj, ekzemple Goodreads?
+
+– Grava diferenco por Libroj.org estas ke ĝi povas celi nur etan komunumon, kaj tial esti estrata de tiu komunumo mem. Ni povas decidi niajn proprajn regulojn por la retejo kaj ne devas submetiĝi al la reguloj de granda firmao kiu havus aliajn celojn ol la niajn. Tio estas aparte grava por esperantujo rilate al Goodreads, ĉar lastatempe Goodreads ŝanĝis siajn regulojn tiel ke oni nun devas esti ”bibliotekisto” por havi la rajton aldoni libron.
+
+– Oni povas peti la bibliotekistojn aldoni librojn, sed ili havas plurajn petojn ĉiuminute kaj estas kvazaŭ loterio ĉu oni sukcesos aldonigi sian libron aŭ ne. Kompreneble la esperantaj libroj estas malpli konataj kaj tial ili malpli probable jam troviĝos en la datumbazo. Mi antaŭe uzis Goodreads, sed mi komencis serĉi alternativojn ĝuste pro tiu problemo. Mi finlegis la esperantan tradukon de Spionoj kaj mi volis skribi miajn pensojn pri ĝi ie, sed la libro ne aperis en la datumbazo de Goodreads kaj la bibliotekistoj bezonis pli ol semajnon por aldoni ĝin.
+
+– Krom tio, Goodreads estas posedata de Amazon, kaj certe multaj homoj preferas ne subteni tiun firmaon. Plie, laŭ mia scio la retejo estas havebla nur en la angla, dum BookWyrm havas multajn tradukojn, interalie esperantan.
+
+Ĉu ĝi estas nur por libroj en Esperanto?
+
+– Provizore mi elektis la politikon ke oni rajtas paroli pri libroj eldonitaj en iu ajn lingvo, kondiĉe ke oni parolas pri ili en Esperanto. Mi pensas ke interesus esperantistojn vidi kion aliaj esperantistoj legas, eĉ se la libro ne nepre estas en Esperanto mem. Se la uzantaro kreskos kaj la konumumo preferos alian regulon, ni povos ŝanĝi ĝin poste.
+
+Ĉu jam eblas aliĝi?
+
+– Jes! Ĉiu kiu parolas Esperanton estas bonvena peti inviton ĉe Libroj.org . La peto estos akceptita tre baldaŭ kondiĉe ke oni scipovas Esperanton. La retejo kaj BookWyrm mem ankoraŭ estas tre novaj, do povas okazi problemetoj, sed ĝi jam estas sufiĉe uzebla.
+
+Kian evoluon de la servo vi esperas vidi?
+
+– La programo de BookWyrm ankoraŭ estas tre nova kaj mankas kelkaj trajtoj por ke ĝi estu tute glate uzebla. Tamen ĝi estas konstante prilaborata kaj ĉiu nova versio alportas plibonigojn. Do mi ŝatus ke Libroj.org sekvu tiun evoluon kaj fariĝu bele uzebla retejo. Mi ŝatus ke la servo kresku al komunumo de esperantistaj legantoj kaj ke tio instigu pli da legado en esperanto. Tiel mi ne plu havos la problemon ke mi ne scias kion legi en esperanto.
+
+Ĝi estas parto de Fediverso samkiel Mastodon . Ĉu do eblas sekvi ĝin en Mastodon?
+
+– Jes! BookWyrm (kaj do Libroj.org) uzas ActivityPub, la saman protokolon kiun uzas Mastodon, do uzantoj de Mastodon povas sekvi la agadon de uzantoj de Libroj.org. Sed ne nur pasiva sekvado eblas, oni povas ankaŭ respondi al recenzoj kaj komentoj kaj tiel fari konversacion tra la du retoj. Kompreneble tio same validas pri aliaj malpli grandaj servoj de la Fediverso kiel Pleorama kaj tiel plu.
+
+– BookWyrm subtenas ankaŭ la protokolon RSS, kiu tradicie estas por legi blogojn. Tiel oni eĉ povus uzi Libroj.org kiel blogon por paroli pri libroj. Ne necesas havi konton por legi la recenzojn de aliaj uzantoj, do oni ne timu ke oniaj skribaĵoj estos kaptitaj en fermita skatolo.
+
+Kiel ĝi funkcias teknike? Ĉu ĝi bezonas financan subtenon?
+
+– Kiam mi volis krei la servon, mi unue kontaktis kelkajn spertulojn pri serviloj en Esperantujo por provi transdoni la laboron al ili. Kaj mi pensis ke ni povos fari komunan financadon por la projekto. Tamen montriĝis ke la spertuloj estas tro okupataj pri siaj jamaj projektoj. Poste mi rimarkis ke malgranda servilo kostas malpli ol 5 eŭrojn monate kaj mi povus simple pagi tion mem. Tion mi faris, kaj mi lernis la necesajn teknikajn sciojn por povi realigi la servilon.
+
+– Do intertempe mi pensas ke ne necesas financa subteno, sed se la komunumo kreskos kaj fine ni bezonos pli potencan servilon, eble estus bona ideo peti komunan financadon de la uzantoj, sed kompreneble tio estus nedeviga kaj uzi la retejon restos senpage.
+
+
+---
+
+# Por kio utilas Libera Folio?
+
+**Published:** 2023-04-19
+
+**URL:** https://www.liberafolio.org/2023/04/19/por-kio-utilas-libera-folio/
+
+**Categories:** interreto, kulturo
+
+Libera Folio estis fondita antaŭ dudek jaroj por prilumi akutan krizon en UEA. Multo ŝanĝiĝis en la mondo de post la jaro 2003, sed krizoj konstantas. Por kio do utilas nia bulteno? Ĉu nur por fidinde kaj ripete informi, ke en Esperantujo ĉio daŭre aĉas, kiel komentis unu leganto?
+
+En la unuaj jaroj de la nova jarmilo la organizita Esperanto-movado travivis unu el siaj regulaj krizoj. Temis pri konflikto inter funkciuloj de la Centra Oficejo de UEA kaj la sinsekvaj estraroj de la asocio, kies agadon multaj el la oficistoj trovis amatoreca, neserioza kaj detrua.
+
+Dum la Universala Kongreso en Zagrebo en julio 2001 demisiis la ĝenerala direktoro de la asocio, Osmo Buller, kaj la direktoro de la Centra Oficejo, Pasquale Zapelli. Tuj poste demisiis ankaŭ la redaktoro de la revuo Esperanto, István Ertl, kiu same laboris en la Centra Oficejo.
+
+La krizo akriĝis en 2003, kiam sian demision pro similaj kialoj anoncis la konstanta kongresa sekretario Nikola Rašić. Tiu demisio iĝis la sparko por la fondo de Libera Folio . La unua, teknike tre simpla versio estis lanĉita post nur unusemajna preparado. Ĝian arkivitan kopion eblas ankoraŭ vidi en la retejo de Kalle Kniivilä . Teknike temis pri aro da simplaj html-dosieroj, mane ĝisdatigataj. Komentado ne eblis.
+
+Jen kelkaj el la unuaj artikoloj de 2003 .
+
+La ĉefaj iniciatintoj de Libera Folio estis Kalle Kniivilä kaj István Ertl, kiuj plu laboras pri ĝi. Dum la jaroj evidente ankaŭ multaj aliaj homoj kontribuis al la evoluo de la bulteno – interalie Jan-Ulrich Hasecke, kiu dum pluraj jaroj prizorgis la teknikan flankon de Libera Folio .
+
+Kiam la nova tekniko tion ebligis, malfermiĝis la eblo ne nur komenti la artikolojn de Libera Folio – legantoj eĉ ekhavis la ŝancon mem afiŝi ampleksajn artikolojn en la retejo. Kiel en multaj lokoj komence de la reta epoko, ankaŭ en Libera Folio la limoj de esprimlibereco kaj la respondeco de la posedanto de la platformo ne tuj estis evidentaj.
+
+Tim Owen, oficisto de Esperanto-Asocio de Britio, rakontas pri siaj tiamaj kaj nunaj impresoj:
+
+Tim Owen. Mia opinio pri Libera Folio evoluis dum la jaroj, de unu poluso ĝis la alia. Mi unue renkontis ĝin ĉirkaŭ 2009. En tiu epoko ĉiun tagon aldoniĝis novaj komentoj, kaj do la fokuson havis ne la artikoloj, sed la lavango da komentoj kutime negativaj kaj idiotaj de malpleno de regulaj kontribuantoj. Ne ŝanĝiĝis mia sinteno nelonge poste, kiam leganto afiŝis artikolon plene ofendan pri malaperinta amiko mia, en la celo supozigi, ke tiu homo du jarojn poste deklarita mortinta, estis spiono. Mi tute ne akceptis la klarigon, ke: ”ĉiuj tekstoj, kiuj aperas sur blua fono, estas neredakciaj, kaj pri ilia enhavo respondecas sole la verkinto”. Ŝajnis, ke la principo ”kia patro, tia filo” aplikiĝas, kaj mi tute ne protestis, kiam mia tiama kolego Paul Gubbins en niaj konversacioj parolis pri ”Libera Kloako”. Iam intertempe aferoj ŝanĝiĝis. La komentoj ne plu estas tiel multaj, kaj fariĝis eble indiki sian aprobon (aŭ male) per simpla alklako anstataŭ tajpita respondo. Nun havas la fokuson la artikoloj, kutime profesi-nivelaj kaj ĉefe verkitaj tre diligente de redaktoro preta fari proprajn esplorojn, anstataŭ remaĉi aliulajn novaĵojn. Jam dum multaj jaroj, mi opinias Liberan Folion la ĉefa kroniko (kaj sekve ĝian redaktoron la ĉefa kronikisto) de la nuna epoko por historiistoj.
+
+Mia opinio pri Libera Folio evoluis dum la jaroj, de unu poluso ĝis la alia.
+
+Mi unue renkontis ĝin ĉirkaŭ 2009. En tiu epoko ĉiun tagon aldoniĝis novaj komentoj, kaj do la fokuson havis ne la artikoloj, sed la lavango da komentoj kutime negativaj kaj idiotaj de malpleno de regulaj kontribuantoj. Ne ŝanĝiĝis mia sinteno nelonge poste, kiam leganto afiŝis artikolon plene ofendan pri malaperinta amiko mia, en la celo supozigi, ke tiu homo du jarojn poste deklarita mortinta, estis spiono. Mi tute ne akceptis la klarigon, ke: ”ĉiuj tekstoj, kiuj aperas sur blua fono, estas neredakciaj, kaj pri ilia enhavo respondecas sole la verkinto”. Ŝajnis, ke la principo ”kia patro, tia filo” aplikiĝas, kaj mi tute ne protestis, kiam mia tiama kolego Paul Gubbins en niaj konversacioj parolis pri ”Libera Kloako”.
+
+Iam intertempe aferoj ŝanĝiĝis. La komentoj ne plu estas tiel multaj, kaj fariĝis eble indiki sian aprobon (aŭ male) per simpla alklako anstataŭ tajpita respondo. Nun havas la fokuson la artikoloj, kutime profesi-nivelaj kaj ĉefe verkitaj tre diligente de redaktoro preta fari proprajn esplorojn, anstataŭ remaĉi aliulajn novaĵojn.
+
+Jam dum multaj jaroj, mi opinias Liberan Folion la ĉefa kroniko (kaj sekve ĝian redaktoron la ĉefa kronikisto) de la nuna epoko por historiistoj.
+
+Legantoj ne plu povas afiŝi artikolojn en Libera Folio – de longe ekzistas aliaj, multe pli taŭgaj platformoj por libera verkado. Komentado plu eblas, kaj la plej multaj komentantoj sukcesas sekvi la normojn de civilizita interparolo. De tempo al tempo tamen plu neeviteble aperas la demando, ĉu tiu aŭ alia komento vere estas akceptebla.
+
+Eble parte inspirite de la diskutoj en Libera Folio , la konata hispana aktivulo Toño del Barrio en 2008 formulis la leĝon de Tonjo : ”Se reta diskuto sufiĉe longas, la probableco ke ĝi deflankiĝos al diskuto pri gramatikaĵoj aŭ pri la uzata vortigo proksimiĝas al 1”. Tiu leĝo sendube validos ankaŭ rilate la diskuton pri ĉi tiu artikolo.
+
+Li mem multfoje kontribuis al Libera Folio , interalie jam en 2005 per daŭre aktuala artikolo pri la ĉiam aktuala koncepto ”kabei”, kiu laŭ li ial ŝajnas esti prestiĝa fenomeno. Toño del Barrio trovas atentinda, ke Libera Folio senkabee daŭrigas sian laboron ekde 2003:
+
+Toño del Barrio Jam 20 jaroj, kiel pasas tempo! En epoko en kiu projektoj tre malofte superas du-tri jarojn, foje eĉ monatojn, kaj pacienco facile elĉerpiĝas, estas gratulinda la daŭra penado de reta revuo. Libera Folio liveris al nia movado spegulon en kiu ni povas – kaj devas – rigardi nin, sen maskado. Profesiecan, kun vera ĵurnalisma instinkto, laŭ la reguloj de la metio: interesaj temoj, funda esplorado, trafa redaktado, eĉ atentokaptaj ĉeftitoloj. Kun spaco ankaŭ por debato, por prezenti vidpunktojn pri nia komunumo, ĝiajn celojn, direkton kaj ankaŭ ĝiajn erarojn. Libera Folio estas jam de antaŭ longe la loko kie ni objektive serĉas la evoluon de nia komunumo. Mi fieras pri mia propra aparteno al ĝia familio, kaj konfidas ke ni kune povos festi aliajn pliajn dudek jarojn. Je via sano, Libera Folio!
+
+Jam 20 jaroj, kiel pasas tempo! En epoko en kiu projektoj tre malofte superas du-tri jarojn, foje eĉ monatojn, kaj pacienco facile elĉerpiĝas, estas gratulinda la daŭra penado de reta revuo.
+
+Libera Folio liveris al nia movado spegulon en kiu ni povas – kaj devas – rigardi nin, sen maskado. Profesiecan, kun vera ĵurnalisma instinkto, laŭ la reguloj de la metio: interesaj temoj, funda esplorado, trafa redaktado, eĉ atentokaptaj ĉeftitoloj. Kun spaco ankaŭ por debato, por prezenti vidpunktojn pri nia komunumo, ĝiajn celojn, direkton kaj ankaŭ ĝiajn erarojn. Libera Folio estas jam de antaŭ longe la loko kie ni objektive serĉas la evoluon de nia komunumo.
+
+Mi fieras pri mia propra aparteno al ĝia familio, kaj konfidas ke ni kune povos festi aliajn pliajn dudek jarojn. Je via sano, Libera Folio!
+
+La ĉefa enhavo de Libera Folio ja estas ne komentoj, sed la novaĵ-artikoloj, plej ofte – sed feliĉe ne ĉiam – verkataj de la redakcio. Kvankam la gamo de temoj dum la paso de la jaroj vastiĝis, UEA kiel la ĉefa tutmonda Esperanto-organizaĵo daŭre restas en la centro de la atento. Evidente ankaŭ pri la evoluoj de TEJO ni dum la jaroj ofte artikolis, kaj ne ĉiam favore.
+
+La prezidanto de TEJO, Albert Stalin Garrido, eklegis Liberan Folion jam en la komenco de sia esperantista vivo:
+
+Laŭ mi, Libera Folio , kiel nia ”loka” internacia amaskomunikilo, kontribuas al tio ke nia movado estas normala, vivanta socio kiel ĉiuj aliaj. Ĉu kiel adoleskulo loĝanta en malproksima lando aŭ poste kiel gvidanto de internacia organizo, mi daŭre aprezas kiel Libera Folio strebas al regula liverado de freŝaj movadaj novaĵoj, kiuj atingas preskaŭ ĉiun tavolon de nia movado kaj instigas la komunumon al viglaj diskuto kaj pripenso pri aferoj, kiuj por nia movada evoluo gravas.
+
+Laŭ mi, Libera Folio , kiel nia ”loka” internacia amaskomunikilo, kontribuas al tio ke nia movado estas normala, vivanta socio kiel ĉiuj aliaj. Ĉu kiel adoleskulo loĝanta en malproksima lando aŭ poste kiel gvidanto de internacia organizo, mi daŭre aprezas kiel Libera Folio strebas al regula liverado de freŝaj movadaj novaĵoj, kiuj atingas preskaŭ ĉiun tavolon de nia movado kaj instigas la komunumon al viglaj diskuto kaj pripenso pri aferoj, kiuj por nia movada evoluo gravas.
+
+La vigleco de Libera Folio evidente variis dum diversaj periodoj, kaj la statistikaĵoj de la malsamaj jaroj ne rekte kompareblas, ĉar statistikiloj evoluis kaj oni lernis forfiltri aŭtomatajn vizitojn el la ciferoj.
+
+Ekde decembro 2016, kiam estis lanĉita la nuna versio de Libera Folio , ni publikigis preskaŭ 600 artikolojn, kiuj ricevis 9 415 komentojn. Se kalkuli arkivitajn artikolojn, kiuj ne estis transmetitaj al la nova retejo, dum la du jardekoj en Libera Folio verŝajne aperis proksimume du mil redakciaj tekstoj.
+
+La suma kvanto de paĝomontroj ekde decembro 2016 ĝis nun estis 1,2 milionoj. Dum la lastaj jaroj la kvanto de paĝomontroj daŭre kreskas, kaj pasintjare ili atingis 211 000. Ĉi-jare ĝis nun ni havis proksimume 55 000 paĝomontrojn. La plej multaj vizitantoj dum 2023 venis el Germanio, Nederlando kaj Finnlando.
+
+La mezuma kvanto de paĝomontroj ĉiutage estas ĉirkaŭ 500, sed la cifero facile duobliĝas, kiam aperas interesaj artikoloj. La plej populara artikolo dum 2022 estis La prezidanto de REU volas likvidi Ukrainion , kun proksimume kvar mil paĝomontroj. Ĉi-jare plej populara ĝis nun estis la artikolo Esperantistoj ambaŭflanke de la fronto , kun preskaŭ du mil paĝomontroj.
+
+Barbara Pietrzak, multjara kunlaboranto de la Esperanto-redakcio de Pola Radio kaj eksa estrarano de UEA, trovas transforma la eblecon komenti artikolojn, kiun Libera Folio proponis al la esperantistoj en epoko, kiam sociaj retejoj kiel Facebook ankoraŭ ne ekzistis:
+
+Barbara Pietrzak. Gratulon pro la 20-jariĝo de Libera Folio , kies komenco kongruis kun la reta epoko, tiam malfacile prognozebla. Tuj fariĝis klare, ke la reta komunikado estas pli ĝisdata ol la tiamaj informrimedoj. Libera Folio fariĝis tiel por meza Esperanto-parolanto centro sciiganta pri aktualaj aferoj de la Esperanto-movado, ne malofte tiklaj. Multaj krom esti pasivaj informklientoj komencis engaĝite reagi kompreninte sian subjektan rolon en la movado. Libera Folio transformiĝis en Liberan Forumon. Nun malgraŭ lavanga disfloro de diversspeca informfluo Libera Folio sendube konservas sian primaran informrolon.
+
+Gratulon pro la 20-jariĝo de Libera Folio , kies komenco kongruis kun la reta epoko, tiam malfacile prognozebla. Tuj fariĝis klare, ke la reta komunikado estas pli ĝisdata ol la tiamaj informrimedoj.
+
+Libera Folio fariĝis tiel por meza Esperanto-parolanto centro sciiganta pri aktualaj aferoj de la Esperanto-movado, ne malofte tiklaj. Multaj krom esti pasivaj informklientoj komencis engaĝite reagi kompreninte sian subjektan rolon en la movado. Libera Folio transformiĝis en Liberan Forumon.
+
+Nun malgraŭ lavanga disfloro de diversspeca informfluo Libera Folio sendube konservas sian primaran informrolon.
+
+Nun eblas sekvi Liberan Folion ne nur en la retejo, per retpoŝta abono aŭ la kutimaj komercaj sociaj retejoj, sed ankaŭ en Mastodon kaj en Telegram. En la Telegram-babilejo de Libera Folio partoprenanto kun la nomo Sator Arecu Moon trovis, ke Libera Folio ”stabile informas nin pri tio, ke en la Esperanto-movado ĉio estas daŭre [aĉe]”.
+
+– Mi pensas ke Libera Folio , same kiel aliaj gazetoj pri Esperanto ne plu necesas, ĉar mem Esperanto sin elĉerpis kaj fariĝis simple artikolo en la lernolibroj pri la historio. En la efektiveco, nenia Esperanto plu estas. La mondon gajnis la angla, ĉiuj devas konfesi tion. Ĝi estas internacia lingvo en multaj sferoj, kiuj bezonas internacian komunikadon de civitanoj el diversaj glob-anguloj, inklude komputikon, medicinon, inĝenieradon, diversajn teknologiojn kaj sciencojn.
+
+Ne ĉiuj tamen konsentas pri la fina malvenko – multaj plu legas Liberan Folion . Ankaŭ vi, se vi atingis ĉi tiun linion. Pri kio vi volus legi pli en nia bulteno, kaj kiel ĝi povus iĝi pli utila, laŭ vi?
+
+
+---
+
+# IJK 2024 okazos en Litovio
+
+**Published:** 2023-04-23
+
+**URL:** https://www.liberafolio.org/2023/04/23/ijk-2024-okazos-en-litovio/
+
+**Categories:** TEJO, movado
+
+TEJO elektis Litovion anstataŭ Tanzanio kiel landon por la Internacia Junulara Kongreso 2024. La respondeculoj ne klarigis, kial oni ne volis kongresi en Afriko.
+
+Je la 23-a de aprilo, Albert Stalin Garrido, prezidanto kaj respondeculo por kongresoj de TEJO, faris publikan prezenton pri IJK 2023 kaj 2024. Li prezentis detalojn pri IJK 2023 en Italio, kiu jam havas 150 aliĝintojn. Sed la plej grava novaĵo venis je la fino de la prezento, kiam li anoncis kie okazos IJK 2024.
+
+– Mi havas la plezuron anonci ke la gastigurbo de IJK 2024, la Internacia Junulara Kongreso 2024, estas Šventoji, Litovio.
+
+Dum kelkaj semajnoj okazis vigla debato ene de TEJO pri la loko de IJK . Iuj diris ke IJK jam okazis tro ofte en Eŭropaj landoj kaj volis subteni la movadon en Afriko per kongreso en Tanzanio. Sed aliaj kontraŭis la ideon okazigi IJK kune kun UK, ĉar tiel IJK iĝus kvazaŭ junulara programo de UK.
+
+Garrido diris ke li kredas ke ”ĉiuj vere anticipas” la elekton kaj ke la 80a IJK estos ne nur la unua en Litovio, sed la unua en la balta regiono. Sed li rifuzis klarigi kial oni elektis Litovion anstataŭ Tanzanio:
+
+– Ni ne vere povas malkaŝi la informojn pri la decida procezo. Ni ne vere havas ion kontraŭ Tanzanio, sed simple vidis la kandidatiĝon de Litovio pli taŭga, kompare al Tanzanio. Reprezentanto de Litova Esperanta Junulara Organizo (LEJO) , Severija Marija Banaitytė , faris mallongan respondon al la novaĵo:
+
+– Mi ege ĝojas ke IJK okazos en Litovio. Fakte, la ideo de IJK en Litovio komenciĝis kiel ŝerco, sed plej verŝajne ĝi ne plu estas ŝerco.
+
+Alia estrarano de TEJO, Patricio Iglesias, agnoskis ke okazis granda debato inter la estraranoj pri la decido:
+
+– Estas vero ke estis granda debatado ene de la estraro, sed sendube oni devas agnoski du aferojn. Unue, Litovio havas elstaran sekcion, kiu faris nekredeblan laboron, pasis el preskaŭ nenio ene de monatoj iĝante la koro de TEJO.
+
+– Rilate al la afrika movado, ni ankaŭ forte subtenas la okazigon de UK en Tanzanio. TEJO ege helpos organizi ĝin, estas jam en kontakto kun la afrika komisiono de UEA, kun diversaj landaj asocioj kaj sekcioj de la kontinento kaj eĉ mi pensas ke se ni forte laborus ni povus duobligi la kvanton de landaj sekcioj en Afriko.
+
+John Magessa, komitatano A por Tanzanio, informis al Libera Folio pri sia respondo al la decido:
+
+– Nome de JETO, ni apogas la decidon kaj bondeziras ĉion bonan al Litovio kaj ni invitas ĉiujn al mirinda UK en Tanzanio 2024, en kiu okazos tre bonaj junularaj programoj.
+
+Robert Nielsen
+
+
+---
+
+# La komitato de UEA havas nenion por diri
+
+**Published:** 2023-05-09
+
+**URL:** https://www.liberafolio.org/2023/05/09/la-komitato-de-uea-havas-nenion-por-diri/
+
+**Categories:** UEA, movado
+
+Grandaj defioj staras antaŭ UEA, sed la supera organo de la asocio preskaŭ plene silentiĝis. Ajna diskuto mankas, en aprilo aperis nur manpleno da rutinaj diskonigoj en la komitata retlisto. ”Ĝi atendas, sed ne havos kialon ne aktivi post nelonge”, klarigas la prezidanto de UEA.
+
+Nur dek mesaĝoj aperis en la reta diskutejo de la komitato de UEA dum la pasinta aprilo. Tiu estas malrekordo dum la trijara ekzisto de la nuna retlisto, kiu estis starigita en majo 2020 por anstataŭi la malnovan diskutejon ĉe la servo Yahoo , kiu ĉesis funkcii.
+
+Dum la lastaj tri jaroj aperis mezume 76 meŝaĝoj monate en la komitata diskutejo. En periodoj de vigla diskutado la monata kvanto de mesaĝoj variis inter 100 kaj 150, kaj en aŭgusto 2020 ĝi atingis 195. En tiu tempo estis diskutata interalie raporto pri “financa resanigo” de la asocio.
+
+Nun alvenis tempo por realigi la ĉefan parton de tiu “resanigo”, nome la vendon de la oficeja domo en Nieuwe Binnenweg 176, sed la okazaĵoj ĉirkaŭ la Centra Oficejo ŝajne ĉesis interesi la komitatanojn. Ĉia diskuto en la komitata retlisto ŝrumpis, kaj en marto 2023 atingis la absolutan malrekordon de nur 10 mesaĝoj dum la tuta monato.
+
+Preskaŭ ĉiuj mesaĝoj estis rutinaĵoj sen rekta rilato al la laboro de la komitato. Plej konkreta estis mesaĝo de Renato Corsetti, kiu agitis por “valorigi la 26-an de julio kiel tagon de Esperanto”.
+
+Temas pri la ne aparte realisma ideo, ke Unesko povus deklari la apertagon de la Unua Libro internacia tago de Esperanto.
+
+Al la mesaĝo de Renato Corsetti respondis prezidanto Duncan Charters:
+
+– Ni tre dankas la iniciaton de la laborgrupeto, kun la bela afiŝo. Kiam li estis Estrarano, Trezoro multe laboris por antaŭenigi la ideon peti tiun deklaron de Unesko. François [Lo Jacomo] entuziasme transprenis la laboron ĉe Unesko. Ju pli ni multflanke strebos antaŭe por vidigi la Tagon, des pli ni prepariĝos por la momento kiam ni estos pretaj prezenti la proponon al Unesko.
+
+Renato Corsetti atentigis, ke lia alvoko ne aktivigis la komitatanojn:
+
+– Dankon, Dunkan, pro la subteno. Ni provas helpi François, sed sen la helpo de la komitatanoj kaj de la landaj asocioj ni ne povos atingi multon, sed ni provas.
+
+Tre granda parto el la mesaĝoj en la komitata diskutejo estas verkita de manpleno da personoj. El la entute 2 683 mesaĝoj aperintaj en la retlisto dum la pasintaj tri jaroj, Renato Corsetti verkis 304, Stefan MacGill 298,  Aleks Kadar 190 kaj Fernando Maia 147. Sume tiuj kvar personoj respondecis do pri 35 procentoj el la mesaĝoj.
+
+La mesaĝoj de MacGill grandparte estas EKO-cirkuleroj , kiuj estas amase sendataj al multaj adresoj. Ĝenerale la komunikado en la komitata listo grandparte estas unudirekta. Malofte okazas tie diskuto pri temoj, pri kiuj disputas la cetera esperantistaro.
+
+Tipa ekzemplo estas la decido de la estraro de UEA kongresi en Tanzanio. Nek antaŭ la decido, nek post ĝi aperis en la komitata listo ajna diskuto pri la meritoj kaj malmeritoj de la kongreslando, kie samseksemuloj estas konsiderataj krimuloj.
+
+La decido pri la kongreslando estis diskonigita en EKO-cirkulero kun la aldona atentigo: “Tutpaĝa bilda prezento pri la bestoj en Tanzanio en la PDF. Indas rigardi!”
+
+Pri la ĉefaj nunaj defioj de UEA – la sorto de la Centra Oficejo, la biblioteko, la libroservo kaj la baldaŭ dekjariĝonta reteja projekto – neniu vorto aperis dum longa tempo. La lasta tiutema mesaĝo estis sendita de la estraro la 8-an de januaro 2023, reage al demandoj senditaj de Libera Folio .
+
+Tiam eblis ekscii, ke “la Estraro serĉadas” novan hejmon por la biblioteko Hector Hodler, la libroservo “seninterrompe funkcios”, ĉar la libroservisto Ionel Oneţ “konsentis deĵori kelkajn pliajn monatojn”. Pri la sorto de la domo en Nieuwe Binnenweg la estraro povis informi nur, ke ĝi ja estas vendata, sed ne estis trovita aĉetanto.
+
+Tiuj mankohavaj informoj vekis nenian reagon ĉe la komitato, kaj post tiam nenio estis dirita en la komitata listo pri tiuj gravaj temoj.
+
+Eĉ pli forgesita estas la reteja renovigo, por kiu UEA en decembro 2022 decidis buĝeti pliajn 18 000 eŭrojn. Pri tiu temo ŝajne nenio entute estis dirita en la komitataj diskutoj post junio 2022, kiam Martin Schäffer raportis , ke “la laboroj multe progresis”, sed ke TEJO ricevos plian pagon nur kiam la fina rezulto estos liverita laŭ la kontrakto. Tiu informo vokis nenian reagon.
+
+Eblus konkludi, ke la supera organo de UEA simple ne interesiĝas pri la defioj kiujn la asocio alfrontas. Tiel tamen ne estas, laŭ Duncan Charters, prezidanto de UEA:
+
+– Laŭ mia perspektivo, okazas multe da preparlaboro pri kiu la Komitato certe aktive engaĝiĝos en la venontaj unu-du monatoj prepare al la kunsidoj de la UK. Efektive la gravaj temoj reliefiĝos interalie en la strategia planado pri kiu mi kaj multaj aliaj preparadis la vojon. Ni preparas la enketilon por sondi la opiniojn de ĉiuj esperantistoj tra la mondo pri niaj vojoj al la estonteco. Tio estas konata. Se la Komitato “ripozas” aŭ ne havas specifajn plendojn nun, ĝi atendas, sed ne havos kialon ne aktivi post nelonge! Tamen pri difinitaj temoj laboras neformalaj laborgrupoj. Ankaŭ la rezultoj de tio montriĝos post nelonge.
+
+En majo ĝis nun aperis nur unu mesaĝo en la komitata diskutejo. Ĝi estas la rutina EKO-komuniko, dissendita de Stefan MacGill.
+
+
+---
+
+# Kial malgranda frato iĝis sibo kaj ri?
+
+**Published:** 2023-05-16
+
+**URL:** https://www.liberafolio.org/2023/05/16/kial-malgranda-frato-igis-sibo-kaj-ri/
+
+**Categories:** kulturo, movado
+
+Esperanto-Asocio de Britio lanĉas samtempe du versiojn de unu libro, la malutopiaĵo Little Brother, verkita de Cory Doctorow. La du tradukoj de Edmund Grimley Evans nomiĝas Malgranda frato kaj Malgranda sibo . Kion tio signifas kaj kial? Tim Owen klarigas.
+
+Ĉio komenciĝis en la reto. La originalan tekston verkis Cory Doctorow, kaj li donis al ĝi rajtigilon de Krea Komunaĵo. Laŭ la vortoj de Edmundo Grimley Evans, tio “instigis al tia eksperimentado”.
+
+Edmundo do tradukis la tekston seks-neŭtrale, kaj enretigis ĝin, sub la tiama titolo Malgranda gefrato . Aperis la unua ĉapitro la 24-an de januaro 2020; de la 7-a de februaro ĝis la 10-a de aprilo publikiĝis du novaj ĉapitroj ĉiuvendrede.
+
+Tiu ĉi reta versio uzis ri anstataŭ li kaj ŝi , kaj forĵetis tradician seksisman lingvaĵon. Ĝi havis ankaŭ lertaĵon aldonitan de Edmundo: per formularo eblis agordi la lingvaĵon laŭ sia prefero. Senŝanĝe la teksto uzis ri anstataŭ la tradiciaj li kaj ŝi ; sibo , sibiĉo kaj sibino anstataŭ frato kaj fratino ; kaj simile.
+
+La formularo proponis ankaŭ plurajn aliaj paradigmojn, elekteblajn per butono. La agordaĵoj titoloĝis: Rekomendite (uzo de ri kaj neologismoj); Seksisme (do, tradicie); Klasika-Riisme; Ge-Riisme; J-Riisme; E-Riisme . Kaj se neniu el tiuj kontentigis, eblis proponi siajn proprajn formojn por la diversaj substantivoj, kiuj aperas en la teksto.
+
+Elektinte uzi ri anstataŭ li aŭ ŝi , Edmundo devis poste decidi, kiujn neologismojn proponi. Li raportas en la antaŭparolo de Malgranda sibo , ke li “kalkulas 16 komunajn vortojn, kiuj en tradicia lingvaĵo malsimetrie kaj kontraŭlogike indikas iĉon, kiam ili aperas sen sufikso, sed inon en simila rilato, se oni aldonas tiun sufikson”.
+
+La sekvajn, post multa cerbumado, li enkondukis en la teksto de Malgranda sibo: avilo (avo); pamo (patro), onco (onklo); sibo (frato), kuzeno (kuzo); fizo (filo); eŝo (edzo); ĉiko (knabo); sioro (sinjoro). Bubo restis senŝanĝe, sed estas uzata seksneŭtrale.
+
+Tio estis projekto pure persona de Edmundo, kaj li prilaboris ĝin tutsole. Poste venis la ideo eldoni la libron du-versie: mi ne ĝuste memoras, kiu inter ni du proponis tion al la alia. Ni kontraktis kun la agento, kaj ĵus lanĉis la librojn, kiujn eblas aĉeti malmultekoste ĉe diversaj retbutikoj kiel Amazono.
+
+En la nuna epoko reagoj plej ofte venas per simpla alklako, ne per komento. Plej multaj venis en la Facebook-grupo (Duolingo and Other) Esperanto Learners: el 65 nur unu estas negativa.
+
+Kiam mi komencis respondi al Libera Folio, ankoraŭ ne estis negativa komento, sed intertempe aperis unu: “😃 …kiel kompliki facilan lingvon.”
+
+Mi supozas, ke al pluraj aliaj homoj ne plaĉas nia kreo de Malgranda sibo , sed ili preferas ne respondi, ĉu pro ĝentileco, ĉu por eviti lavangon de kontraŭ-komentoj.
+
+La rakontoj estas tute identaj, krom la ŝanĝoj por seks-neŭtraligi la tekston, sume 2529. El tiuj, 2179 venis per anstataŭigado de li kaj ŝi (kaj derivaĵoj) per ri . Kelkaj substantivoj estis relative oftaj (116 derivaĵoj de PATR; 83 de SINJOR), kaj aliaj apenaŭaj (2 mencioj de ONKL; 1 de KUZ).
+
+Mi kunportis al la Brita Kongreso en la fino de aprilo kelkajn ekzemplerojn: la Fratalon (fratan batalon) venkis Malgranda sibo je 7 ekzempleroj kontraŭ 4. (La vera gajninto, tamen, estis nia tute nova La murdo de Roger Ackroyd , lanĉita dum la kongreso, ĉar la tradukinto, Hanso Becklin, estis nia gastpreleganto: 26 kongresanoj foriris kun ekzemplero.)
+
+En la du tagoj post la oficiala lanĉo vendiĝis 10 ekzempleroj de Malgranda frato kontraŭ 7 de ĝia… nu, sibo, mi supozas.
+
+Mi supozas, ke Malgranda sibo montriĝos pli populara: laŭ mia scio, ĝi estas la sola libro verkita tiel, kaj tial alloga al homoj, kiuj interesiĝas pri tiuj temoj.
+
+Eblas aĉeti ambaŭ librojn ĉe Amazono kaj aliaj tiaj retbutikoj. Specimenajn eltiraĵojn disponigas EAB:
+
+Malgranda frato
+
+Malgranda sibo
+
+Antaŭparolo de Malgranda sibo
+
+La tutan gamon de eldonaĵoj de EAB troveblan ĉe Amazono vidu ĉe esperanto.org.uk/amazon .
+
+Tim Owen
+
+
+---
+
+# Kiu stimulu la asocion?
+
+**Published:** 2023-05-21
+
+**URL:** https://www.liberafolio.org/2023/05/21/kiu-stimulu-la-asocion/
+
+**Categories:** vidpunkto
+
+La komitato de UEA dum la lastaj jaroj iĝis ĉiam pli pasiva. La diskutoj estas letargiaj kaj preskaŭ ĉiuj proponoj de la estraro estas aŭtomate akceptataj. UEA nun spertas krizon de identeco, skribas komitatano Hans Becklin en vidpunkta artikolo. ”Per tia drivado oni malfacile aligas novajn membrojn”, li argumentas.
+
+Lastatempe en Libera Folio aperis artikolo pri manko de aktiveco en la Komitato de UEA. Mi opinias, ke tion ĉi kaŭzas du malsamaj tendencoj en la asocio — koncentrismo kaj drivado. Ambaŭ tendencoj igas la asocion malfacile stimulebla.
+
+Ne estu surprizo, ke UEA en 2023 spertas krizon de identeco. Ĝi projektis por si galopantan agadon en la reto, sen la brido de granda stabo, fizika oficejo, kaj kun administraj elspezoj superantaj la enspezojn. Tiun estontecon prezentis antaŭa estraro antaŭ 2017, ne sen iom da kontraŭstarado fare de la Komitato. Grandparte, tamen, la kritikoj estingiĝis fronte al la sentata minaco de daŭrigo laŭ la samaj kondiĉoj.
+
+Tiel estiĝis, ke jaron post jaro, la Komitato ricevas de la estraro planojn por renovigo kaj, pripensinte ilin, akceptas la novan kurson. Oni akceptis la redukton de la stabo, la fordonacon de la Biblioteko, la eksterigadon de la Kongresa Fako, kaj la forvendon de la ĉefa sidejo. Ne estas klare al tiu ĉi komitatano, kion oni devos malmunti plu antaŭ ol instali la novaĵojn, sed ŝajne pliaj paŝoj necesos, laŭ la raportoj de la estraro.
+
+Rimarku la direkton. La estraro (kunlabore kun la Ĝenerala Direktoro kaj la Komisiono pri Financoj) proponas ion, kaj la komitato diskutas ĝin antaŭ ol voĉdonigi la proponon. Eĉ se tiu ĉi tendenco delonge ekzistas en UEA, ĝi ne estas nepre antaŭvidata en ĝia statuto. “Al la Komitato apartenas ĉiuj kompetentecoj en la Asocio, kiuj ne estas rezervitaj, laŭ la leĝoj aŭ la Statuto, al aliaj instancoj.”
+
+La laboron faru la estraro laŭ la ĝenerala agado difinita de la Komitato. La afero ja funkcias tiel en la nuno – sed kun la antaŭa paŝo, ke malmultaj proponoj pri la estonteco venas al la Komitato sen la antaŭa aprobo de la estraro. Reage al tiuj estraraj proponoj, konkurantaj rezolucioj aperas, sed ilin markas konservemo, neado al novo favore al nuno.
+
+Mi demandas min, ĉu la estraro de UEA tro kondukas la asocion, inkluzive ĝian Komitaton. Ĉu ni tro multe koncentris la povon de la organizaĵo en unu organon el troŝarĝitaj volontuloj? Kio okazas, kiam tiu koncentrita povo ĉesas povi?
+
+Pensinstiga ekzemplo estas la reteja projekto, kerna parto de la estonteco antaŭvidita de pli ol jardeko. Ĝi progresas, sed limake – nekontentige. Mi ne dubas, ke parto de la malrapida progresado fontas el malbona komunikado inter la estraroj de UEA kaj TEJO, kio estas bedaŭrinda. Sed samtempe mi scias, ke parte ĝia prokrastado fontas el jardekoj da subinvestado en la sistemojn de la asocio, kiujn unuecigi estas necese antaŭ ol povi ion ajn aŭtomatigi. Aŭtomatigado estas esenca por provizi la membrojn per la samaj servoj ĝuitaj dum jardekoj sen stabo same granda, sed atingi ĝin estas turmente malfacile.
+
+Kelkaj povuloj en UEA ŝajne ne volas la retejon plu (ne disponigi por io rimedojn estas klasika maniero ĝin fini silente; la Jarlibro ripozu en paco), kvankam la Komitato en malofta kontraŭstaro subtenas daŭran investadon en ĝin – ne nur por ne perdi jarojn da laboro kaj milojn da eŭroj, sed ankaŭ por ne perdi la retejan strategion fiksitan antaŭ dek jaroj en Rejkjaviko.
+
+La Komitato petis ĝisdatigon – kaj eventuale eĉ montron de la sistemoj – en sia lasta kunveno. Responde al tio, mi kredas, ke la Estraro ne “informadas la komitatanojn de tempo al tempo pri la evoluo de la laboro”, almenaŭ ne same multe, kiel mi ŝatus. Tio ne devus esti mortiga bato, sed la nuna Komitato scias nur reagi kaj respondi. UEA eble tro koncentris sian povon en la estraron – kaj nun, dresite tiel, la Komitato ne scias kiel gvidi la asocion eĉ altnivele, kiel ĝi devas.
+
+Ne miskomprenu min – koncentrismo povas esti bona fenomeno. Fakte, UEA tra sia historio ofte estis malrapidigita de mankanta ekzekutivo – aparte en la epoko de poŝta komunikado, kiam eĉ la estraranoj devis plurajn monatojn korespondi kaj plani antaŭ ol fari ion ajn. La Centra Oficejo tiam rolis esence por vivantigi la asocion – por pansi la mankon de altnivela strategio per kompetenta taktiko en la plenumado de servoj kaj propagandado.
+
+Sed UEA ne plu havas tian Centran Oficejon, kian ĝi havis de post la dua mondmilito ĝis la komenco de la nuna jarmilo. Grandiozaj kaj multekostaj lobiadoj ne plu estas por rekonigi Esperanton internacie (kaj por kunigi en unu asocion plej diversajn homojn ĉirkaŭ unu celo). UEA-kontoj, kvankam foje movade utilaj, ne estas same nemalhaveblaj en epoko de bitbankoj ĝirantaj kontraŭ kurtaĝo minimuma monon de Roterdamo al Rio-de-Ĵanejro kaj reen. Delegitojn oni malofte konsultas aŭ eĉ pripensas konsulti, ne nur pro sociaj ŝanĝoj sed ankaŭ pro la malaperinta jarlibro.
+
+Restas en la kripto kelkaj malmumioj. La revuo Esperanto aperas akurate kaj tutkolore, sed foje enhavas nur unu aŭ du aferojn antaŭe ne diskonigitajn alimaniere (ne eblus solvi tiun ĉi problemon sen grandaj klopodoj ne publikigi asociajn novaĵojn ĝis post la apero de la revuo, kio estus troa kompliko kaj prioritatigo de la malĝusta informilo).
+
+Libroservo daŭre estas por multaj necesa –kvankam la bezono legi hejme por ekzerciĝi Esperante ne plu encentras, kiam homoj je ĉiu horo babilas Esperante en diversaj Telegramgrupoj kaj Zoom-ĉambroj. Simile, Universalaj Kongresoj fariĝas por multaj eĉ pli granda lukso, ĉar ili ne plu monopolas fronte al vere internaciaj eventoj en la reto.
+
+Mi nomas tiun ĉi fenomenon drivado. UEA ne prioritatigas aferojn, sed ŝajne pretas plu konservi kaj eĉ modernigi aferojn, kiuj pli-malpli funkcias. Mi konsentas, ke tiel oni povas kontentigi la jamajn membrojn, kiuj jam sidas sur la floso. Eble ili eĉ pretas mone subteni la karan asocion per io aldona al la jarkotizo. Sed per tia drivado oni malfacile aligas novajn membrojn; el la bordo estas evidente, ke la fluo ĝin puŝas. Oni demandas: kial UEA ekzistas? Kien ĝi iras? Per kio ĝi provizas siajn membrojn?
+
+Laŭ la nuna praktiko, la estraro devas respondi al tiuj ĉi demandoj kaj ellabori praktikan planon. Eĉ se la komitato volus helpi, en la praktiko ĝi ne kapablas tiel altnivele sen unue ekzerciĝi pri aferoj signife malpli gravaj (en komisionoj kaj laborgrupoj, ekzemple). Ni akceptu la koncentritan povon kaj fidu la estraron; ĝi certe plej bone komprenas la dinamikon, eĉ se neperfekte, por proponi planon. Tiam la komitato ĝin ekzamenos kaj modifos laŭ sia kompetento.
+
+Plaĉus al mi vidi maksimume tri prioritatojn, el kiuj unu nepre estu la pligrandigo de la membraro de la asocio. Por solvi tion, estos necese ĉesigi la drivadon. Eĉ se homoj volas vidi pli da ekstera agado por antaŭenigi Esperanton, malmultaj aliĝos nur por subteni tion – oni spertas la ekonomike konatan fenomenon parazitismo: lasi la aliajn pagi por io dezirata. Tion UEA bone konas – ĝia celpubliko estu unuavice jamaj Esperantistoj, kiuj certe nombre superas la membraron de la asocio.
+
+Hans Becklin
+
+
+---
+
+# Ĉiam malpli da libroj aperas en Esperanto
+
+**Published:** 2023-05-23
+
+**URL:** https://www.liberafolio.org/2023/05/23/ciam-malpli-da-libroj-aperas-en-esperanto/
+
+**Categories:** kulturo
+
+De multaj jaroj Aleksandr Korĵenkov, la redaktoro de La Ondo de Esperanto , konstante raportas pri la statistikaĵoj de la libroeldonado en Esperanto. Ni petis lin rakonti pri siaj observoj. La konkludoj ne estas nur malesperigaj. ”La papera merkato ĉiam restos konsiderinde granda, ja la moderna tekniko ebligas moderpreze eldoni eĉ etkvante”, li diras.
+
+Libera Folio: Vi de multaj jaroj sekvas la statistikon de libroeldonado en Esperantujo. Kial vi opinias tion grava indiko?
+
+Aleksandr Korĵenkov: – Esperantujo estas malfacile mezurebla, kaj iuj el niaj entuziasmuloj preferas ne faktojn, sed fantaziojn pri miloj kaj milionoj, pro tio mi ĉiam atentis tiujn nemultajn objektivajn nombrojn, kiuj estas je publika dispono: la membronombrojn de UEA kaj asocioj, la aliĝintojn al UK kaj aliaj kongresoj, la eldonkvantojn de libroj kaj gazetoj kaj tiel plu. Inter tiuj mezureblaĵoj estis ankaŭ la ĉiujara statistiko de la Esperanta libroproduktado, kiun Vilmos Benczik kompilis por sia revuo Hungara Vivo surbaze de la rubriko ”Laste aperis” en la revuo Esperanto .
+
+– Pro la ĉeso de Hungara Vivo en 1990 la evoluo de nia libromerkato ne plu estis facile observebla, kaj mi decidis daŭrigi la projekton de Vilmos en La Ondo de Esperanto , refondita en 1991. De tiam niaj abonantoj, kaj poste ankaŭ la legantoj de nia novaĵretejo, povas esti informitaj pri ĉi tiu temo.
+
+Ĉu ”Laste aperis” estas fidinda bazo por tia statistiko?
+
+– Neniu absolute fidinda bazo ekzistas, ĉar en Esperantujo mankas institucio ricevanta “devigan ekzempleron” de ĉiu nova libro (nun ankaŭ je ŝtata nivelo tio ne bone funkcias), kaj dum la jaro en ”Laste aperis” (LA) estas registrataj ĉiuj surpapere aperintaj libroj, kiujn la libroservo de UEA ekvendis en la aktuala jaro. Nature, tia statistiko estas facile kritikebla, kaj dum tri jardekoj mi aperigas komence de miaj statistikaj revuoj proksimume tiun klarigon, kiun vi tuj legos, nome:
+
+– Unue, la libroservo de UEA vendas ne ĉiun novan Esperanto-libron, kaj en LA ne ĉiam aperas, ekzemple, lerniloj eldonitaj por enlandaj bezonoj (ekzemple, lernolibroj por ĉinoj) kaj etkvante eldonitaj broŝuroj, kiujn la aŭtoroj disvendas kaj disdonacas en siaj kluboj kaj renkontiĝoj. Same mankas en ”Laste aperis” kongreslibroj, programbroŝuroj kaj jarlibroj, kiuj estas eldonataj ne por vendado en libroservoj, sed por disdono al respektivaj kongresanoj kaj asocianoj. Ekzemple, la ĉefa libronovaĵo de l’ pasinta jaro – la duvoluma plena poezia verkaro de Marjorie Boulton – ne estas aĉetebla en la Roterdama libroservo, ĝi mankas en LA, kaj do ĝi ne estis konsiderita en mia statistiko por 2022, kaj EAB okupas en la statistiko por 2022 malpli altan lokon ol ĝi devus okupi.
+
+– Due, en LA estas registrataj pluraj libroj, eldonitaj antaŭ jaroj, sed ekvenditaj de UEA en la koncerna jaro, ekzemple, ĉar la eldoninto forgesis sendi specimenon al Roterdamo. Tio povas doni misan bildon pri la revuata jaro, sed la resuma statistiko por pluraj jaroj glatigas la fluktuadon kaj fidinde vidigas la ĉefajn tendencojn en nia eldonado.
+
+– Trie, ekster la statistiko restas la bitlibroj, kiujn oni ofertas en la virtuala mondo sen zorgi pri papera eldono por ne pagi la kostojn de presado kaj ekspedo. Ekzemple, dum la tri lastaj jaroj ni eldonis nur unu paperan libron (” Enkonduko en la morfologion de Esperanto ” de Ryszard Rokicki), sed ni produktis plurajn bitlibrojn kaj 12 ĉiusezonajn almanakojn (pli ol 500 paĝoj ĉiujare).
+
+– Sed la vivo estas tia, kia ĝi estas, kaj dume mankas pli fidinda statistika bazo ol la neperfekta LA, do mi uzas la okazon por esprimi dankon al Ionel Oneț pro la daŭra prizorgado de ĉi tiu rubriko.
+
+Kiajn tendencojn en la evoluo vi trovis plej rimarkindaj dum la lastaj jaroj?
+
+– Mi ne bone scias, kiuj jaroj estas la lastaj. Se temas pri la lastaj 32 jaroj, dum kiuj mi okupiĝas pri ĉi tiu projekto, du tendencoj estas klare videblaj:
+
+– Unue, la nombro de libroj klare malkreskas: dum la lasta jardeko de la 20-a jarcento averaĝe aperis 210 libroj jare, dum la unua jardeko de la 21-a jarcento la averaĝo estis 191 libroj, kaj en la jardeko 2011–20 – nur 146 libroj jare, kaj dum la du komencaj jaroj de la nuna jardeko – nur 103.
+
+– Due, la evoluo ne samas en ĉiuj ĝenroj. Plej reduktiĝis la nombro de la libroj sciencaj (sen sociaj sciencoj kaj lingvistiko) kaj teknikaj. Vidu mem: 182 libroj en 1991–2000, 93 en 2001–10, kaj nur 33 en 2011–20. La falo de ĉirkaŭ 18 libroj jare ĝis nur tri estas preskaŭ katastrofa. La beletro reduktiĝas malpli draste, kaj la nombro de libroj pri politiko, historio, filozofio kaj socio eĉ kresketis, ĉefe, danke al la entreprenemo de Vilhelmo Lutermano.
+
+Kiuj estas la plej aktivaj eldonejoj en la lasta tempo?
+
+– Ha, jes, mi ja ĵus menciis Lutermanon. Dum la 13-jara periodo 2008-2020 lia eldonejo MAS (Monda Asembleo Socia) 11 fojojn estis la plej aktiva Esperanto-eldonejo en la mondo pro amasa eldonado de politikaj kaj sociaj verkoj de maldekstraj aŭtoroj, foje ankaŭ de beletro. Anstataŭ nomi pliajn eldonejojn, mi kopias la koncernan tabelon el mia resumo por 2022.
+
+Kiuj iam aktivaj eldonejoj malaperis aŭ iĝis malpli aktivaj? Kiuj novaj eldonejoj aperis?
+
+– Plej multaj Esperantaj eldonejoj estas privataj, ili povas malaperi, se la fondinto forpasis, maljuniĝis, perdis intereson pri la eldonado (aŭ pri Esperanto). Pro la unua kaŭzo malaperis, ekzemple, la elstaraj eldonejoj Edition Iltis (R. Haupenthal), Ludovikito (Itô Kanzi), ankaŭ ”Arizona Stelo” (E. Grobe) kaj W. Nüesch, pro la dua lastatempe malaktiviĝis MAS (V. Lutermano) kaj ”La Blanchetière” (A. Cherpillod), kaj pro la tria ”Pro Esperanto” (H. Mayer), KLEKS (G. Handzlik) k. a.
+
+– Cetere, MAS ja estas relative nova eldonejo, ĝi estis fondita en 2008 kaj ĝis 2021 eldonis 219 libr(et)ojn. Al la novuloj apartenas ankaŭ la elstara ”Mondial”, inter kies 161 eldonaĵoj LA registris pli ol 40 numerojn de ”Beletra Almanako”. En la nuna jarcento ekfunkciis ankaŭ ”Espero” (Slovakio), ”Horizonto” (Japanio) kaj ”Libera” (Belgio) kiu dum sia nur kvinjara aktivado surmerkatigis tridekon da paperaj libroj kaj plurajn bitlibrojn. Atentindas la eldonado en Pollando, kie per kunlaboro de Bjalistoka Esperanto-Societo, ”Ars Libri” kaj ”Libro-Mondo” aperas multaj interesaj libroj.
+
+Ĉu nuntempaj eldonejoj de Esperantaj-libroj estas pli aŭ malpli aktivaj ol iliaj antaŭuloj?
+
+– Nun nemultekosta komputilo kaj kelkaj programoj sufiĉas por komposti, redakti kaj enpaĝigi libron, sendi ĝin rete al provleganto, korekti kaj retsendi al presejo, kiu povas presi eĉ malgrandan stokon kontraŭ modera prezo. Sed malgraŭ tiu facileco neniu nuna Esperanto-eldonejo superas la legendan Parizan eldonejon ”Hachette”, kiu antaŭ pli ol cent jaroj dum 14 jaroj (1901–14) eldonis ĉirkaŭ 350 librojn – averaĝe 25 librojn ĉiujare.
+
+Kiuj specoj de libroj estas plej aktive eldonataj, ĉu tradukoj aŭ originalaĵoj, ĉu beletraĵoj aŭ fakaj libroj?
+
+– Preskaŭ ĉiam plej multas libroj originale verkitaj en Esperanto, sed beletraj tradukoj estas pli multaj ol la originalaj beletraĵoj. Vidu la tabelon kaj juĝu mem.
+
+Kiaj estas viaj atendoj pri la plua evoluo de la Esperanta libroeldonado kaj libromerkato en la proksimaj jaroj?
+
+– Mi ne estas prognozisto, estas mi esperantisto. Sed mi ja devas iel respondi. Unue, mi respondas formale: LA estas nur ofertolisto de la libroservo de UEA, troviĝanta en la Centra Oficejo de UEA, kiu probable estos fermita. Mi ne scias, ĉu kaj kiel la libroservo poste funkcios – onidire E@I reprenos tiun taskon, same kiel ĝi reprenis la kongresorganizadon.
+
+– Due, se temas ne pri mia statistikado, sed pri la eldonado mem, mi supozas, ke dum kelkaj proksimaj jaroj la paperlibra eldonado daŭros proksimume je la nuna nivelo, kaj la bitlibra eldonado kresketos. Kiel statistikanto mi konstatis, ke la paperaj libroj iĝas pli ampleksaj, kaj ke broŝuroj proporcie okupas malpli grandan sektoron ol antaŭe – ja nun ofte sufiĉas bita publikado en blogo, tuj legebla por interesatoj anstataŭ presita broŝuro kies sendokosto superas la produktokoston.
+
+– La papera merkato ĉiam restos konsiderinde granda, ja la moderna tekniko ebligas moderpreze eldoni eĉ etkvante, kaj ni havas sufiĉe da entuziasmuloj, kiuj mem eldonos siajn proprajn verkojn, nomante sin verkistoj kaj eldonistoj, sen pensi pri la debito kaj stokado.
+
+Kiujn kvin librojn el tiuj, kiuj laste aperis, vi ŝatus ricevi por via biblioteko?
+
+– Vi ja scias, ke oni nomas min manietulo pro tio, ke mi dum tri jardekoj kalkuladas librojn, kiujn mi neniam vidis, nek vidos. Tio estas trafa difino de mia statistika projekto. Sed kredu, ke plurajn el tiuj libroj mi ne nur vidis, sed ankaŭ legis, kaj kelkajn eĉ studis.
+
+– Feliĉe, ni jam havas en BibLO (Biblioteko de La Ondo) eble la plej legindan libron, kiu laste aperis, kvankam ne ”Laste aperis” – la jam menciitan poemaron Unu animo homa de Boulton, sed se temas pri kelkaj lastaj jaroj, mi devas konsulti mian dezirliston kaj redukti ĝin de trideko da titoloj al kvino, kombinante la utilon kaj plezuron.
+
+– Por nia historiesplora kaj enciklopedia laboro ni ŝatus, ke je nia dispono estu Historio de la Akademio de Esperanto de Carlo Minnaja kaj En la mondon venis nova lingvo (Festlibro por la 75-jariĝo de Ulrich Lins). Kaj por trankvila legado mi elektus du poemarojn, Rev-ene de Miguel Fernández kaj Konflikto de la Epokoj de Edwin de Kock. Ĉu ion tradukitan? Nu, eble, Vivo de homo de Giuseppe Ungaretti, kiun tradukis Nicolino Rossi.
+
+Pli pri la temo en La Ondo de Esperanto : Ekzakte 100 libroj en 2022
+
+
+---
+
+# TEJO planas elspezi pli da mono
+
+**Published:** 2023-05-27
+
+**URL:** https://www.liberafolio.org/2023/05/27/tejo-planas-elspezi-pli-da-mono/
+
+**Categories:** TEJO
+
+La kvaran fojon en du jaroj, la estraro de TEJO prezentas buĝeton al la komitato. Pro la ricevo de la administra subvencio, oni proponas elspezi pli da mono kaj redungi du oficistojn.
+
+Pro la malcerteco rilate al la administra subvencio, la buĝeto proponita de la estraro de TEJO en februaro havis du alternativojn, depende de tio, ĉu oni ricevos la subvencion aŭ ne.
+
+Laŭ la ”bona scenaro” TEJO havus grandan profiton de 68 708 eŭroj, sed laŭ la ”malbona scenaro” estus deficito de 30 470 eŭroj. Por ŝpari monon, TEJO maldungis siajn komunikiston kaj eksterrilatiston.
+
+Sed tri semajnojn post kiam la komitato akceptis la buĝeton, TEJO estis akceptita por ricevi 125 000 eŭrojn de la Eŭropa Unio. Pro tio, oni nun kreas novan buĝeton responde al la nova financa stato de TEJO.
+
+La plej grava ŝanĝo en la buĝeto estas ke TEJO redungos komunikiston kaj eksterrilatiston, sed tiuj postenoj estos plentempaj anstataŭ duontempaj kiel pasintjare. TEJO jam komencis varbi por la roloj (kiuj pagos preskaŭ du mil eŭrojn monate) malgraŭ ke la komitato ankoraŭ ne akceptis la proponon por pagi ilin.
+
+La aliaj ŝanĝoj estas ke oni uzos 2 000 pliajn eŭrojn por pagi la vojaĝkostojn de kelkaj partoprenantoj de IJK (la sumo nun estos 7 000 eŭroj). Oni pagos 2 000 eŭrojn por organizi eventojn ekster Eŭropo. Krome oni elspezos 200 eŭrojn por kampajno kiu celas starigi junularan movadon en Latvio dum la Baltaj Esperanto-Tagoj.
+
+Aldone, 560 eŭroj estos uzitaj por pagi duonon de la kostoj de kvin homoj por KER-ekzamenoj je niveloj C1 kaj kvin homoj je nivelo C2. 1 000 eŭroj estos uzitaj por krei novajn t-ĉemizojn kaj pinglojn por vendi.
+
+Oni krome elspezos 3 980 eŭrojn por ”Erasmus+ Vojaĝkonkurso”, sed ne estas klare pri kio tio temas, krom ke oni uzos la monon por ”investo en filmiloj por krei videoserion en Esperanto”.
+
+La prezidanto de TEJO, Albert Stalin Garrido, agnoskis ke atendi 8 000 eŭrojn en donacoj al TEJO estas ”tro alta, nerealisma sumo”, kaj malaltigis ĝin al nur 1 000 eŭroj.
+
+Oni elspezos 400 eŭrojn por varbiloj por la junaj amikoj de Esperanto, ”membroj” de TEJO kiuj ĝis nun neniam estis reprezentitaj en la komitato aŭ eĉ kontaktitaj ekde sia kreo en 2016.
+
+Oni malfermis la diskutan fazon, sed post tri tagoj, nur unu komento pri la buĝeta propono venis de la komitato.
+
+Robert Nielsen
+
+
+---
+
+# UEA fordonis sian bibliotekon al Varsovio
+
+**Published:** 2023-05-31
+
+**URL:** https://www.liberafolio.org/2023/05/31/uea-fordonis-sian-bibliotekon-al-varsovio/
+
+**Categories:** kulturo
+
+La ĉefa parto de la biblioteko Hodler de UEA nun formale troviĝas en la posedo de la Nacia Biblioteko de Pollando en Varsovio. Pli frue la arkivo de UEA kaj parto de la biblioteko estis transdonitaj al Aŭstria Nacia Biblioteko en Vieno.
+
+Kun ĉeesto de la pola vicĉefministro kaj ministro pri kulturo kaj nacia heradaĵo Piotr Gliński, en la sidejo de la Nacia Biblioteko de Pollando lunde okazis ceremonio pri transdono de la biblioteka kolekto de UEA.
+
+Al Varsovio alvenis pli ol 7 tunoj da libroj, revuoj, poŝtkartoj kaj aliaj arkivaĵoj, kiuj dokumentas la historion de Esperanto ekde ĝia komenco ĝis hodiaŭ.
+
+Inaŭgurante la solenaĵon, doktoro Tomasz Makowski, direktoro de la Nacia Biblioteko, rimarkigis, ke temas pri unu el la plej grandaj kaj kompletaj kolektoj pri la monda historio de la Esperanto-movado.
+
+Aliflanke li aldonis, ke por poloj ĝi estas parto de la propra historio kaj heredaĵo, ĉar temas pri lingvo, kiu sian komencon havas ĉi tie.
+
+La direktoro rakontis pri loĝistikaj defioj, kiujn alfrontis laborantoj de la Nacia Biblioteko kaj volontuloj de UEA dum la efektivigado de pakado kaj transporto. La Biblioteko planas unuavice katalogi la kolekton kaj, kiam tio pretos, eldoni papere la katalogon.
+
+Aldone, la biblioteko intencas ciferecigi la materialojn kaj enlistigi la Hodler-bibliotekon al la Memoro de la Mondo de Unesko. Por helpi realigi ĉi tiujn celojn, la Biblioteko dungis spertan Esperanto-parolantan kuratoron, Gabriela Skonieczna, kiu laboros pri la kolekto.
+
+Ĉeestante la ceremonion, vicĉefministro Piotr Gliński atentigis pri la unikeco kaj aparta valoro de la kolekto, kiu, danke al ĉi tiu donaco, trafas al la pola Nacia Biblioteko.
+
+– La Nacia Biblioteko ekde hodiaŭ fariĝas centro pri dokumentado de Esperanto, diris la ministro.
+
+Li esprimis la deziron, ke la unika kolekto, sub kompetenta prizorgo de la Nacia Biblioteko, estu plene uzata ne nur de esploristoj kaj specialistoj, sed ankaŭ de amantoj kaj kontinuantoj de la ideo de Esperanto.
+
+Pri la ideo de Esperanto, viĉefministro Gliński rimarkigis, ke ĝi jam estas parto de la pola nacia heradaĵo.
+
+La prezidanto de Universala Esperanto-Asocio, Duncan Charters, esprimis ĝojon pri tio, ke la kolekto revenas al la fonto ‒ al la loko, kie Esperanto naskiĝis.
+
+– Gravas, ke Esperanto estas parto de heredaĵo ne nur nacia de poloj, sed ankaŭ internacia kultura heredaĵo, li atentigis.
+
+– Universala Esperanto-Asocio ĝojas, ke ĝi trovis bonan hejmon por ĉi tiu kolekto, li aldonis, rimarkigante, ke la asocio esperas, ke la pola Nacia Biblioteko povos plej bone konservi ĉi tiun kolekton.
+
+La ceremonion sekvis seminario pri la signifo de Esperanto kaj la kolekto de Hector Hodler.
+
+Pascal Dubourg Glatigny, esplordirektoro de la Franca Nacia Centro por Esplorado, kiu havis ankaŭ aparte gravan rolon en la transdona procezo, prezentis la prelegon ”La defio konservi transnacian heredaĵon: la futuro de kolekto Hodler”.
+
+Ida Stria el la Varsovia Universitato parolis pri la disponebleco de Esperantaj bibliotekaj kolektoj el lingvistika perspektivo.
+
+Pri la unuaj Esperantaj lernolibroj kaj vortaroj kaj iliaj aŭtoroj rakontis Denis Eckert en sia prelego ”Varsovio kiel deirpunkto por la disvastigo de lingvo internacia”.
+
+Pri ligo inter Esperanto kaj muzikscienco prelegon prezentis Marek Nahajowski el la Muzika Akademio en Lodzo.
+
+La ceremonio okazis dulingve ‒ en la pola kaj en Esperanto ‒ kaj akompanis ĝin ekspozicio de elektitaj materialoj el la kolekto. Pri la evento raportis interalie la regiona televido TVP3 en sia informprogramo Express regionów. Krome, presagentejan komunikon de la Biblioteko republikigis pluraj retpaĝoj.
+
+Łukasz Żebrowski
+
+Pli pri la temo: Biblioteko Hodler iros al Pollando
+
+
+---
+
+# Seriozaj informoj kun limigita vortprovizo
+
+**Published:** 2023-06-06
+
+**URL:** https://www.liberafolio.org/2023/06/06/seriozaj-informoj-kun-limigita-vortprovizo/
+
+**Categories:** UEA, interreto
+
+La de jaroj atendata nova retejo de UEA neniel volas aperi. Sed ne ĉiuj scias, ke jam de pluraj jaroj UEA havas apartan retejon kun interesaj tekstoj por novaj esperantistoj. ”Eĉ per limigita vortprovizo eblas transdoni al la legantoj seriozajn informojn”, rakontas la ĉefrespondeculo Anna Löwenstein.
+
+”UEA estas mia amiko” – Jen la titolo de mia artikolo, kiu aperis en majo 2018 en la revuo Esperanto . En ĝi mi atentigis, ke UEA faras nenion por allogi la milionojn da novaj esperantistoj (kaj efektive temas pri milionoj), kiuj lernas per retaj kursoj, precipe per Duolingo.
+
+Mi argumentis, ke malnovaj esperantistoj formis rilaton kun UEA (tial la titolo), dum novuloj apenaŭ scias pri tiu asocio, kaj tute ne havas la ideon, ke ĝi bezonas ilian subtenon.
+
+En la artikolo mi proponis, ke UEA kreu retan revuon aparte intencitan por lernantoj. Ĝi estu verkita en facila lingvaĵo kun la celo konigi UEA kaj la Esperanto-movadon al novaj esperantistoj. Tiel ili malkovrus la rolon de UEA, kaj komprenus, kial indus membriĝi en ĝi.
+
+Mi ne intencis mem redakti tian retejon, sed proponis, ke UEA dungu redaktoron. Sed laŭ la kutima regulo en la Esperanto-movado, se oni havas bonan ideon, necesas plenumi ĝin mem. UEA tiam estis en financa krizo, kaj vidante ke la bezono estas tre urĝa, mi finfine kaj sufiĉe malvolonte proponis mem starigi kaj redakti tian retejon.
+
+Mi ricevis praktikan helpon de pluraj homoj kaj instancoj, komence de Emilio Cid, kiu tiutempe estis estrarano pri informado. ESF finance subtenis la projekton, kaj Tim Owen, aktivulo de Esperanto-Asocio de Britio, kreis la retejon. La retejo ekfunkciis en decembro 2018, kaj de tiam aperas 4-6 artikoloj ĉiumonate. Ĝi estas trovebla ĉe uea.facila.org.
+
+En kio konsistas la facileco de la retejo? La artikoloj laŭeble enhavas nur vortojn el vortlisto kun proksimume 1000 radikoj. Se verkisto bezonas vorton, kiu ne troviĝas en la listo, oni aldonas simplan difinon, kiu utiligas nur vortojn el la listo mem, kaj laŭeble ankaŭ ilustraĵon de la koncerna koncepto.
+
+La facileco rilatas ne nur al la vortelekto sed ankaŭ al la frazostrukturoj. Krome, la artikoloj estas mallongaj; la plejmulto enhavas ne pli ol 400 vortojn. Por lernanto estas malkuraĝige fronti plurpaĝan artikolon.
+
+Multaj homoj supozas, ke por verki simple necesas alparoli la legantojn kvazaŭ infanojn. Sed la legantoj ja estas plenkreskuloj; kvankam ili ankoraŭ lernas la lingvon, ili kapablas kompreni malfacilajn konceptojn. Tial en la vortlisto aperas vortoj kiel kulturo, socio, ekonomio, literaturo, gramatiko, scienco, komerco kaj simile: necesaj konceptoj en iu ajn Esperanto-revuo.
+
+La vortlisto estas bazita sur tiu de Kontakto , kiun mi mem kreis antaŭ kvardek jaroj. Evidente por uea.facila necesis ĝisdatigi la liston, precipe en la kampo de komputado kaj Interreto.
+
+Al la malnova listo estis aldonitaj la vortoj ekrano, reto, dokumento, klavo, virtuala ktp, dum mi forigis karbo, kasedo, kupono (internaciaj respondkuponoj ne plu ludas sian iam esencan funkcion en la Esperanto-movado), kaj ankaŭ tiun amatan rolulon de eksmodaj instrumaterialoj kaj anekdotoj: azeno.
+
+Ĉar la celo de la retejo estas prezenti UEA kaj la movadon al novaj esperantistoj, ĝi aperigas artikolojn pri agadoj kaj iniciatoj de UEA, pri diversaj fakaj asocioj, pri la kongresoj, kaj pri konataj aktivuloj. Dum la lasta jaro, ekzemple, aperis artikoloj pri TAKE (Tutmonda Asocio de Konstruistoj Esperantistaj), IKEF (Internacia Komerca kaj Ekonomia Federacio), la Esperanto-muzeo en Vieno , la 100-jara jubileo de la Esperanta radio , kaj simile.
+
+Krome mi celas konigi al lernantoj gravajn okazaĵojn en la historio de la Esperanto-movado. Ekzemple aperis artikoloj verkitaj de Ulrich Lins pri Lapenna en Montevideo , pri Esperanto en Sovetunio , pri Esperanto sub la nazioj , kaj artikolo de Gian Carlo Fighiera pri Teo Jung kaj Heroldo . Oni rimarkas, ke eĉ per limigita vortprovizo eblas transdoni al la legantoj seriozajn informojn.
+
+Aperis lastatempe en nia retejo artikolo el Libera Folio . Interesis min ties artikolo de la 13-a de marto, ” Duolingo nur por anglalingvanoj” , kaj mi petis permeson adapti ĝin por uea.facila. Tio signifis mallongigi ĝin ĝis 400 vortoj, kaj reverki frazojn uzante pli simplajn strukturojn kaj laŭeble nur vortojn el la vortlisto. Post redaktado mi ĉiam petas aprobon de la originala verkinto antaŭ ol aperigi la simpligitan artikolon.
+
+Aliflanke iu ajn revuo fariĝus teda, se ĝi enhavus nur movadajn informojn. Tial en la retejo troviĝas ankaŭ mallongaj rakontoj kaj poezio, kaj ĝeneralaj legaĵoj pri ĉiaj temoj. Ekzemple, titoloj de lastatempaj artikoloj estas: “ Kial ni parolas al aparatoj? ”, “ Du bestoj kun pikiloj ”, “ La palaco de Knossos ”, “ Kie estas la eksterteranoj? ” kaj simile.
+
+Krom aldoni amuzon kaj varion al la retejo, tiaj artikoloj instruas al la legantoj multajn novajn vortojn, kies difinoj verkitaj per simpla lingvaĵo, eventuale ilustritaj kiam tio eblas, aperas sub la artikoloj.
+
+Ĉar la artikoloj estas mallongaj kaj facilaj, la retejo provizas lernantojn per sufiĉe granda kvanto da legomaterialo, kiun ili espereble povos legi mem sen helpo de instruisto. Mia celo ĉiam estas, ke ili legu rapide kaj kun plezuro, sen la neceso longe cerbumi pri tro komplikaj kunmetaĵoj kaj frazostrukturoj.
+
+Tuj post apero de la nova retejo en decembro 2018, kontaktis min usonano, Derek Roff, kiu proponis aldoni sondosierojn al la artikoloj. Mi konfesas, ke mi mem tute ne estis pensinta fari tion, sed tio montriĝis brila propono, kiu multe pliigis la utilecon de la retejo. Derek ankoraŭ nun daŭre okupiĝas pri tiu aspekto de la retejo, serĉante por ĉiu artikolo leganton kun bona kaj klara prononco. Li nun havas tutan teamon de kunlaborantoj.
+
+Alia grava kunlaboranto estas hungarino Judit Felszeghy, kiu respondecas pri la rubriko de filmetoj. Ŝi konstante serĉas en la reto taŭgajn filmetojn por nia retejo, alivorte filmetojn sufiĉe kompreneblajn por lernantoj. Tio ne estas simpla tasko, ĉar estas preskaŭ neeble trovi filmeton, kiu ne enhavas lingvajn malglataĵojn aŭ eĉ rektajn erarojn.
+
+Evidente ni ne povas prezenti al lernantoj filmetojn kun amaso da eraroj, sed ni ja akceptas interesajn filmetojn kies lingvouzo estas malpli ol ideala, eventuale avertante pri tio en la enkonduko.
+
+En filmetoj ni bedaŭrinde ne povas korekti erarojn, sed la artikoloj en la retejo estas tre atente redaktitaj kaj lingve kontrolitaj. Tiurilate mi menciu nian provleganton, Jean-Claude Roy el Francujo. Li kaj Derek Roff kontrolas ĉiujn artikolojn antaŭ la aperigo.
+
+Alia regula kunlaboranto estas la italo Maurizio Giacometto, kiu okupiĝas pri la rubriko Libroservo . Denove mia celo per tiu rubriko estis helpi UEA per recenzoj de libroj kun relative facila lingvaĵo, kiuj estus taŭgaj por lernantoj.
+
+Mi menciu ĉi tie nian lastan regulan kunlaboranton, usonaninon Myrtis Smith. Ŝi ne estas tre konata en la internacia movado, ĉar ŝi mem estas lernanto. Ŝi malkovris uea.facila kiel leganto, kaj komencis verki por ĝi artikolojn. Ŝia lasta kontribuaĵo estis scienca artikolo, ” La koloro de bruo ”, kiu ebligis al ni aldoni plurajn sciencajn terminojn al nia listo de facillingvaj difinoj.
+
+Mi vidas, ke ĉi tiu artikolo jam longe superis la 400 vortojn, kiujn ni permesas en nia propra retejo. Se vi restis kun mi ĝis ĉi tiu punkto, mi invitas vin mem viziti uea.facila , kaj eventuale ankaŭ verki por ĝi.
+
+Anna Löwenstein
+
+
+---
+
+# Aktivuloj klopodas savi la kursojn de Duolingo
+
+**Published:** 2023-06-13
+
+**URL:** https://www.liberafolio.org/2023/06/13/aktivuloj-klopodas-savi-la-kursojn-de-duolingo/
+
+**Categories:** interreto, movado
+
+En marto Libera Folio raportis pri la malapero de pluraj Esperanto-kursoj de Duolingo. Komence de junio aktivuloj de TEJO kaj la brazila junulara organizaĵo BEJO lanĉis peticion por savi la kursojn. En malpli ol du semajnoj ĝi kolektis pli ol 2 300 apogantojn. Sed kial tio influus komercan entreprenon, kiu volas gajni monon? Ni demandis al kelkaj el la aktivuloj.
+
+Igor Almeida lernis Esperanton per Duolingo kaj nun estas la sekretario de Brazila Esperantista Junulara Organizo (BEJO). Pablo León estas unu el la kreintoj de la Duolingo-kurso de Esperanto en la hispana. Patricio Iglesias estas la estrarano de TEJO kiu iniciatis la ideon, ke TEJO faru ion kontraŭ la malapero de la kursoj en Duolingo. Ingryd Oliveira estas nova esperantisto, kiu atentigis, ke ne nur kursoj de Esperanto malaperis. Manuela Burghelea estas komitatano de TEJO.
+
+Ni petis ilin ĉiujn klarigi, kial ili partoprenas en la kampanjo por savi la malaperintajn kursojn.
+
+Libera Folio: Kial laŭ vi la kursoj de Duolingo estas gravaj?
+
+Igor Almeida: – Mi estas parto de tio, kion Esperantujo nomas la Duolingo-generacio. En 2018 mi komencis lerni Esperanton; nun, en 2023, mi estas estrarano de BEJO, komitatano B de TEJO kaj komisionano pri Landa kaj Faka Agado. Mi eksciis pri la ekzisto de Esperanto de amiko. Ŝi diris ”ĝi lerneblas per Duolingo kaj oni povas lerni ĝin en kelkaj monatoj”.  Estis vere – post kelkaj monatoj mi estis lerninta Esperanton. Nure per Duolingo. Kaj kiom pli da Duolingo-generacianoj estas? Kion ni povas atingi per la tuta kapablo de ĉiuj tiuj homoj –plejparte junuloj–, kiuj lernis Esperanton danke al la verda strigo?
+
+Manuela Burghelea: – La videbligo de Esperanto en Duolingo kontribuas al ĝia mojosigo. Nia lingvo, en si mem mojosa per konstruiteco, senŝtateco kaj cifereca ĉeesto, troveblas tie apud la klingona de Stela vojaĝo aŭ la alta valiria de Ludo de tronoj – sed ankaŭ apud plej diversaj “naturaj” lingvoj, inkluzive de indiĝenaj aŭ minoritataj.
+
+– Ne estas surprize ke Duolingon alproprigis al si junaj esperantistoj. Eblis ĝui ludrenkontiĝojn organizitajn tie regule de Igor Almeida en kompanio de novnaskita junulara grupo de Brazilo. Ankaŭ, kadre de Duolingo-klasĉambroj, estis organizitaj konversaciaj rondoj kun Karina Oliveira, kies gastigadon poste transprenis TEJO.
+
+Ingryd Oliveira: – Ĉar mi estas instruisto de la portugala lingvo kaj havas diplomon pri literaturo, mi ĉiam trovis kaj virtualan kaj vizaĝ-al-vizaĝan lernadon pli taŭga, en ĉeesto de peranto, kiu ĉi-kaze estus la instruisto. Sed, dum la jaroj da sperto, mi konstatis, ke ekzistas dinamikaj, bone strukturitaj kaj kreivaj manieroj lerni lingvon, tial mi opinias, ke la ekzisto de platformo kiel Duolingo estas grava, ĉar ĝi povas esti tre ĉeestanta en la momentoj, kiam ni ne havas manieron frekventi tradiciajn klasojn, kaj esti alternativo por eksperimenti kun malsamaj instrumetodoj.
+
+Pablo León : – Duolingo estas populara kaj facile alirebla platformo por lerni lingvojn. Due, la kursoj de Duolingo estas konstruitaj per la laboro de volontuloj, kio signifas, ke ili estas la rezulto de la kunlaboro de pasiaj esperantistoj, kiuj deziras disvastigi la Lingvon. Tio montras la dediĉon kaj pasion de la esperantista komunumo, kaj ĝi donas al la lernantoj senton de partopreno kaj aparteno al komunumo.
+
+Kio nun okazas pri la kursoj?
+
+Manuela Burghelea: – Por nun, vizitantoj de la retpaĝo de Duolingo renkontos Esperanton nur en la gamo de kursoj proponataj al anglalingvanoj. La kursoj de Esperanto per la hispana, la portugala kaj la franca ne plu estas alireblaj per la retpaĝo de Duolingo, laŭ la oficiala respondo de la oficistoj de la kompanio pro la malalta interesiĝo de lernantoj.  La ligiloj por aliĝi al tiuj kursoj ankoraŭ funkcias, eĉ se ili estas kaŝitaj en la ĉefpaĝoj de la koncernaj lingvoj, kaj TEJO diskonigis ilin per freŝdataj anoncoj en Instagramo kaj Fejsbuko por instigi homojn aliĝi. Tamen ni ne scias kiom longe la ligiloj restos ankoraŭ funkciantaj.
+
+Pablo León : – Ankaŭ la antaŭe anoncita ĉinlingva kurso de Esperanto neniam estis lanĉita. La oficiala respondo de Duolingo indikas, ke ili haltigis la evoluigon de tiuj kursoj pro malalta interesiĝo kaj volas koncentriĝi pri plibonigo de la nunaj kursoj. La ĉinlingva kurso de Esperanto ne estos eldonita, kaj Duolingo ne plu permesas volontulan laboron. Malaperos ankaŭ la diskutforumoj por specifaj kursoj, inkluzive de la esperantlingva. Tio montras gravan ŝanĝon en la strategio de Duolingo, kiu nun celas gajni monon per siaj kursoj.
+
+Kiel estiĝis la iniciato pri la peticio?
+
+Igor Almeida: – Post kiam la ideo ekaperis en BEJO kaj ni havis niajn unuajn diskutojn pri ĝi, ni kontaktis kelkajn homojn, kiuj probable interesiĝus helpi (ĉefe tiuj partoprenintaj en la kreado kaj/aŭ disvolvado de la kursoj). Tiam ni rimarkis ke sama movo okazis flanke de TEJO, do ni senhezite unuigis la fortojn kaj daŭrigis la laboron kune.
+
+Manuela Burghelea: – En la komitata listo de TEJO, la ideon sendi formalan plendon al Duolingo iniciatis la estraro. Tiam ankaŭ evidentiĝis ke BEJO havas planojn fari peticion. Kvankam ni ĉiuj estis skeptikaj komence pri la efiko de plendoj kaj peticioj, venis plia instigo al agado kiam Ingryd Oliveira, lernantino trafita de la fermo de la portugallingva kurso, alparolis nin. Okazis konsultiĝoj retkunvene kaj Telegrame, kun reprezentantoj de kelkaj landaj asocioj kaj sekcioj, ankaŭ anoj de la internacia teamo de volontuloj, kiuj laboris por pretigi la hispanlingvan version de la kurso, kiel Mallely Martínez el Meksiko kaj Pablo León el Argentino.
+
+Kion vi volas atingi per la peticio?
+
+Manuela Burghelea: – La mobilizo de esperantistoj por savi la kursojn estas jam en si mem atingo. Oni ofte primokas la Duolingo-generacion pro tio ke ĝi kutimas al facilaj premioj kaj trofeoj, per nura klako, kaj ne kapablas agi en la reala mondo. En la kazo de tiu ĉi kampanjo, kuniĝis lernantoj rekte trafitaj de la fermo de la kursoj, TEJO-aktivuloj kaj esperantistoj de diversaj generacioj. Estiĝis spaco, eĉ se en ĝerma formo, por ke ni eventuale povu kunpensi la estontecon de Esperanto-instruado en la reto. Do, kiel lingvokomunumo, ni certe ”gajnas poentojn” per tiu ĉi mobilizo.
+
+Ingryd Oliveira : – Mi komencis aktive partopreni en la renkontiĝoj, donante ideojn kaj strategiojn por daŭrigi la batalon ĝis Duolingo inversigos sian pozicion. Mi estis ankaŭ la unua esperantisto, kiu rimarkis, ke la gvarania kurso malaperis el la platformo. Mi raportis tion al kelkaj membroj de TEJO, kiuj konsentis meti kiel celon en la peticio ne nur la revenon de Esperanto-kursoj sed ankaŭ la revenon de la gvarania, kaj de aliaj lingvoj socie marĝenigitaj.
+
+Pablo León : – La esperantistoj volas montri al Duolingo, ke la kursoj de Esperanto havis signifan influon kaj estis tre ŝatataj fare de lernantoj en tiuj lingvoj. Ili volas atentigi la respondeculojn de Duolingo pri la statistikoj kaj la granda nombro da lernantoj, kiuj utiligis la kursojn por lerni kaj progresi en Esperanto.  Tamen, estas grave kompreni, ke la peticio estas nur unu aspekto de la strategio por influi Duolingon. Ĝi povas esti uzata por atingi publikan konscion, montri la vastan subtenon de la esperantista komunumo, kaj eble krei spacon por dialogo kaj eventuala intertraktado kun la kompanio.
+
+Duolingo estas komerca kompanio kiu ekzistas por gajni monon, ĉu vi kredas ke ĝi estos influita de peticioj?
+
+Patricio Iglesias: – Duolingo naskiĝis kun la klara misio faciligi lingvolernadon. Fermi Esperanto-kursojn kiuj grandparte estas uzataj de junuloj kaj homoj el evolulandoj ne ŝajnas kongrua kun principoj pri socia respondeco, kiuj devus gvidi ĉiun nuntempan organizaĵon. Alia punkto multfoje menciita inter la komentantoj de la peticio en Change.org estas la respekto por la laboro de la volontuloj, kiuj sindediĉe donacis svarmon da horoj por krei la kursojn. Kaj kompreneble, sciante ke Duolingo rekonsideras sian liston de kursproponoj regule, estas inde ne prisilenti la fermon de la kursoj.
+
+– Krome, en ĉi tiu epoko en kiu korporacioj kutimas aldoniĝi al la Celoj por Daŭripova Evoluigo kaj al aliaj UN-kampanjoj, ŝajnas vera malkoheraĵo la fermo de la kurso por lerni la gvaranian per la hispana, same okazinta lastatempe. En la deklaracio ni petas ankaŭ ĝian restarigon kaj mencias la gravecon de minoritataj lingvoj kadre de la Internacia Jardeko de Indiĝenaj Lingvoj. Indas mencii ankaŭ, ke en la mondo de lingvolernado (aparte vigla en interreto) esperantistoj estas relative influemaj, do konservi tiun amikecon povas faciligi ontajn projektojn.
+
+Manuela Burghelea: – Cetere, estus grave ke Duolingo vidu sian rilaton kun la Esperanto-komunumo kiel interagon reciproke avantaĝan. Eĉ se multaj esperantistoj ne bezonas la kurson de Esperanto, ĉar ili jam estas lernintaj la lingvon, ili povas lerni aliajn lingvojn en la platformo danke al la tiom vigla reklamo, kiun Duolingo ricevis en nia komunumo (estas ankaŭ mia kazo kiel ĉiutaga uzanto de Duolingo).
+
+Pablo León : – Kompanioj agnoskas ankaŭ la valoron de bona publika bildo kaj konservado de lojala klientobazo. Do, se sufiĉe granda kaj signifa parto de la esperantista komunumo esprimas sian kontraŭstaron, tio povas havi influan efikon. Tamen, estas grave prikonsideri realisme la komercajn interesojn kaj la ekonomiajn aspektojn. La influo de peticioj sur komercan kompanion kiel Duolingo estas ne certa, sed ĝi povas havi ian efikon. Tamen, la alternativaj retaj platformoj povas esti gravaj por helpi evoluigi pli ampleksan kaj daŭran instruadon de Esperanto.
+
+Pli pri la temo
+
+Duolingo nur por anglalingvanoj
+
+Subteni la peticion
+
+
+---
+
+# Ĉar la Ligo de Nacioj decidis…
+
+**Published:** 2023-06-13
+
+**URL:** https://www.liberafolio.org/2023/06/13/car-la-ligo-de-nacioj-decidis/
+
+**Categories:** vidpunkto
+
+Kiel aspektus la mondo, se Esperanto havus la rolon, kiun ĉiam pli ekhavas la angla lingvo en multaj landoj? Jouko Lindstedt imagis alternativan historion de Esperanto.
+
+Lastatempe la finna poŝto iom ofte misdistribuis sendaĵojn, sed hodiaŭ ĝi faris eĉ kolosan eraron: mi ricevis en mian leterkeston ĵurnalon, kiu evidente devenas el iu paralela universo – tre simila al la nia, sed ne tute, kiel mi povas montri citante unu artikolon el tiu ĵurnalo. Ĝi estas skribita en speco de finna lingvo, kiu estas facile komprenebla escepte de kelkaj strangaj vortoj, kiuj tamen montriĝis esti pruntaĵoj el Esperanto. Jen mia traduko de la artikolo (la priparolataj Esperantaj esprimoj estas Esperantaj ankaŭ en la originalo):
+
+Ĉu studi finne aŭ Esperante?
+
+Ni jam antaŭe raportis, kiel Esperanto iom post iom forpuŝas la finnan kiel instrulingvon en la finnaj universitatoj. Lastatempe vekis multe da publika diskuto la decido de la Universitato de Helsinko, laŭ kiu ĉiuj magistraj programoj fariĝos Esperant-lingvaj. Ni parolis pri la temo kun la rektoro de la universitato, Matilda Madetoja – aŭ ”Manjo”, per kiu Esperanta karesnomo ŝi estas vaste konata en la universitataj rondoj. Ĉar ŝia propra profesora katedro estas pri lingva sociologio, ŝi povis kompetente prilumi ankaŭ la fonon de la nuna evoluo.
+
+Ni: Antaŭ cent jaroj en la Universitato de Helsinko oni batalis por certigi, ke oni povu studi ankaŭ en la finna lingvo, ne nur en la sveda, kiel antaŭe. Sed nun Esperanto ŝajnas iom post iom forpuŝi la finnan. Ĉu la estontaj diplomitoj scipovos paroli pri sia fako en la finna?
+
+MM: Unue mi volas emfazi, ke la decido uzi Esperanton koncernas nur la magistrajn programojn, ne la bakalaŭrajn, en kiuj la studentoj unue lernos la finnan terminologion de sia fako. En la nuna mondo, kie Esperanto estas la internacia lingvo de scienco, komerco kaj politiko, la studentoj nur profitos, lernante uzi ĝin en siaj magistraj studoj.
+
+Ni: Iuj diras, ke Esperanto estas tamen lingvo artefarita…
+
+MM: De pluraj jardekoj oni preskaŭ ne plu aŭdas tiun argumenton. Ĝi ja estis ofte prezentata kontraŭ Esperanto komence de la dudekaj jaroj de la pasinta jarcento, kiam aperis proponoj uzi Esperanton en la Ligo de Nacioj – vi certe konas tiajn nomojn, kiel Edmond Privat kaj Nitobe Inazo, kiuj post multjara laboro sukcesis igi Esperanton oficiala lingvo de la Ligo apud la franca kaj la angla.
+
+Ni: Sed la tiama sukceso ĉefe ŝuldiĝis al la ŝanĝiĝo de la oficiala opinio de Francio, ĉu ne?
+
+MM: Jes, tiel oni povas diri. Francio timis, ke iom post iom la angla tute forpuŝos la francan kiel la ĉefan lingvon de diplomatio. Prave aŭ malprave, la francaj reprezentantoj en la Ligo opiniis, ke Esperanto estas tamen pli proksima al la franca ol al la angla, sekve ĝi povus roli kiel enirejo al la franca lingvo. Krome, pluraj francaj diplomatoj havis proksimajn rilatojn kun la eldonejo Haĉeto (aŭ ”Hachette”, kiel ĝi ankoraŭ nomiĝis tiutempe), kiu de longa tempo publikigis Esperantajn librojn kaj deziris ricevi gravan mondan rolon tiurilate.
+
+Ni: Sed tiutempe oni argumentis, ke Esperanto estas facila lingvo. Nuntempe oni pli ofte aŭdas plendojn, ke ĝi fariĝis malfacila. Kiel vi komentus tion, kiel lingvisto?
+
+MM: Pri facileco de iu lingvo oni devas ĉiam demandi – facila por kiu, surbaze de kiu denaska lingvo, en kia lernomedio? Sed estas vere, ke iuj evoluoj post la Dua Mondmilito komplikis Esperanton, kiam ĝia rolo en la mondo rapide ŝanĝiĝis. Tuj post la milito ĝi estis nur unu el la laborlingvoj de la Unuiĝintaj Nacioj, kiuj heredis la rolon de la Ligo de Nacioj, sed iom post iom ĝi fariĝis pli kaj pli ekskluziva lingvo en ĉia internacia kunlaboro. Ekzemple, jam en la jaro 1954, kiam Ivo Lapenna, la lasta prezidanto de ”Universala Esperanto-Asocio”, proponis Esperanton kiel la unusolan laborlingvon de Unesko, la organizaĵo akceptis tion per granda plimulto de la voĉoj. Dum la pli kaj pli vasta uzo de Esperanto en ĝi okazis ŝanĝiĝoj, kiujn iuj rigardas kiel komplikaĵojn. Iuj eĉ diras, ke ekzemple la angla estus pli facila lingvo – sed malfacilas mezuri tion objektive, kaj ĉiuokaze, la demando estas pure teoria, ĉar Esperanton jam ne eblas detronigi.
+
+Ni: Iuj diras, ke la ekesto de esperantanoj iel fuŝis la originan ideon de Esperanto – ili estas nova Esperant-lingva gento.
+
+MM: Fakte la fenomeno de esperantanoj postulas sciencan analizon – ĉu temas pri nova etna grupo, aŭ tamen nur pri nova socia klaso uzanta Esperanton? Sed estis nature, ke inter la dungitoj de internaciaj organizaĵoj kaj internaciaj kompanioj aperis homoj, por kiuj Esperanto fariĝis la hejma lingvo kaj kiuj sendis siajn infanojn al Esperant-lingvaj lernejoj. En tiuj lernejoj kreskis la sekva generacio de la parolantoj, por kiuj Esperanto estis natura ĉiutaga lingvo, kaj en ilia uzo ĝi komencis ankaŭ ŝanĝiĝi. Kiu nuntempe diras ”estas” anstataŭ ”stas”? Aperis ankaŭ novaj tiel nomataj idiomaĵoj, netravideblaj dirmanieroj tipaj nur por Esperanto. Ne plu eblis esti flua parolanto de Esperanto sen regi tiujn. Ekzemple, kiel vi tradukus finnen ”trovi siajn jeojn kaj umojn”?
+
+Ni: Ne tuj venas en la kapon, konfesinde, kaj la finnoj ja ofte uzas la esprimon sentraduke… Sed oni devas do esti denaska esperantano por vere regi la lingvon? Ĉu viaj magistraj studentoj havos ŝancon?
+
+MM: Estas nature, ke en lingvorilataj profesioj, kiel tradukistoj, interpretistoj, redaktoroj kaj tiel plu, la esperantanoj estas senrivalaj. Sed mi kredas, ke estonte niaj studentoj povos almenaŭ proksimiĝi al tiu nivelo.
+
+Ni: Iam la tasko de la Akademio de Esperanto estis iom gardi la facilecon de la lingvo, aŭ ĉu mi ĝuste komprenis?
+
+MM: Jes, se vi celas la iaman Akademion, kiu konsistis el membroj elektitaj nur pro siaj personaj meritoj, realaj aŭ supozataj. Estas kompreneble, ke pro la kreskanta rolo de Esperanto en la mondo, la lingvo ne plu povis resti en la manoj de diletantoj. Tial Unesko kreis la novan Akademion, al kiu la grandaj potencoj rajtas sendi konstantajn membrojn kaj la ceteraj landoj laŭvice kelkajn ŝanĝiĝantajn membrojn. Ili kompreneble ne plu havas ian fonon en la iama ”Esperanto-movado” sed gardas la lingvajn interesojn de siaj ŝtatoj. Ne plu gravas ia absoluta ”facileco” de Esperanto, oni parolas pri ”egaleca malfacileco”.
+
+Ni: En la uzo de diversaj lingvoj temas do ĉiam ankaŭ pri potencrilatoj, ĉu ne?
+
+MM: Kiel socilingvisto mi ne povas ne konfirmi tion! Esperanto estas en la nuna mondo la lingvo de la potenco. Ni devas zorge pensi, kian rolon ni deziras konservi por la finna, kvankam la daŭra disvastiĝo de Esperanto jam ne plu estas haltigebla.
+
+La teksto unue aperis en Lingva Tereno . Libera Folio republikigas ĝin kun la permeso de la aŭtoro, Jouko Lindstedt. Aperigo aliloke eblas nur kun aparta permeso de la aŭtoro.
+
+
+---
+
+# Esperanto estis uzata en virtuala UN-kunsido
+
+**Published:** 2023-06-20
+
+**URL:** https://www.liberafolio.org/2023/06/20/esperanto-estis-uzata-en-virtuala-un-kunsido/
+
+**Categories:** UEA, movado
+
+Pluraj gravuloj de Unuiĝintaj Nacioj partoprenis en reta kunveno pri multlingvismo, kiun iniciatis reprezentantoj de UEA. La kunsido estis interpretita ankaŭ al Esperanto, kaj kelkaj parolantoj mem uzis la lingvon. Tamen nenia ĝenerala subteno al la ideo aŭ uzo de Esperanto estis esprimita.
+
+La iom pli ol trihora reta kunsido okazis la 12-an de junio. Krom samtempa interpretado inter la ses oficialaj lingvoj de UN, okazis interpretado al kaj el Esperanto, kiun organizis Universala Esperanto-Asocio. La anoncita temo de la kunsido estis ”konstrui reciprokan kompreniĝon pere de multlingvismo”.
+
+Multlingvismo estas oficiale agnoskita kiel ”kerna valoro” de UN, kaj la ĝenerala sekretario de UN, António Guterres, menciis multlingvismon kiel unu el siaj prioritatoj. Tamen efektive ene de UN mem la koncepto grandparte ŝajnas temi pri la ses oficialaj lingvoj de la organizaĵo, kiel indikas UN sur sia retpaĝo pri multlingvismo.
+
+Evidente, eĉ la ses oficialaj lingvoj tamen ne estas egalaj en UN, ĉar nur du el ili, la angla kaj la franca, estas uzataj kiel laborlingvoj.
+
+Unu el la ĉefaj organizantoj de la kunveno estis la Komitato de Neregistaraj Organizaĵoj pri Lingvoj. Ĝi estas tema komitato f ondita en majo 2022 de la konferenco de NRO-j en konsultaj rilatoj kun UN. Pli ol 20 NRO-j tiam aliĝis al la komitato, kiu celas doni pli grandan atenton al lingvaj aferoj ĉe UN, al lingva egaleco kaj forigo de lingva diskriminacio.
+
+Kiel prezidanto kaj vicprezidanto de la komitato tiam estis elektitaj reprezentantoj de UEA, Francis Hult kaj Humphrey Tonkin. Ilia rolo estis aparte grava en la realigo kaj kunordigado de la kunveno. Inter la parolantoj estis pintaj gvidantoj de Unuiĝintaj Nacioj, plej notinde Csaba Kőrösi, la nuna prezidanto de la Ĝenerala Asembleo.
+
+La kunvenon alparolis ankaŭ pluraj UN-ambasadoroj, stabanoj de la Skipo por Multlingva Agado ĉe la oficejo de Unuiĝintaj Nacioj en Ĝenevo kaj de la regiona oficejo de Unesko en Bangkoko. Krome partoprenis reprezentantoj de civitanaj organizaĵoj kaj sciencaj fakuloj.
+
+En Esperanto parolis Humphrey Tonkin de UEA, Hans  Becklin de TEJO kaj la eksa UEA-prezidanto Mark Fettes. Aliaj parolantoj uzis la araban, anglan, francan, hispanan kaj rusan lingvojn.
+
+Mark Fettes en sia elpaŝo parolis pri ”la esenca rolo de multlingvismo en tagordo 2030”. Li argumentis, ke ”lingva diverseco estas nedisigeble ligita kun la bonfarto de kaj la homoj, kaj la planedo”, kaj aparte parolis pri indiĝenaj kaj minacataj lingvoj. Esperanto aliflanke tute ne estis menciita en lia parolado.
+
+Al Libera Folio Fettes klarigas, ke la kunveno estas parto en la multjara strebado de UEA prezenti Esperanton kiel integrigan elementon de pli justa nacia kaj internacia lingvopolitiko.
+
+– Diversaj aspektoj de tio estas traktitaj en la Nitobe-simpozioj, la novjorkaj simpozioj organizitaj de la Studgrupo pri Lingvo kaj UN, kaj en aliaj elpaŝoj en la rondoj de NRO-oj kaj la internaciaj konferencoj de UN. La ĵusa kunveno estas certe la plej prestiĝa kaj politike influa evento en tiu linio ĝis nun. Tio estas la rezulto de multjara pacienca laboro. Pri la evento mem la ĉefan meriton portas Francis Hult, sed Humphrey Tonkin estas la motoro de la strategio kiu kondukis tien.
+
+La fundamenta ideo malantaŭ la strategio laŭ Fettes estas, ke oni serioze sintenos al Esperanto nur, se oni serioze aliras la faktojn kaj konsekvencojn de lingva diverseco.
+
+– Estas unuopaj homoj en la UN-sistemo, kiuj havas tian konscion, sed la reganta UN-kulturo, kiam ĝi ne simple akceptas la regadon de la angla “pro praktikaj kialoj,” apenaŭ kapablas pensi preter la kutima hierarkio de ŝtataj lingvoj, En tiu senco, la radikala kontribuo de Esperanto restas ankoraŭ preter la mensa horizonto de la plej multaj UN-anoj.
+
+Tamen pli kaj pli da homoj en la rondoj de UN laŭ li nun komprenas, ke la esperantistoj kaj UEA havas ion gravan por diri pri multlingveco.
+
+– Kreskas ankaŭ la akcepto, ke Esperanto estas plene funkcianta lingvo, uzata de inteligentaj homoj por celoj parencaj al la celoj de UN. Tio do estas neta progreso.
+
+Laŭ gazetara komuniko de UEA, la aliaj parolantoj ”traktis la demandon de fortigo de internacia kunlaboro pere de multlingvismo, faciligo de problemosolvado, kaj profundigo de interkompreniĝo trans diferencoj”. Laŭ la sama gazetara komuniko , temas pri brila sukceso:
+
+La kunveno reprezentas la plej fortikan ĝisnunan utiligon de Esperanto en kunveno de gvidantoj kaj koncernatoj de Unuiĝintaj Nacioj. Tiurilate, temas pri sukcesa momento en la strategio de UEA por antaŭenigi la praktikon de multlingvismo en Unuiĝintaj Nacioj kaj malfermi pordon al utiligo de multaj lingvoj, inkluzive Esperanton, por engaĝi pli larĝan tutmondan perspektivon – kio konsistigis la ĉefan  temon de la kunveno.
+
+La kunveno reprezentas la plej fortikan ĝisnunan utiligon de Esperanto en kunveno de gvidantoj kaj koncernatoj de Unuiĝintaj Nacioj. Tiurilate, temas pri sukcesa momento en la strategio de UEA por antaŭenigi la praktikon de multlingvismo en Unuiĝintaj Nacioj kaj malfermi pordon al utiligo de multaj lingvoj, inkluzive Esperanton, por engaĝi pli larĝan tutmondan perspektivon – kio konsistigis la ĉefan  temon de la kunveno.
+
+Eĉ se temas pri granda paŝo por UEA, en la novaĵa retejo de UN mankas ajnaj informoj pri la kunveno. La plej aktuala novaĵo pri la temo ”multlingvismo” aperis la 26-an de majo, kaj temas pri la graveco de sekuraj retaj spacoj por libera sinesprimado.
+
+La sola mencio de Esperanto en la novaĵretejo de UN aperis en 2012, kiam ”Michael, membro de TEJO” estis mallonge citita en artikolo pri junulara senlaboreco.
+
+
+---
+
+# UEA denove prokrastas la novan retejon
+
+**Published:** 2023-06-28
+
+**URL:** https://www.liberafolio.org/2023/06/28/uea-denove-prokrastas-la-novan-retejon/
+
+**Categories:** UEA, interreto, movado
+
+La 26-an de julio 2013 la komitato de UEA decidis rezervi 100 000 eŭrojn por la starigo de nova retejo. La projekto laŭ la estraro estis unu el la ĉefaj prioritatoj de la asocio. Dek jarojn poste, UEA dubas ĉu la sistemo entute estas bezonata kaj denove prokrastas ĝian lanĉon.
+
+La laboro por krei novan retejon kaj novan komputilan administran sistemon por UEA havis multajn komplikajn fazojn kun pluraj diversaj respondeculoj. Baldaŭa lanĉo de la nova retejo multfoje estis promesita kaj ĉiam prokrastita.
+
+Laste oni antaŭvidis lanĉon de la nova sistemo por septembro 2022, sed ankaŭ tiam nenio okazis, kvankam ĉio devis esti preta. Laŭ informoj de Libera Folio la estraro de UEA tiam ne trovis la sistemon kontentiga kaj tial ne pretis pagi la lastan parton de la rekompenco al TEJO, kiu ekde 2019 laŭ kontrakto kun UEA laboras pri la projekto.
+
+En majo TEJO informis en sia cirkulero , ke oni “sukcese liveris la provlanĉon de la sistemo al UEA”. Tio ŝajne signifas, ke la estraranoj de UEA ricevis ligilon al nova, funkcianta versio de la administra sistemo AKSO kaj al la nova retejo. Tamen neniuj pliaj paŝoj okazis.
+
+Laŭ Duncan Charters, la prezidanto de UEA, AKSO “levas plurajn strategiajn demandojn, kiujn la Estraro atente pristudis, sed ankoraŭ ne finsolvis”.
+
+– Ni devos vidi mem por kiuj partoj de la kompleksaj bezonoj de UEA estas jam preta aŭ preskaŭ preta la AKSO-sistemo, pro tio ni ankoraŭ ne havas la informojn sufiĉajn por ĝin lanĉi. Tamen la progreso certe kuraĝigu tiujn kiuj perdis esperon pri la projekto, kaj espereble post kelkaj tagoj ni povos respondi pli precize, Duncan Charters reagis al demando de Libera Folio la 20-an de junio.
+
+Ne klaras pri kiaj “strategiaj demandoj” temas, sed jam ekde la komitata kunsido de UEA en decembro 2022 evidentas, ke ne ĉiuj gvidantoj de UEA entuziasmas pri la reteja projekto. Tiu impreso fortiĝis dum komuna kunsido de estraranoj de TEJO kaj UEA sabate la 24-an de junio.
+
+Laŭ informoj de Libera Folio precipe la ĝenerala direktoro de UEA, Martin Schäffer, argumentas, ke la asocio ne elspezu pli da mono sed rezignu pri la tuta projekto. Mankis interkonsento inter la reprezentantoj de UEA, kaj la tuta afero denove estis prokrastita.
+
+Martin Schäffer mem tamen responde al demando de Libera Folio klarigas, ke ne temas pri nuligo de la multjara projekto:
+
+– En la koncerna kunsido mi certe ne argumentis nuligi ĉion. Tamen sufiĉe multaj problemoj devus esti ankoraŭ solvitaj. Pro la manko de homaj kaj financaj fortoj, mi ne vidas baldaŭan solvon. En ideala kazo ekzistus oficisto aŭ volontulo (projekt-mastrumanto kun programistaj kaj kunordigaj konoj), kiu konstante akompanus la projekton. Tion ni bedaŭrinde ne havis/havas (aŭ ne trovis).
+
+Ankaŭ prezidanto Duncan Charters en nova mesaĝo al Libera Folio dementas la aserton, ke UEA pretus rezigni pri la reteja projekto, sed argumentas ke transiro al nova sistemo estas granda projekto en si mem kaj postulas multan laboron:
+
+– Nek mi nek miaj kolegoj estas rezignemaj pri projekto kiu povos modernigi niajn procedurojn, servojn al la membraro, kaj vizaĝon al la publiko. Tamen se ni decidus “lanĉi” ĝin sen elprovado kaj sen trovo de la necesaj solvoj al la diversaj demandoj kiel tiu kiun mi priskribis al vi, ni ne servus al UEA kaj al la membraro. Por tiu kazo la trovo de taŭga akompananto al la transiro ŝajnas antaŭkondiĉo por sukcesa subteno de la projekto kaj de ĝia ĉefa uzanto por administraj aferoj. Pri tio ni interkonsentis.
+
+Eĉ se la estraro de UEA formale ne rezignas pri la reteja projekto, ŝajnas do ke ĝia realigo estos plu prokrastita ĝis la tago de sankta neniamo. Hans Becklin, reprezentanto de TEJO en la komitato de UEA, mem ne partoprenis la sabatan kunsidon, sed dum pli fruaj diskutoj vidis indicojn pri la malemo de UEA enkonduki la novan sistemon.
+
+– Mia kompreno estas, ke pro la ŝanĝoj en UEA kelkaj homoj, inkluzive de la Ĝenerala Direktoro, ne plu vidas apartan utilon en AKSO — kiu kompreneble estas unuavice unuecigo de la diversaj, pelmelaj sistemoj nun uzataj en UEA. La asocio estas malgranda, kaj tiuj verŝajne ja povus daŭri plu — se ne eterne, almenaŭ sufiĉe longe. Sed mia perspektivo estas, ke apenaŭ sencas rezigni pri plene moderna sistemo (eĉ se ne perfekte tajlita al la nuna stato de UEA) favore al sistemoj ellaboritaj antaŭ la naskiĝo de la plimulto de la TEJO-membraro.
+
+Laŭ Hans Becklin, eĉ la nuna UEA, sen bezono de kongresa administrado, havos grandan utilon de la nova sistemo.
+
+– Evidente UEA kaj TEJO daŭre devas administri siajn membrojn kaj ties datumojn. Ankaŭ la iaman enhavon de la jarlibro, UEA-kontojn, ktp. Ĉion ĉi, laŭ mia kompreno, AKSO faros multe pli efike ol nun, kun taŭga aŭtomatigo. Ekzemple, imagu kiom da membroj forfalas el niaj registroj nur pro pigro — ĉu ni vere ne sekvos la ŝablonon de ĉiuj modernaj entreprenoj kaj magazinoj, aŭtomate remembrigante ĉiujn kreditkarte?
+
+La kompletan ĝisnunan koston de la reteja projekto ne facilas kalkuli. En 2013 por la celo estis buĝetitaj 100 000 eŭroj, kiuj en la bilanco de UEA estis lokitaj en la rezervo “Reteja Renovigo”. Laŭ la plej aktuala havebla bilanco de UEA en la rezervo restas 27 800 eŭroj.
+
+Kiam la projekto estos finita, UEA devos pagi al TEJO la finan sumon de 30 000 eŭroj, do la formala kosto atingos iom pli ol 100 000 eŭrojn. Tamen krom tio por financi la projekton evidente estis uzita, rekte aŭ malrekte, mono el la administra subvencio de EU.
+
+Eĉ tiel, la projekto laŭ Hans Becklin estas relative malmultekosta, se konsideri la amplekson de la tasko.
+
+– Asocioj, kiuj provas harmoniigi siajn datumbazojn, krei novajn sistemojn, kaj produkti novan retpaĝon kun interfaco por tiuj datumbazoj kaj sistemoj malofte elspezas nur 100 000 eŭrojn en EU aŭ Nord-Ameriko. Mia persona sperto en grandaj entreprenoj montras, ke ofte la elspezoj estas la dekoblo por malpli komplika projekto. La glataj sistemoj, kiujn ni konas en la plej grandaj, mondaj firmaoj kostas milionojn kaj havas reg-stabojn foje pli grandajn ol la tuta membraro de UEA kaj TEJO! Kaj nun ni estas, dank’ al multa laboro, sojle de glata sistemo ankaŭ por UEA — koste de multaj miloj kaj amaso da volontula (aŭ duone volontula) laboro. Kial ni forĵetus tion — kaj ankaŭ la fidon de niaj membroj?
+
+Libera Folio: Se post dekjara laboro pri projekto, kiu en 2013 estis deklarita prioritata, la rezulto estos nula, kion tio diros pri la stato de UEA nun?
+
+Hans Becklin: – Se la rezulto montriĝos nula, ĉiuj membroj de UEA devos serioze demandi sin, ĉu UEA bezonas multe pli radikalan restrukturigon ol ĝi jam havis — ekzemple, tute malsaman statuton kun alia regmaniero. Se la estraroj kaj komitatoj ne sukcesis fari eĉ tion ĉi, evidente klaran kaj eblan, kiel la nuna strukturo helpos al ni celi pli alten por informi pri Esperanto kaj subteni la esperantistaron en ĝia disvastigo de la internacia lingvo?
+
+Pli pri la temo:
+
+UEA ne kontentas pri sia nova retejo
+
+Nova retejo de UEA eble aperos en septembro
+
+Pli da mono por nova retejo de UEA
+
+
+---
+
+# UEA forgesis revizoron kaj Centran Oficejon
+
+**Published:** 2023-07-04
+
+**URL:** https://www.liberafolio.org/2023/07/04/uea-forgesis-revizoron-kaj-centran-oficejon/
+
+**Categories:** UEA, movado
+
+Profesia revizoro de pluraj jaroj ne kontrolis la kontojn de UEA. La komitataj reviziantoj ne povis kontroli, kiel estis aprobitaj la elspezoj de la asocio. La reteja projekto kaj la tuta Centra Oficejo forfalis el la estrara raporto.
+
+Sojle al la Universala Kongreso en Torino, en la retejo de UEA aperis la raporto de la komitataj reviziantoj kaj la Estrara raporto, ambaŭ pri la jaro 2022.
+
+En antaŭaj jaroj la Estraraj raportoj kutimis aperi en la junia numero de la revuo Esperanto . Tamen ĉi-jare la estraro ne sukcesis ĝin prepari ĝustatempe, sed ĝi fine aperis en la julia-aŭgusta numero de la revuo.
+
+La raporto aspektas iom haste kaj hazarde kunmetita, kaj en la retejo de UEA ĝi estas nomata ”provizora versio”. El la dekpaĝa raporto preskaŭ tri paĝojn okupas la sekcio pri Eksteraj rilatoj kun detalaj mencioj pri aperoj de UEA ĉe internaciaj organizaĵoj. Aliflanke tute mankas ajna mencio pri la Centra Oficejo.
+
+Efektive la rubriketo pri la Centra Oficejo ne aperis en la Estrara raporto post 2019, sed la manko estas aparte rimarkinda en la ĉi-jara raporto, ĉar dum 2022 UEA decidis vendi la domon, en kiu dum multaj jaroj troviĝis la Centra Oficejo. Tiun decidon laŭ rekomendo de la estraro faris la komitato de UEA la 12-an de februaro 2022 kun 37 poraj voĉoj, 13 kontraŭaj voĉoj kaj 4 sindetenoj.
+
+La decido vendi la domon evidente estas sensignifa, ĉar ĝi tute ne estas menciata en la Estrara raporto. Mankas informoj ankaŭ pri la paŝoj kiujn oni entreprenis por realigi la decidon, kvankam ja estas menciita la fakto, ke la arkivo de UEA kaj parto de la biblioteko Hector Hodler estis transdonitaj al Aŭstria Nacia Biblioteko. Ne estas dirite, kial la transdono okazis.
+
+Same tute ne estas menciita la projekto de nova retejo kaj administra sistemo, kiu aperis en la Estrara raporto ankoraŭ pasintjare. Tiam oni raportis, ke la projekto plejparte pretis fine de 2021 kaj lanĉo estis planita por 2022. La lanĉo evidente ĝis nun ne okazis.
+
+Ĵus aperis en la komitata teko la raporto de la komitataj reviziantoj Guy Matte kaj Michael Boris Mandirola. Ili interalie atentigas, ke daŭre mankas raporto de profesia, ekstera revizianto.
+
+Tiaj raportoj estis regule liverataj ĝis 2018, sed poste UEA ne sukcesis trovi novan revizoron, kiu kompetentus esplori la librotenadon de la asocio, interalie el la vidpunkto de ĝia konformeco al la leĝaj postuloj en Nederlando. Jam antaŭ du jaroj la tiamaj komitataj reviziantoj atentigis pri la manko. Dum la tiama komitata kunsido prezidanto Duncan Charters diris, ke ankaŭ lia advokato konsilis al UEA nepre uzi la servojn de profesia revizoro.
+
+Laŭ Charters tio estas grava por klare montri ankaŭ al la propraj membroj, ke ĉio estas en ordo pri la kontoj kaj financoj de UEA. Li tiam esperis prezenti la rezulton en la sekva komitata kunsido la 14-an de aŭgusto 2021. Tamen ĝis nun solvo evidente ne estas trovita.
+
+Same ne estis trovitaj protokoloj de la estraraj kunsidoj, kiujn la komitataj reviziantoj bezonus vidi, por kontroli, ĉu la decidoj pri nerutinaj elspezoj de UEA efektive estis faritaj de la estraro, kiel postulas la ĝenerala regularo, aŭ per simplaj oficistaj decidoj.
+
+La komitataj reviziantoj atentigas ankaŭ, ke ĉar la kongresa administrado ne plu estas farata de UEA mem, sed laŭkontrakte taskita al la organizaĵo E@I, necesus ke la kongresaj enspezoj kaj elspezoj estu regule kontrolataj de UEA. Tio evidente ne estis farita.
+
+La komitataj reviziantoj konstatas, ke spite la kreskon de la membraro, la kotizaj enspezoj de UEA plu falis, ĉar malkreskis la kvanto de membroj en la pli kostaj kategorioj.
+
+Rilate la investojn la reviziantoj konstatas, ke ”estas danĝere se ne estas klara la financa celo kiun ni devus atingi kaj se ne estas klaraj la respondecoj de ĉiuj niveloj de aprobo”.
+
+De longe UEA estas tre pasiva pri investoj. Jam kelkfoje dum la pasintaj jaroj komitatanoj postulis difinon de investopolitiko por UEA kaj ricevis promesojn pri tio de la estraro. La komitataj reviziantoj nun rekomendas, ke la estraro laŭeble rapide prezentu al la komitato la investopolitikon de la asocio. Ili rekomendas, ke profesia revizianto estu dungita por la financa jaro 2023.
+
+En la retejo de UEA ankoraŭ mankas la detalaj financaj dokumentoj de la asocio, kiujn la komitatanoj devos ricevi. La komitataj reviziantoj tamen en sia raporto subskribita la 24-an de junio jam rekomendas al la komitato aprobi la spezokonton kaj la bilancon, kaj malŝarĝi la estraron.
+
+Pli pri la temo:
+
+La revuo de UEA silentas pri gravaj temoj
+
+
+---
+
+# Nur ses kandidatoj por la estraro de TEJO
+
+**Published:** 2023-07-10
+
+**URL:** https://www.liberafolio.org/2023/07/10/nur-ses-kandidatoj-por-la-estraro-de-tejo/
+
+**Categories:** TEJO, movado
+
+TEJO sabate elektos novan estraron, sed la elekta k omisiono agnoskas ke estas “krizo” pro manko de aktivuloj. Estas nur ses estraranaj kandidatoj – la plej malgranda kvanto dum almenaŭ dek jaroj. Por la prezidanteco kandidatas Tyron Surmon.
+
+Sabate la 15-an de julio la komitato de TEJO elektos novan estraron por unujara mandato. Sed nur ses personoj kandidatiĝis, do povus okazi ke ĉiuj kandidatoj estos elektitaj senopozicie. Laŭ la reglamento, la estraro havu inter kvin kaj naŭ membrojn, kaj ekde 2018 ĉiu estraro havis naŭ estraranojn. Laŭ sia raporto, la elekta komisiono kontaktis pli ol tridek homojn sed sukcesis konvinki nur ses kandidatiĝi. Oni ne klarigis kial tiom multaj homoj rifuzis kandidatiĝi, sed agnoskis ke tio estas serioza problemo por TEJO:
+
+“Pasis la krizo de la kronviruso, kaj pasis la krizo pri administra subvencio, tamen ni perceptas, ke nun senteblas krizo pri emo aktivi en TEJO.”
+
+La kandidatoj estas el Eŭropo, Azio, Sud-Ameriko kaj Afriko. El la ses, kvar estas viroj kaj du estas virinoj. Pasintjare nur unu el naŭ kandidatoj estis virino.
+
+Estas nur unu kandidato por la prezidanteco, Tyron Surmon el Britio. Patricio Iglesias el Argentino estas la sola kandidato por kasisto. Nur Michal “KuboF” Matúšov el Slovakio volas esti ĝenerala sekretario, kaj Snehaja “Snehaĝa” Venkatesh el Barato estas la ununura homo por la vicprezidanteco. Abhinav “Abhi” Varma, same el Barato, kaj Ada Florence Iracadukunda, el Burundo, estas kandidatoj por la senoficaj estraranoj.
+
+El la kandidatoj, du estas estraranoj (Surmon kaj Iglesias), du estas komitatanoj (Matúšov kaj Venkatesh) kaj du ne havis postenojn en TEJO (Varma kaj Iracadukunda). Rimarkindas ke sep el la naŭ estraranoj elektitaj pasintjare ne rekandidatiĝis, malgraŭ ke multaj estis en la estraro por nur unu jaro.
+
+La Elekta Komisiono proponas tri elektojn al la komitato. Oni povus krei estraron kun kvin homoj (ĉiuj krom Iracadukunda), ses (ĉiuj kandidatoj) aŭ eĉ sep (ĉiuj kandidatoj kaj unu vaka loko, kiu estos plenigita dum la jaro).
+
+Verŝajne tiu estus la unua fojo en la historio de TEJO ke oni voĉdonus por vaka loko en la estraro. Oni ne klarigas kial Iracadukunda estas la sola kandidato kiu estus forlasita en 5-membra estraro, krom ke “ŝi ankoraŭ ne bone konas la strukturon de TEJO, kio povas malhelpi esti efika en ĝia estraro.” Por ekscii pri liaj planoj por TEJO, Libera Folio parolis kun la verŝajna prezidonto, Tyron Surmon.
+
+Libera Folio: Kial vi volas esti prezidanto?
+
+Tyron Surmon: – Prezidantiĝo estus natura kulmino al mia plurjara “kariero” en Esperantujo. Mi jam delonge tenis postenojn en la movado kaj multe spertiĝis pri la bezonoj kaj interna funkciado de TEJO. Konsidere tion, kaj la fakton ke mi ankoraŭ ĝuas la privilegion ke mi povas kaj fari mian “realan” laboron kaj dediĉi multan tempon al Esperanto, estas sencohave nun preni tiun paŝon.
+
+Kiuj estos viaj planoj kaj prioritatoj kiel prezidanto?
+
+– Sendepende de miaj propraj iniciatoj, mi konscias ke la ĉiutagaĵoj pri la bontenado de TEJO okupos la plejparton de mia tempo. Homoj ofte ne komprenas ke kvankam TEJO reprezentas junajn esperantistojn kaj provizas ilin per servoj, ni ankaŭ estas jura organizo kun pagataj laboristoj, buĝeto de 200 000 eŭroj, kaj multaj devigoj pro tio. Tiu laboro de estraranoj ofte estas kaŝita, sed vere gravegas.
+
+– Pli vaste, kvankam TEJO nun sukcese eliris kelkjaran krizan periodon – ni denove ricevas nian plej grandan subvencion (kaj devus ricevi dum 3 jaroj), povas dungi laborantojn, kaj jam havas landan sekcion pretan gastigi la IJKn en 2024 – mi konscias ke la laboro de stabiliĝo ne plene finiĝis. Ĉefe, ni devas pliprofesiigi kiel ni mastrumas la proprajn financojn, kaj kvankam estas tre ĝojige ke TEJO denove povas havi plentempajn laborantojn, la organizo devas multe adaptiĝi por plej bone utiligi tion. Ĉi tie mi ankaŭ aldonos ke ĝis nun en la estraro mi multe laboris pri AKSO, kaj mi vere volas ke tiu projekto baldaŭ havu kontentigan finon.
+
+– Krom tio, malfacilas listigi ĉiujn miajn ideojn. Pri unu kampo, mi kredas ke TEJO povus fari multe pli por atingi neesperantistojn kaj informi pri nia kara afero. Espereble dum la sekva mandato, konsidere ke ni havos plentempan komunikiston, ni povos multe pli prioritatigi tiun laboron.
+
+Nur ses homoj kandidatiĝis por la estraro, kion TEJO devas fari por allogi pli da aktivuloj?
+
+– Mi ne tiom maltrankviliĝas ke nur ses homoj kandidatiĝis por la estraro. Je ĉiuj niveloj, TEJO estas multe pli vigla (almenaŭ laŭ mia perspektivo) ol kiam mi ekaktivis antaŭ 5 jaroj, eĉ malgraŭ la efikoj de la pandemio. Verŝajne ni simple havis malbonŝancan jaron, ekzemple kelkaj nunaj estraranoj jam estis en la estraro dum multaj jaroj, do kompreneblas kial malpli da homoj ol kutime decidis rekandidatiĝi. Aldone, estis multaj aktivuloj kiuj estas je la sojlo de estraraniĝo, sed ne sentis sin plene pretaj ĉi-jare – do povus esti ke venontfoje la kandidatoj multe pli abundos. Mi ankaŭ forte kredas ke se ĉiuj membroj de 5- aŭ 6-kapa estraro efike laboros, ni ne sentos la mankon de aldonaj homoj.
+
+– Unu longdaŭra solvo temas pri la ĝenerala pliprofesiigo de la interna funkciado de TEJO. Ĝuste nun, estraranoj kaj devas gvidi la strategion de la organizo, kaj ofte devas mem fari multe el tiu laboro. Kompare al aliaj internaciaj junularaj organizoj, estas nekutime ke aferoj kiel la preparado de la buĝeto aŭ pago de salajroj estas la respondecoj de volontula estrarano, anstataŭ de taskita dungito. Konsidere ke TEJO denove ricevas nian administran subvencion, mi esperas ke ni povos evoluigi la organizon tiel, ke la ĉiutagaĵoj estos la respondeco de specifaj dungitoj, kaj estraranoj povos fokusiĝi pli al la kreemaj kaj strategiaj taskoj. Tiel, se la laborŝarĝo de estraranoj iĝos malpli, ni espereble povos konvinki pli da aktivuloj kandidatiĝi.
+
+Robert Nielsen
+
+
+---
+
+# Martin Wiese: Barakte kun la tempo, sed ne vane
+
+**Published:** 2023-07-18
+
+**URL:** https://www.liberafolio.org/2023/07/18/martin-wiese-barakte-kun-la-tempo-sed-ne-vane/
+
+**Categories:** kulturo
+
+Martin Wiese ekde la 1980-aj jaroj estas unu el la plej konataj nomoj inter la esperantistaj muzik-amantoj. Post severa kronvirusa infekto, li resaniĝis kaj ĵus publikigis novan albumeton kun la titolo Vestiĝoj . En intervjuo de Rogener Pavinski li rakontas pri sia muziko kaj la nova albumo.
+
+Aktiva ekde de la 1980-aj jaroj, kiam li debutis kun la unua Esperanta rokmuzika grupo Amplifiki, la svedo Martin Wiese (60) estas unu el la plej gravaj kaj longtempaj muzikistoj en Esperantujo. Post fekunda kariero kun Persone, Martin ekigis propran karieron, akompanate de muzikistoj, kiujn li nomis La Talpoj. En ĉi tiu formato li lanĉis la albumojn Pli ol Nenio (2007), Superbazaro (2014) kaj ĵus, per la eldonejo Vinilkosmo, la mallongan albumon Vestiĝoj .
+
+Mi estas deklarita admiranto de Martin, tial min konsternis, kiam en la komenco de la jaro 2021 aperis la informo ke li serioze malsaniĝis pro kovimo. Feliĉe li ne nur resaniĝis, sed ankaŭ sukcesis rehavi – ne sen granda klopodado − siajn muzikajn kapablojn por liveri al la Esperantista komununo novan artan produkton.
+
+Ordinare, la komponado kaj produktado de muzika albumo jam estas en si mem laboriga kaj temporaba defio. Se ni aldonas al tio la sanproblemojn, kiujn alfrontis Martin, la apero de Vestiĝoj estas okazo, kiu devas esti celebrata. Sed tuj post la apero de la albumo en Interreto, Martin mem plendetis en sia Facebook pri la manko de reagoj pri la nova albumo. Mi povas kompreni la senton pri malpleno − en Esperantujo ĉiam mankis radioj, revuoj aŭ forumoj, en kiuj oni serioze diskutus la artan produktadon.
+
+Aldone, se ni komparas la nunan muzikan produktadon kun tiu de antaŭ 10 aŭ 20 jaroj, la ŝrumpo estas evidenta. Kun kelkaj pinĉitaj esceptoj, la kvalito de la muzikaj albumoj en la jaroj 2000 superas tiujn de la plej lastaj jaroj. Martin Wiese estas artisto, kiu ĉiam puŝadas alten la nivelon, sed tamen la 6-titola albumeto ne konkeris min tuj je la unua aŭdigo, mi devis aŭskulti ĝin kelkfoje por ĝin ekensorbi.
+
+Kvankam la sonkvalito de Vestiĝoj ne atingas la nivelon de liaj antaŭaj Talpaj albumoj, Martin asertas ke li ĝuis la procedon − por la unua fojo Martin mem zorgis pri la sonmiksado − faritan en angulo de sia dormĉambro. Kun la evoluo kaj popularigo de teknikaj rimedoj, kreskas la tendenco ke la artistoj ĉion faru hejme anstataŭ elspezi por profesiaj studioj. Tio evitigas altajn kostojn kaj ebligas al artistoj mem kaj ludi kaj lerni pri ĉiuj detaloj de sia muziko, sed la evoluo de la afero pripensigas: ĉu el ribelemaj kaj bruemaj junuloj en garaĝoj, rokmuziko iĝis nun hobio de mezaĝuloj en ties dormoĉambroj?
+
+Ironion for, la stilo, kiun Martin prezentas en Vestiĝoj estas mola poproko kun mallongaj, rektaj kantoj, preskaŭ sen enkonduko. Ĉiu peco havas rokmuzikan instrumentaron (gitaro, basgitaro kaj drumo), sed akustika gitaro kiel bazo kaj kantado pli tenera rezultas je malpli roka sono ol ekzemple la antaŭa Superbazaro . Escepto estas Tempo, lasta kaj la plej energia kanto, en kiu Martin liberigas sian voĉon kaj krias:
+
+Tempo, tempo, iru lante, Baraktas mi, sed vante. Mi strebas sed mi mortos klopodante.
+
+Fakte, tempo iru lante, por ke ni dumlonge ankoraŭ havu Martin inter ni.
+
+Rogener Pavinski: En la komenco de la jaro 2021 la Esperanta komunumo ricevis la informon, ke vi serioze malsaniĝis pro kovimo dum la jarŝanĝo 2020/2021. Kiel vi fartas nun?
+
+Martin Wiese: – Mi ankoraŭ suferas de postkovimo kun malregule reaperanta doloro, konstanta laceco kaj ”cerb-nebulo”, kaj aldone ankoraŭ restas iomete da simptomoj de la infektiĝo de la nerva sistemo, kiu okazis tuj post la kovim-infekto komence de la jaro 2021. Tiam mi dum semajno pli malpli perdis la konscion kaj tute perdis kontrolon de mia korpo tiel ke mi ne povis stari, paŝi aŭ eĉ sidi sen apogo, kaj la brakoj kaj manoj tiom tremis ke mi ne kapablis teni ion en miaj manoj.
+
+– Feliĉe jam de du jaroj mi preskaŭ tute regajnis la regadon de mia korpo, sed restas iometaj problemoj kun ekvilibro kaj fajnaj movoj. Ĉio ĉi kompreneble havis katastrofan efikon al mia muzikumado, sed kun multege da ekzercado mi pli malpli rehavis la kapablon ludi gitaron kiel antaŭe. Miaj fingromovoj estas iomete malpli precizaj, sed mi povas kompensi tion per multa ekzercado kaj koncentriĝo.
+
+Ĉu Vestiĝoj estis ekkomponita jam antaŭ la malsaniĝo? Ĉu tio influis la laboron pri la albumo?
+
+Jes, pluraj kantoj estis jam komponitaj kaj eĉ registritaj antaŭ la pandemio, kaj mi kelkfoje ludis ilin koncerte. Sed jam dum la jaro antaŭ la pandemio mi havis multe da sanproblemoj kiuj malhelpis al la produktado de la albumeto.
+
+Vestiĝoj estas via unua albumo kiu ne aperas fizikforme, ĉu vi bedaŭras tion?
+
+– Mi elkreskis kun vinilaj diskoj kaj iliaj ofte bele ellaboritaj kovriloj, kaj ankaŭ dum la epoko de kompaktdiskoj ĝenerale ĝuis muzikon albumforme kun la kovrilo en miaj manoj, sekvante la tekstojn kaj studante informojn pri la muzikistoj, instrumentoj uzitaj ktp. Pro tio mi certe bedaŭras ke mia muziko ne plu eldoniĝas fizike, sed mi devas konfesi ke mi mem ĉefe aŭskultas muzikon bitforme/elsendflue. Fojfoje mi aĉetas vinil- aŭ kompaktdiskon por havi la kovrilon kaj eventualan tekstkajeron, sed tamen malofte ludigas la diskon mem.
+
+Kiel la kantoj de Vestiĝoj estis registritaj? Ĉu la Talpoj estis la samaj kiel en la pasintaj albumoj?
+
+– Mi registris ĉiujn miajn partojn hejme en mia dormĉambro, kie mi havas angulon kun modesta hejmstudio. Plej ofte mi registris gitarojn kaj kantadon kun apogo de la ”virtuala drumisto” kiu venas kun la muziksoftvaro Logic Pro, kaj mem aldonis skizan basgitaron.
+
+– Poste mi sendis skizan mikson sen drumo al la drumisto por ke li registru la drumon en sia provludejo/studio, kaj same al la basisto (en la kazoj kiam mi ne mem ludis la basgitaron), sed kun la ĝusta drumo kaj sen baso, kompreneble. Poste ili sendis al mi siajn registraĵajn dosierojn, kaj kun ĉiuj bazaj elementoj surloke mi plu laboris pri harmonia kantado, aldonaj gitaroj ktp, kaj foje refaris miajn partojn se mi sentis ke ili devus pli kongrui kun la ludado de la aliaj muzikistoj.
+
+– La talpoj estis parte la samaj kiel antaŭe, kvankam ili ja neniam estis tute la samaj en ĉiuj kantoj ene de unu albumo. En du kantoj mi kunlaboris kun muzikistoj kiuj neniam aperis en miaj albumoj antaŭe: en Vestiĝoj la basgitaro estas ludata de Robin Hawkins el Kimrujo, kiu estas ege lerta muzikisto kaj iama membro de la bando The Automatic; en Tempo ludas la sveda drumisto Nikko Harrison, kiu neniam antaŭe registris kiel talpo, sed estis la drumisto en la koncertoj dum UK en Lillo, Francio. Ankaŭ Eric Languillat estis reaperinta gasto en unu kanto.
+
+Pro kiuj kialoj vi decidis fari mem la miksadon de la albumo?
+
+– Mi elektis mem miksi unue ĉar mi volis havi la eblon labori malrapide iom post iom, laŭ la tempo de la finregistrado de la kantoj, kaj due ĉar mi volis plispertiĝi en la metio. Mi tute amuziĝis kaj ĝuegis tiun laboron, kaj mi devas diri ke mi kontentas pri la rezulto.
+
+Sur la kovrilo de Vestiĝoj via desegnita vizaĝo estas distranĉita en tri pecojn. Ĉu vi povus rakonti iom pri la ideo malantaŭ ĝi?
+
+– La kovrilo estis farita de grafika artisto kaj esperantisto, Max Elbo. Mi ne multe diskutis la bildon kun li, ĉar por mi estas evidente ke li inspiriĝis de la albumtitolo. Interesa afero estas ke ĝi estis farita antaŭ mia malsaniĝo en kovimo, ĝi ja fariĝis tre kongrua kun mia stato, tute senintence. Cetere ankaŭ la kovrila artaĵo de Superbazaro estis farita ne de mi, sed de bona amikino mia, Johanna Möller, kiu estas profesia grafika dezajnisto. Nur la kovrilon de Pli ol nenio mi mem desegnis.
+
+Laŭ informoj, estas planoj lanĉi novan plene akustikan albumon, ĉu temas pri samaj kantoj sen la aliaj elektraj muzikiloj?
+
+– La akustika albumo estos – se ĝi realiĝos – memstara ”gefrata albumo” al Vestiĝoj kun originalaj kantoj komponitaj kun la celo esti pure akustikaj. Unu estas jam de longe registrita, kaj du-tri havas muzikon komponitan sed ankoraŭ sen teksto.
+
+Ekde Superbazaro jam pasis 9 jaroj. Ĉu vi pensadis ankaŭ pri tio kiam vi verkis Tempo, la lastan kanton de Vestiĝoj ?
+
+– Jes, estas terura penso ke tiom da tempo pasis post Superbazaro . Certe tio estis unu el la aferoj kiuj influis al la teksto de Tempo, kiu estis ankaŭ la laste verkita el la ses pecoj. Mi tiam havis la impreson ke mi neniam sukcesos kompletigi la albumeton pro amaso de obstakloj, malsanoj kaj devoj.
+
+– En mia aĝo la limigita longo de la vivo fariĝas pli kaj pli palpebla, kaj tial ĉiuj obstakloj kiuj malproksimigas la celojn estas des pli malkuraĝigaj. La muziko estas ja, bedaŭrinde, nur hobio mia, kaj ĉiam mi sentas ke mi ne havas sufiĉan tempon por fari tion, kion mi plej amas.
+
+Vi fariĝis 60-jara antaŭ nelonge, kiomjara vi estis kiam vi registris la unuan kasedon kun Amplifiki? Ĉu junaĝe vi pensis ke vi muzike aktivos ĝis nun?
+
+– Se mi ĝuste kalkulas, mi havis tiam 23 jarojn, kaj en tiu tempo mi verŝajne ne havis klaran ideon pri mi mem kiel 60-jarulo. Sed mi verŝajne imagis muzikon kaj arton kiel vivdaŭrajn pasiojn.
+
+Kaj ĉu vi havis la imagon ke via muzika talento transdoniĝos al viaj filinoj, kiel aspektas kun Inez, kiu videble bonege kantas? Ĉu vi instigis ilin al muzikado?
+
+– Ambaŭ miaj filinoj estas muzike tre talentaj, kvankam nur la pli aĝa, Inez (kiu havas 20 jarojn) celas al profesio en la muzika kampo. Ŝi studis jam unu jaron en tri-jara muzikala, artista edukejo kaj laboras forte kun granda sindediĉo por atingi siajn celojn. Por ŝia malgranda fratino (Ester, 17) la muziko estas hobio en kiu ŝi engaĝiĝas en periodoj, lastatempe estis ĉefe drumo, sed antaŭe ŝi ankaŭ kantis kaj ludis pianon.
+
+– Por vi estas eble interese scii ke ŝia preferata muzikstilo estas metalroko. Mi ne scias ĉu talento transdoniĝas inter generacioj, ĉiukaze ilia talento estas multe pli granda ol la mia. Mi ne konscie puŝis ilin al muzikumado, sed mi ja ĉiam mem aŭskultis kaj mem faris muzikon hejme. Verŝajne tiel ili konsciiĝis ke muziko estas io kion oni povas mem fari, kaj mi ĉiam faras kion mi povas por faciligi ilian muzikumadon, ekzemple per provizo de dezirataj instrumentoj, helpo kun registrado ktp.
+
+Kiel la panoramo de la Esperanto-muziko, precipe de la lastaj jaroj, aspektas al vi?
+
+– Nu, dum la lastaj kvar jaroj mi ne partoprenis en kongresoj aŭ renkontiĝoj kaj pro tio verŝajne maltrafis kelkajn novajn artistojn. Sed mia impreso estas ke la sceno havis kulminan periodon dum eble la unua jardeko de la nova jarcento kun multe da altkvalitaj originalaj artistoj kaj ankaŭ multe da altkvalitaj aranĝoj, kie la artistoj havis la eblon koncerti sub bonaj kondiĉoj.
+
+– Eble mi misjuĝas, sed mia impreso estas ke de kelkaj jaroj (eĉ antaŭ la pandemio) estas pli malfacile trovi bonajn koncertajn eblojn. Espereble la esperanta muziksceno revenos kun pli da forto.
+
+Kio pri la panoramo pri rokmuziko ĝenerale? Junuloj ŝajne ne plu interesiĝas pri ĝi. Ĉu la tempo de rokmuziko jam pasis, laŭ vi?
+
+– Mi ne scias ĉu tiu aserto estas tute ĝusta. Evidente rokmuziko prenas multe malpli grandan parton en la ĝenerala muzikfluo tra la mondo, sed, kiel mi jam rakontis antaŭe, unu el miaj filinoj aŭskultas ĉefe metalrokon, kaj unu el ŝiaj plej bonaj amikinoj kantas (aŭ pli ĝuste graŭlas) en metalroka bando. Ambaŭ miaj filinoj ofte vizitas koncertojn de bandoj de iliaj geamikoj kaj konatoj, kaj mi surpriziĝas pro la granda nombro de rokbandoj inter tiuj.
+
+– Multe okazas sub la surfaco kiun montras al ni la grandaj amaskomunikiloj. Mia impreso estas ke nuntempe la torĉo de (ĉefe sendependa) roko estas portata de junaj virinoj kiel interalie Phoebe Bridgers, Lucy Dacus, Snail Mail, Wet Leg kaj Courtney Barnett, ĉiuj brilaj artistoj kiujn mi tre admiras. Eble la tempo de la grandaj viraj rok-herooj jam forpasis.
+
+Ĉu ni povas esperi ĝui vivan koncerton de Martin kun la Talpoj iam baldaŭ?
+
+– La espero ĉiam restos, sed kiel jam dirite la okazoj estas nuntempe tre malmultaj. Lastfoje kiam mi ricevis inviton veni kun tuta bando neniu el miaj kutimaj kunmuzikistoj povis liberiĝi, sed la volo restas.
+
+– Fine mi volas aldoni ke kvankam la albumeto certe ne plaĉos al ĉiuj, mi estas mem tre kontenta kaj eĉ fiera, ĉefe ĉar mi finfine kun multa peno sukcesis supervenki ĉiujn obstaklojn kaj liveri pretan produkton. Espereble ĝi trovos aŭskultantojn.
+
+Rogener Pavinski
+
+
+---
+
+# Latino iĝis minuskla en nova Pomego
+
+**Published:** 2023-07-25
+
+**URL:** https://www.liberafolio.org/2023/07/25/latino-igis-minuskla-en-nova-pomego/
+
+**Categories:** kulturo
+
+Komence de julio Bertilo Wennergren lanĉis novan version de sia klasika Plena Manlibro de Esperanta Gramatiko, PMEG 2023. Ĝi estas kiel kutime libere havebla en la reto. Samtempe aperas ankaŭ ĝisdatigita versio de la presita Detala Gramatiko de Esperanto. Libera Folio petis lin rakonti, kio estas nova en la Esperanta gramatiko.
+
+Ĵus estis lanĉita versio 15.4 de PoMEGo sub la nomo PMEG 2023. Ĝi estas havebla en la ordinara reta versio , kaj ankaŭ elŝutebla kiel HTML kaj kiel PDF.
+
+PMEG 2023 aperas samtempe kiel nova versio de la Detala Gramatiko de Esperanto, kiu estas mallongigita versio de PMEG 2023 kun tradiciaj gramatikaj terminoj. Ĝin eldonas E@I.
+
+Libera Folio: Kiuj estas la ĉefaj ŝanĝoj?
+
+Bertilo Wennergren: – Kelkaj sekcioj estas restrukturitaj aŭ preskaŭ tute reverkitaj por plia klareco, ekz. 9.3. ”Pli ol unu difinilo” en la ĉapitro pri difiniloj, kaj ankaŭ la teksto pri la vorteto ”po” en 12.3.6.8 . Ialoke mi movis klarigojn el unu sekcio en alian, kie ili pli logike taŭgas, ekz. la teksto pri la verboj ”komenci”, ”komenciĝi”, ”fini” kaj ”finiĝi” estas movitaj de 38.2.18. IĜ (en la parto Vortfarado) al IĜ-verboj (en Verboj kaj frazroloj).
+
+– Tra la tuta verko mi transiris al minuskla skribo de lingvonomoj kiel ”latino” kaj ”sanskrito”. Kvankam laŭ mi estas logike skribi tiajn nomojn majuskle, en la praktika uzado minuskla skribo estas plene superrega. Multaj el la plibonigoj de PMEG 2023 fakte okazis, dum mi laboris pri la Detala Gramatiko , ĉar ne malofte simpligoj kaj rearanĝoj, kiujn mi faris en tiu verko, subite ŝajnis al mi superaj al la aranĝo en PMEG, kaj mi do transprenis ilin ankaŭ tie. Pli kompletan liston de la ŝanĝoj oni povas trovi en la TTT-versio de PMEG .
+
+Ĉu io aparte grava ŝanĝiĝis?
+
+– Laŭ mi nur temas pri plia klareco kaj ie kaj tie pri kompletigoj pri fajnaj detaloj. Nenio revolucia okazis, krom eble se oni rigardas ŝanĝon de uskleco de la vorto ”latino” kiel gravan aferon.
+
+Kiu estas Detala Gramatiko de Esperanto , kaj kiel ĝi diferencas de PMEG?
+
+– La Detala Gramatiko estas verko, kiun mendis de mi E@I, origine por la TTT-ejo ”lernu!”, ĉar ekzistas bezono por iom pli baza verko, kiu ne traktas la multajn profundajn kaj iafoje tre fajnajn nuancojn kaj specialaĵojn, kiuj abundas en PMEG, kaj ankaŭ por verko, kiu uzas tradiciajn gramatikajn terminojn anstataŭ la aparta terminologio de PMEG, do ekz. ”substantivo” anstataŭ la PMEG-a ”O-vorto”, aŭ ”predikativo” anstataŭ ”perverba priskribo”. La Detala Gramatiko estas kaj pli mallonga, kaj pli facile digestebla verko (208 paĝoj kontraŭ la 744 paĝoj de PMEG 2023), kaj ankaŭ signife malpli kosta kiel libro (la reta versio de PMEG tamen estas kiel ĉiam senkosta).
+
+– La unuaj du eldonoj de la Detala Gramatiko vendiĝis tre bone, kaj mi supozas, ke ankaŭ la nova tria eldono rapide elĉerpiĝos. Inter la versio de PMEG en 2005, sur kiu baziĝis la unuaj du versioj de la Detala Gramatiko , kaj PMEG 2023, tamen okazis multaj gravaj ŝanĝoj en PMEG, precipe en PMEG 2020. La nova Detala Gramatiko estas bazita sur PMEG 2023. Sekve ĝi estas plurloke grave alia ol la unuaj eldonoj. Mi kompilis ĝin entute plene nove, el PMEG 2023, tenante plejparte la saman strukturon kiel en la unuaj eldonoj, sed en multaj lokoj faris alian elekton pri tio, kion mi tenis, kaj tio, kion mi ellasis el PMEG.
+
+Kiuj estas la celgrupoj de la malsamaj versioj?
+
+– Por novaj lernantoj supozeble pli taŭgas la Detala Gramatiko , ĉar ĝia enhavo estas la esenca gramatiko, kiun oni bezonas scii. Tamen povas esti, ke tiuj, kiuj ne regas tradician gramatikan terminologion, tamen volas tuj aliri PMEG-on. Ĉiu decidu por si mem.
+
+Ĉu do estos du apartaj novaj presitaj libroj? Kiam?
+
+– Ne ekzistas nun konkretaj planoj pri nova papera eldono de PMEG, sed eble iam tio okazos. La nun aktuala papera eldono estas de 2020, de kiam pasis nur tri jaroj, kaj tiu eldono estas plu tute bone uzebla. Sed eble post du jaroj aŭ simile povos esti tempo por nova papera PMEG. Multo dependas de la pritakso de la eldonanto.
+
+Se mi jam havas la du pli fruajn presitajn Pomegojn, kial mi aĉetu trian?
+
+– Se vi estas fanatika PMEG-amanto, vi kompreneble volos havi ankaŭ la trian eldonon. Sed vi do ankoraŭ ne bezonas decidi, kiom fanatika vi estas. Sed – kiu scias? – eble en 2025 mi estos farinta ankoraŭ pli da gravaj modifoj de PMEG, kaj la verko montriĝos tiom multe pli bona, ke ĉiuj volos ĝin nepre havi.
+
+
+---
+
+# Dek jaroj de reteja renovigo
+
+**Published:** 2023-07-26
+
+**URL:** https://www.liberafolio.org/2023/07/26/dek-jaroj-de-reteja-renovigo/
+
+**Categories:** UEA, interreto, movado
+
+La 26-a de julio markas la dekjaran jubileon de la reteja renovigo de UEA. La projekto estis indikita kiel prioritata jam en 2013, sed ĝis nun rezultoj ne videblas. Laŭ TEJO la sistemo nun pretas, sed daŭras diskutoj inter UEA kaj TEJO pri testado kaj reciprokaj respondecoj.
+
+La 26-an de julio 2013, dum la Universala Kongreso en Rejkaviko, la komitato de UEA akceptis kun tri sindetenaj voĉoj la proponon de la estraro rezervi 100 000 eŭrojn el la asocia kapitalo por la renovigo de la retejo. Tiu projekto iĝis unu el la ĉefaj prioritatoj de la asocio.
+
+Dum la komitata diskuto, komitatano Denis Keefe laŭ la protokolo demandis, por kiu celgrupo estas planata la nova retejo:
+
+”Li opinias, ke ĝi celu la ĝeneralan publikon kaj ke estu aparta subretejo por la membroj. Fettes respondas, ke la retejo estos tia, do malsimila al la nuna, kiu celas praktike nur la membrojn”, la protokolo registris.
+
+– Ni ege konscias pri la graveco de komunikado kun la membroj, kaj ankaŭ kun la ĝenerala publiko. Tial ni pretas prioritate investi en la konstruo de nova retejo. Ankaŭ la revuo spertos kelkajn ŝanĝojn en stilo kaj enhavo, poste diris la nova prezidanto de UEA, Mark Fettes, en sia unua intervjuo kun Libera Folio .
+
+Spite la prioritaton, efektiva laboro pri nova retejo por UEA komenciĝis nur en 2017 .
+
+Kvin jarojn post la decido, triono el la mono estis elspezita, sed daŭre mankis nova retejo. Tamen jam tiam, dum la Universala Kongreso en Lisbono 2018, la komitato decidis pri nuligo de la papera Jarlibro, kiun anstataŭu la nova retejo. La nuligo tuj okazis, la retejo ne.
+
+Por restartigi la retejan projekton, UEA en 2019 faris kun TEJO interkonsenton pri la projekto. La precizaj kondiĉoj de la kontrakto ne estas publike konataj, sed evidente en la praktiko la administra subvencio de EU poste estis uzata por financi la laboron.
+
+– Mi ne kuraĝas prognozi la daton de plena transiro al la nova reteja sistemo, ĉar mi ne sufiĉe regas la koncernajn laborkondiĉojn. Mi povas nur diri ke tio restas prioritato por mi kaj mi provas akceli la laboron laŭ mia povo, diris la eliranta prezidanto Mark Fettes al Libera Folio en julio 2019.
+
+En 2020 Mark Fettes petis de la nova estraro raporton pri la progreso de la reteja projekto, kiu intertempe ricevis la nomon ”AKSO”, kaj krom nova retejo devis doni al UEA ankaŭ novan administran sistemon. Tiam vicprezidanto Fernando Maia respondis al demando de Libera Folio, ke ”lanĉo de unua parto estas planita por la dua jarduono de 2020”.
+
+Iom poste prezidanto Duncan Charters antaŭvidis lanĉon la 15-an de decembro 2020. Dum komitata kunsido samjare li modifis sian eldiraĵon:
+
+– La nuna perspektivo estas, ke ni havu la celon kompletigi la aferon en januaro, kaj plej malfrue en februaro.
+
+Tamen neniu lanĉo okazis.
+
+Poste oni prognozis funkciigon de la nova sistemo en septembro 2022, sed ankaŭ tiu lanĉo ne okazis. En oktobro 2022 Libera Folio povis raporti , ke la nova prokrasto ŝuldiĝis al malkontento de la estraro de UEA, kiu trovis la sistemon mankohava kaj ne pretis transpreni la respondecon pri ĝi.
+
+En majo 2023 TEJO informis en sia cirkulero, ke oni ”sukcese liveris la provlanĉon de la sistemo al UEA”. Tamen laŭ informoj de Libera Folio , en junia kunsido inter TEJO kaj UEA mankis interkonsento inter la gvidantoj de UEA pri pluaj paŝoj, kaj la tuta afero denove estis prokrastita .
+
+Laŭ Tyron Surmon, la respondeculo de TEJO pri la projekto kaj estonta prezidanto de la junulara asocio, TEJO siaflanke kontentas pri la nuna stato de AKSO.
+
+– En majo ni sukcese liveris la provlanĉon – uzante la sistemon kun veraj UEA-datumoj – kaj AKSO montris sin esti plene kapabla. Aldone, ni jam uzis ĝin por la administrado de la ĉi-jara IJK, kie ĝi signife reduktis la administran laboron por la organiza teamo. La ĉefaj farendaĵoj nun ne estas teknikaj, sed organizaj: do por certigi ke ĉiuj kontentas pri la nova retejo kaj administra sistemo, kiel kaj kiam lanĉi, kaj la estontaj financaj kaj mastrumaj aranĝoj por la sistemo.
+
+– Kvankam mi prezidantiĝos, en la nova estraro de TEJO mi restos kiel la respondeculo por AKSO. Unu el miaj ĉefaj prioritatoj por la sekva mandato estas kontentige fini la projekton, kaj kunlabore kun UEA mi forte esperas ke tio eblos dum la sekvaj monatoj.
+
+Aleks Kadar, ĝenerala sekretario de UEA, siavice diras ke la nova sistemo efektive devis preti jam antaŭ pli ol du jaroj:
+
+– Laŭ la kontrakto TEJO devis liveri la pretan sistemon ĝis oktobro 2020. En majo 2023 TEJO anoncis al UEA, ke ĝi pretas. Ekde tiam okazas diskutoj kun TEJO kaj ene de la Estraro de UEA pri kompleta testado de la sistemo, el vidpunktoj kaj programista kaj de uzantoj. Kaj pri postaj paŝoj, interalie pri prizorgado de la sistemo en la venontaj monatoj.
+
+En la oficialaj publikaj komunikoj de UEA mankas ajnaj informoj pri la progreso de la reteja projekto. Ĝin tute ne mencias la aktuala estrara raporto . Same mankas informoj pri ĝi en la revuo Esperanto , kiu cetere silentas ankaŭ pri aliaj gravaj okazaĵoj en la asocio.
+
+Pli pri la temo:
+
+Komitato akceptis elspezon de 100.000 eŭroj por retejo (2013)
+
+Fettes promesas zorgan esploron de retejaj planoj (2013)
+
+UEA komencas renovigon de sia retejo (2017)
+
+UEA uzis 33.000 eŭrojn por nova retejo (2018)
+
+UEA jam pagis 70 000 eŭrojn por nova retejo (2020)
+
+Pliaj 23 500 eŭroj por iam kompletigota retejo (2020)
+
+EU kunfinancas la novan retejon de UEA (2022)
+
+UEA ne kontentas pri sia nova retejo (2022)
+
+UEA denove prokrastas la novan retejon (2023)
+
+
+---
+
+# Mondfama kantisto forgesis Esperanton
+
+**Published:** 2023-07-30
+
+**URL:** https://www.liberafolio.org/2023/07/30/mondfama-kantisto-forgesis-esperanton/
+
+**Categories:** UEA, movado
+
+La mondfama blinda kantisto Andrea Bocelli sendis siajn salutojn al la solena inaŭguro de la Universala Kongreso en Torino. Li rakontis, ke li lernis la fundamentojn de Esperanto de sia piana instruisto, sed poste forgesis la lingvon. La komitato de UEA elektis novan honoran prezidanton, sed prokrastis la elekton de nova elekta komisiono, ĉar mankis kandidatoj.
+
+La ĉi-jara Universala Kongreso de Esperanto en Torino, Italio, estis solene inaŭgurita ekde la 10-a horo matene dimanĉe la 30-an de julio. Aliĝis al la kongreso 1249 esperantistoj el 65 landoj, el kiuj fizike ĉeestis la inaŭguron eble 800 personoj. Plia trideko da homoj sekvis la rektan elsendon de la inaŭguro, kiu ĝis dimanĉe posttagmeze sume estis spektita iom pli ol 300-foje.
+
+En sia festparolo Duncan Charters, la prezidanto de UEA, diris, ke UEA estas en “strategie kerna pozicio por profiti la potencialojn de la moderna mondo”. Li instigis plibonigi la interhomajn rilatojn ene de la movado kun pli da interkompreno, aŭskulto kaj pacienco.
+
+Michela Lipari, la prezidanto de Loka Kongresa Komitato, parolis pri la gastamo de la kongresa urbo kaj aparte menciis pri la interesiĝo de la televido pri la kongreso.
+
+En la inaŭguro estis voĉlegita ankaŭ mesaĝo de la mondfama blinda kantisto Andrea Bocelli, kiu fieris esti elektita al la Honora Komitato de la kongreso. Li kun amo memoris sian esperantistan instruiston de pianludo, ĉe kiu li ekhavis bazajn sciojn pri la lingvo. Li tamen poste forgesis la lingvon, sed konservis karajn memorojn.
+
+Cetere Andrea Bocelli estis membro de la honora komitato ankaŭ de la 91-a UK en Florenco en 2006.
+
+Jam en la sabata vespero ekster la kongresejo en bona vetero sukcese okazis la movada foiro, kie diversaj organizaĵoj prezentis sian agadon.
+
+Sabate posttagmeze okazis ankaŭ la hibrida kunsido de la komitato de UEA, kiun 34 komitatanoj partoprenis ĉeeste kaj ses rete. Oni interalie elektis novan estraranon, Gong Xiaofeng el Ĉinio.
+
+Ŝi nun apud Aurora Bute estas la dua virino en la estraro de la asocio. Ŝi estis unue elektita kiel komitatano C, kio estas necesa por esti elektebla al la estraro. Por ŝia komitataneco balotis 37 komitatanoj A kaj B, el kuj 36 voĉdonis pore kaj unu sin detenis.
+
+Komitatanoj C estas elektataj de komitatanoj A, kiuj reprezentas la landajn asociojn de UEA, kaj de komitatanoj B, kiuj reprezentas la individuajn membrojn de la asocio. Komitatanoj C ne partoprenas en la elekto de novaj komitatanoj C.
+
+Poste pri la estraraneco de Gong Xiaofeng voĉdonis ĉiuj 40 komitatanoj. El ili 39 voĉdonis por ŝi kaj unu kontraŭ.
+
+La prezidanto de UEA, Duncan Charters, motivis la elekton de plia, naŭa estrarano per la bezono havi pli da laborfortoj en la estraro, kiu nuntempe pro la maldungoj de la oficistaro devas mem prizorgi pli da taskoj.
+
+La prezidanto vidas ke la nova estrarano havos gravan rolon pri subteno al la instruado de Esperanto. Li krome emfazis, ke estas avantaĝe havi neparan kvanton de estraranoj, por ke okaze de voĉdonado la poraj kaj kontraŭaj voĉoj ne estu egalkvantaj. Reale tiel tamen ankaŭ ĝis nun neniam okazis.
+
+Poste la komitato akceptis elekton de tri novaj honoraj membroj kaj unu honoran prezidanton per inter 34 kaj 39 voĉoj por ĉiu kandidato. La nomoj de novaj membroj poste estis publikigitaj en la solena inaŭguro en dimanĉo.
+
+Kiel honora prezidanto estis elektita Renato Corsetti, kiu oficis en la estraro de UEA de 1980 ĝis 1986 kaj 1998 ĝis 2007, la lastajn ses jarojn kiel prezidanto. Kiel honoraj membroj estis elektitaj Katalin Kováts, Anna Löwenstein kaj Privas Tchikpe.
+
+Katalin Kováts estas la fondinto kaj redaktoro de la paĝaro Edukado.net. Ŝi estis ano de la Akademio de Esperanto de 2007 al 2022 kaj estis proklamita Esperantisto de la Jaro en 2010. En UEA ŝi estas ekde 2009 la motoro de la Ekzamenoj laŭ la Komuna Eŭropa Referenckadro (KER-ekzamenoj) kaj same unu el la ĉefaj instruistoj de Interlingvistikaj Studoj ĉe Universitato Adam Mickiewicz.
+
+Anna Löwenstein laboris en la Centra Oficejo de UEA de 1977 ĝis 1981, kie ŝi redaktis la Jarlibron de UEA en 1981. Ŝi iĝis membro de la Virina Komisiono de UEA en 1979. Sub la nomo Anna Brennan ŝi estis fondinto kaj redaktoro de la revuo Sekso kaj Egaleco de 1979 ĝis 1988, redaktoro de la facila parto de Kontakto (kaj krome verkinto de la listo de 1 000 morfemoj uzataj en la facila parto) de 1983 ĝis 1986. Ŝi estas membro de la Akademio de Esperanto ekde 2001. En UEA ŝi estas la fondinto kaj motoro de la Movada Foiro en la UK-oj. En 2019 ŝi iniciatis la retejon uea.facila, kiun ŝi ĉefredaktoras.
+
+Privas Tchikpe esperantistiĝis en 1981 kiel la unua persono en Benino. Kun kelkaj amikoj, al kiuj li instruis Esperanton, li fondis en la jaro 1983 la unuan landan asocion de Benino. Li daŭre instruis Esperanton en Lokossa, Aplahoué kaj Kotonuo. En 2009 li fondis kun Mireille Grosjean el Svislando la asocion “Scio Sen Bariloj”. Kerna agado de SSB estas la disvastigo de Esperanto kaj virina kapabligo al gvidaj roloj.
+
+La elekto de nova elekta komisiono estis prokrastita al la vendreda kunsido de la komitato, ĉar mankis kandidatoj. En unua, la sabata kunsido de la komitato nur komitatano Margarita Želve el Latvio pretis esti membro de la nova elekta komisiono.
+
+La financa situacio de UEA laŭ la raporto de la estraro survojas al pliboniĝo, unuavice pro la ŝanĝoj en la financa merkato, kie nuntempe sekuraj investoj al ŝtataj valorpaperoj komencas denove doni renton. UEA investis interalie en ŝtataj valorpareroj de Germanio, Francio kaj Finnlando. El tiuj la francaj, kiuj nuntempe estas investitaj nur por trimonata periodo, donas momente la plej bonan gajnon.
+
+Rilate la financojn, UEA tuj antaŭ la kongreso krome diskonigis informon , laŭ kiu la asocio ricevis de Eŭropa Unio administran subvencion de 140 000 eŭroj. Entute temas pri trijara subvencio, sed la sumo de la subvencio dum 2024 kaj 2025 dependos de la agadraportoj kaj de la kvanto de dungitoj.
+
+Laŭ informoj de István Ertl kaj Jukka Pietiläinen
+
+
+---
+
+# UEA respondis malklare
+
+**Published:** 2023-08-02
+
+**URL:** https://www.liberafolio.org/2023/08/02/uea-respondis-malklare/
+
+**Categories:** UEA, movado
+
+Post la buĉo de la Centra Oficejo UEA ne plu havas superrigardon pri la monda Esperanto-movado. Tio evidentiĝis dum la programero “UEA respondas” dum la Universala Kongreso en Torino en mardo. La redaktoroj de la revuo Esperanto en Rusio ricevos helpon de nova estrarano el Ĉinio.
+
+Dum la pasintjara Universala Kongreso en Montrealo la estraro klarigis, ke ne plu okazos la tradicia programero ”Centra Oficejo respondas”. Anstataŭ ĝi, kaj la aparta programero “La estraro respondas”, oni enkondukis la programeron ”UEA respondas”.
+
+En Torino la programero tamen parte fariĝis la kutima ”La estraro respondas”, ĉar dum la unua duono de la kunsido pro familiaj devoj forestis la ĝenerala direktoro Martin Schäffer – la sola kiu respondus pri Centra Oficejo. Ankaŭ post sia reveno li ne donis aparte multajn respondojn.
+
+La kunsidon partoprenis ĉiuj estraranoj de UEA inkluzive de la nova estrarano Gong Xiaofeng. Respondis al demandoj tamen nur la viraj estraranoj, dum neniu el la du virinoj diris ion ajn.
+
+La prezidanto de UEA Duncan Charters referencis al pli frua programero gvidata de iama UEA-prezidanto Humphrey Tonkin ”Kio farendas?” kaj diris, ke multajn aferojn, kiuj tie estis menciitaj kiel farendaĵoj, UEA jam faras.
+
+Inter tiuj laŭ li estas ekzemple virtualaj kunsidoj de la komitato kaj la ”modernigo de la agado”. Jam la plej multaj kunsidoj de la komitato estas virtualaj. Al tio certe intertempe influis la kovimaj limigoj pri vojaĝado. Tamen unu el la kernaj punktoj de tiu modernigo, la nova retejo, ankoraŭ ne estas preta, kvankam laŭ Charters jam okazis progresoj tiurilate.
+
+En sia komenca resumo Charters atentigis pri la neceso organizi komisionojn, kiuj okupiĝu pri diversaj agadkampoj. Tamen pasintece kiam la estraro organizis komisionojn, tio laŭ li fakte kaŭzis nur pli da laboro por la estraro pro kunordigado. Se komisionoj estas organizitaj denove, necesas do eviti tion. Charters emfazis, ke ĉiu membro de la komitato devus alpreni iun respondecan taskon.
+
+Charters menciis ankaŭ enketon, kiun UEA sendis al siaj membroj kaj nemembroj kaj rakontis, ke jam venis ”bonaj respondoj”. Kelkaj ĉeestantoj en la salono tamen ankoraŭ ne ricevis la enketilon.
+
+Laŭ komento dum la programero, la malbona evoluo de la membronombro de UEA speguliĝas en tio, ke lastatempe iu komisiito de UEA vizitis iun urbon kaj renkontis tie 30 esperantistojn. Tamen nur du el ili estis membroj de UEA kaj kiam la komisiito proponis al la ceteraj senpagan membrecon kaj demandis, kiom da homoj volas aliĝi al UEA senpage, neniu el la restantaj 28 volis.
+
+Kelkaj demandintoj plendis, ke iliaj pagoj ne estis traktitaj. Tamen laŭ aserto de estraranoj, la financa fako de UEA nuntempe funkcias pli rapide ol antaŭe. Ankaŭ la prezidanto Charters diris, ke li proprasperte rimarkis tion, kaj li certis ke tio ne temis simple pro tio, ke li estas nun prezidanto.
+
+Aldone al la ĝenerala direktoro kaj la kasisto, kiuj nuntempe administras la financojn, la estraro informis, ke UEA nun trejnas du pliajn personojn por tiu administra tasko. Ne klaris, pri kiuj personoj temas.
+
+Al demandoj pri la financa stato de UEA kaj grandaj diferencoj inter buĝetitaj kaj realaj sumoj, Fernando Maia respondis, ke iuj pagoj estis movitaj el unu buĝetero al alia, kio kaŭzis grandajn diferencojn kompare al la buĝeto.
+
+La kvanto da laborfortoj en la Centra Oficejo forte malkreskis dum la pasintaj jaroj, sed nun antaŭvideblas dungo de novaj oficistoj pro la administra subvencio kiun UEA ricevis, la estraro klarigis.
+
+La vendo de la oficeja domo ankoraŭ ne okazis, ĉar komence la prezo estis iom alta, laŭ la sugesto de makleristoj, kaj estis espero ke iu povos oferti preskaŭ la petitan sumon. Nun la prezo estas malaltigita, kio eventuale faciligas la vendadon.
+
+Se eblus ŝanĝi la uzeblon de la domo tiel, ke estu en ĝi loĝejoj anstataŭ oficejoj, la prezo povus esti pli alta, sed por tio estas bezonata permeso de la nederlandaj aŭtoritatoj, kaj laŭ la estraro ne klaras, ĉu eblus ricevi tian permeson.
+
+Alvenis proksimume 50 kandidatiĝoj por volontule kaj neoficiale labori por UEA. Nun la ĝenerala direktoro analizas la sinproponojn kaj okaze de bezono kaj taŭga persono, iuj taskoj estos donitaj al ili.
+
+Istvan Ertl, iama redaktoro de la revuo Esperanto , plendis pri la manko de aktiva redaktado de la revuo. La nuntempaj redaktoroj laŭ li nur kompilas la gazeton el materialo, kio alvenas, sed apenaŭ aktive redaktas la enhavon.
+
+Estrarano Amri Wandel klarigis, ke almenaŭ pri la enhavo de la junia numero parte kulpas la estraro, kiu ne sukcesis ĝustatempe liveri la ĉi-jaran estraran raporton. La breĉo estis rapide ŝtopita per ses paĝoj da artikoloj pri kongreso en Israelo.
+
+Laŭ la komentoj de la estraranoj evidentas, ke estas strikta ligo inter la estraro kaj la du redaktoroj en Rusio. Amri Wandel aparte menciis kiel pozitivaĵon, ke la revuo donas spacon al la estraranoj, dum prezidanto Duncan Charters laŭdis la redaktorojn pro tio, ke ili povas enmeti liajn tekstojn eĉ nur 24 horojn antaŭ la redaktofino.
+
+La redaktoroj en Rusio laŭ la estraro nun povos ricevi helpon el Ĉinio, ĉar apud instruado, unu el la taskoj kiujn la estraro donas al la nova ĉina estrarano Gong Xiaofeng, estas kontaktoj kun la revuo Esperanto. Ŝi mem tamen nenion komentis pri la afero. La redaktoroj de la revuo Esperanto ne ĉeestis.
+
+De multaj jaroj oni parolas pri presita almanako kun bazaj informoj pri Esperanto-organizaĵoj, kiun UEA intencis publikigi ĉiun trian jaron anstataŭ la nuligita Jarlibro.
+
+Tamen ne klaras, ĉu UEA nuntempe entute havas la informojn, kiuj devus aperi en la almanako. Tio evidente estas unu el la sekvoj de la drasta redukto de la laborfortoj en la Centra Oficejo, kiu antaŭe kunordigis la kontaktojn kaj ĝisdatigis la informojn.
+
+Laŭ Amri Wandel la organizado de ekzemple Movada Foiro fariĝas daŭre pli malfacila, ĉar mankas informoj pri la adresoj de asocioj prezentontaj sin tie, kiujn necesus anticipe kontakti. La ĝenerala sekretario Aleks Kadar siaflanke diris, ke UEA ja havas adresojn de landaj asocioj kaj bazajn informojn pri ili. Tamen li koncedis, ke eventuale iuj informoj, kiujn nuntempe eblas trovi en la retejo de UEA, ne estas ĝustaj.
+
+Iu kongresano atentigis ke eventuale la respondeculoj de landaj asocioj ne scias pri siaj devoj, kaj scivolis, ĉu ekzistas listo de taskoj, kiujn landaj asocioj devas plenumi rilate al UEA. Klara respondo ne venis.
+
+Laŭ prezidanto Charters la planata almanako ĉiuokaze ne havos informojn pri la delegita reto, ĉar la nuntempaj leĝoj pri proktekto de personaj informoj ”eventuale malpermesos tion”.
+
+Antaŭe ĉiuj individuaj membroj de UEA ricevis ĉiujare minimume presitan gvidlibron pri la Esperanto-movado. Ĝi kaj la Jarlibro estis nuligitaj sen diskuto en 2018, kaj de tiam daŭras la diskutoj pri eventuala almanako, kiu povus ilin anstataŭi.
+
+Ĉu entute aperos almanako laŭ Charters estos decidite poste, surbaze de la ĵus dissendita enketo, kie la membroj de UEA interalie respondu, ĉu ili volas havi tian almanakon kaj ĉu ili pretas pagi por ĝi.
+
+Dum la programero okazis ankaŭ vigla diskuto pri la vizaj problemoj, kiujn iuj kongresanoj spertas kaj pri la ebloj kiel UEA povus helpi en tio.
+
+UEA nun postulas pagon de kotizo kaj loĝado antaŭ ol sendi konfirmilon por vizo. Francisco Maurelli diris, ke ne estas etike juste se UEA postulas de esperantistoj de triamondaj landoj monon por servoj, kiujn ili pro eventuala nericevo de vizo ne povos uzi.
+
+La estraro tamen laŭ Fernando Maia ĉiam ”pensas homaranisme” kaj ĉiuj tiaj kazoj kiuj aperos estos traktataj ”mature kaj homaranisme”.
+
+Raportis Jukka Pietiläinen
+
+
+---
+
+# Ukrainio sur la podio en Torino
+
+**Published:** 2023-08-03
+
+**URL:** https://www.liberafolio.org/2023/08/03/ukrainio-sur-la-podio-en-torino/
+
+**Categories:** UEA, movado
+
+Samkiel pasintjare en Montrealo, ankaŭ en la Universala Kongreso de Torino okazis aparta programero pri la milito en Ukrainio. La programero estis anoncita en la kongresa apo, ne en la Kongresa Libro. Okazante je la 9-a horo matene en mardo, ĝi allogis sesdekon da interesiĝantoj.
+
+Sesdeko da kongresanoj en Torino kolektiĝis marde matene en salono de la politeknika universitato por aŭdi raporton pri la situacio en Ukrainio, kiu ekde la 24-a de februaro 2022 defendas sin kontraŭ la rusia agreso.
+
+La kunsido komenciĝis per montrado de kvinminuta, neredaktita filmo, registrita per korpkamerao de militkuracisto, kiu prizorgas grave vunditan civilulon. La kuracisto estas la filo de Olha Bauer, kongresanino el Ĉernivci en okcidenta Ukrainio. Ŝi mem estis unu el la kvar ukrainaj podianoj, kiuj partoprenis la prezentadon.
+
+Post la filmo enkondukis Jevhen Kovtonjuk, la prezidanto de Ukraina Esperanto-Asocio, kaj Oksana Moĥnenko, ukraina esperantistino kiu fuĝis el Kijivo al Francio kaj ricevis helpon de lokaj esperantistoj. Partoprenis ankaŭ Viktor Pajuk, ukraina esperantisto nun loĝanta en Usono.
+
+Kovtonjuk klarigis, ke la respondeco pri la nun okazanta milito estas centprocente ĉe la rusia flanko. La milito laŭ li okazis ne hazarde, ne tiel ke Putin iun matenon vekiĝis volante ekmiliti, sed temas pri profunda konflikto de valoroj. En tiu konflikto Ukrainio defendas demokration kaj eŭropajn valorojn, li diris.
+
+Li substrekis, ke la milito daŭras ekde 2014, kaj ankaŭ pli frue laŭ li ne regis frateco inter rusoj kaj ukrainoj. La interrilatojn inter la popoloj laŭ li malfaciligis la delonga politiko de Rusio loĝigi rusojn en ukrainaj teritorioj.
+
+Post dudeko da minutoj Kovtonjuk petis la publikon fari demandojn. Unue la vorton petis Manfred Westermayer, sekretario de Asocio de Verduloj Esperantistaj (AVE). Anstataŭ demandi, li tamen ial proponis ”doni respondojn en kvin minutoj”. Tion ne permesis Kovtonjuk, kiu atentigis, ke devis temi ĝuste pri demandoj.
+
+Spite la averton, krom demandoj aŭdiĝis ankaŭ komentoj.
+
+Ankica Jagnjic el Kroatio memoris pri la militoj dum la disfalo de Jugoslavio, kaj diris, ke 33 jarojn post la komenco de tiuj militoj, “ne plu gravas kiu kulpis”. Laŭ ŝi, la tiama konflikto naskiĝis ne pro ia profunda malamo, sed pro la malsamaj interesoj de la decidantoj. Laŭ ŝi gravas trakti la postefikojn de la milito, ekde forigo de minoj ĝis psika helpo al orfoj. Ŝi diris, ke ŝi mem en sia korpo plu memoras, kio estas timo pro milito.
+
+Johannes Müller el Germanio demandis, kio okazos post la milito, kaj kiel eblos havi stabilan pacon. La respondo estis pesimisma – la postefikoj de la milito laŭ la podianoj longe daŭros, psike kaj ekonomie.
+
+Al demando pri etne miksitaj familioj Viktor Pajuk respondis, ke mankas informoj pri la nuna situacio de ukrainoj en Rusio. Kovtonjuk denove klarigis pri la politiko de Stalino, kiu venigis multajn rusojn al orienta Ukrainio, sed memorigis, ke ankaŭ multaj ukrainoj dum antaŭaj jaroj ekloĝis en Rusio, ekzemple en Siberio.
+
+Pro la milito la kongreson ĉi-jare ĉeestas malmultaj esperantistoj el Ukrainio kaj Rusio. Aliĝis ok personoj el Ukrainio kaj ses el Rusio, sed ne ĉiuj sukcesis alveturi. El la rusianoj ŝajne ĉeestas nur Mikaelo Bronŝtejn, kiu ne tute senprobleme sukcesis transveturi la limon de Rusio kaj Finnlando.
+
+Raportis István Ertl
+
+
+---
+
+# La rezultoj de Belartaj Konkursoj
+
+**Published:** 2023-08-03
+
+**URL:** https://www.liberafolio.org/2023/08/03/la-rezultoj-de-la-belartaj-konkursoj/
+
+**Categories:** kulturo
+
+La rezultoj de la ĉi-jaraj Belartaj Konkursoj de UEA estis anoncitaj de Miguel Fernández, prezidanto de la komisiono pri la Belartaj Konkursoj. Surloke en Torino kunprezentis BK-sekretario Miguel Gutiérrez Adúriz, kaj Sara Spanò.
+
+BRANĈO POEZIO
+
+Juĝkomisiono: Krys Williams, István Ertl, Mao Zifu. Partoprenis 51 verkoj de 29 aŭtoroj el 18 landoj [7 el Afriko, 4 el Azio, 9 el Ameriko, 29 el Eŭropo, 2 el Oceanio].
+
+La unua premio estas aljuĝita al “Danco makabra” de Nicolino Rossi el Italio. La dua premio estas aljuĝita al “Murditaj floroj” de Evgenij Georgiev el Kazaĥio. La tria premio estas aljuĝita al “La kastelo Raseborgo en aŭgusto 1993” de Jouko Lindstedt el Finnlando. Honora mencio estas aljuĝita al “Kovrilo” de Evgenij Georgiev el Kazaĥio. Honora mencio estas aljuĝita al “Difini la morton” de Jouko Lindstedt el Finnlando.
+
+BRANĈO PROZO
+
+Juĝkomisiono: Trevor Steele, Julian Modest, Antonio Valén. Partoprenis 42 verkoj de 26 aŭtoroj el 16 landoj [5 el Afriko, 5 el Azio, 9 el Ameriko, 23 el Eŭropo].
+
+La unua premio estas aljuĝita al “Elemér ripozu pace” de Jorge Rafael Nogueras el Usono. La dua premio estas aljuĝita al “Mia amiko Timoteo” de Tobiasz Kubisiowski el Pollando. La tria premio estas ne aljuĝita. Honora mencio estas aljuĝita al “Matĉjo iĝis Sinjoro Dobroz” de Jorge Rafael Nogueras el Usono. Honora mencio estas aljuĝita al “Nupto” de Carlo Minnaja el Italio. Honora mencio estas aljuĝita al “Artinspiroj” de Ewa Barbara Grochowska el Francio.
+
+BRANĈO MIKRONOVELO
+
+Juĝkomisiono: Tim Westover, Trevor Steele, Miguel Fernández. Partoprenis 59 verkoj de 28 aŭtoroj el 18 landoj [16 el Azio, 12 el Ameriko, 32 el Eŭropo].
+
+La unua premio – premio Paula Adúriz – estas aljuĝita al “La nuklea erao” de Christian Rivière el Francio. La dua premio estas aljuĝita al “La dormanta belulino” de Laure Patas d’Illiers el Francio. La tria premio estas aljuĝita al “Fredo Malaperis!” de Debra Hamel el Usono. Honora mencio estas aljuĝita al “Mia korpo” de Anastasia Bausk el Rusio. Honora mencio estas aljuĝita al “Mi kaj li” de Francisco Javier Moleón el Hispanio.
+
+BRANĈO TEATRAĴO
+
+Juĝkomisiono: Giuliano Turone, Saša Pilipović, Georgo Handzlik. Patroprenis 1 verko de 1 aŭtoro el 1 lando [1 el Eŭropo].
+
+La unua premio estas ne aljuĝita. La dua premio estas ne aljuĝita. La tria premio estas aljuĝita al “La Manĝejo de la Kvarfolio” de Raffaele Del Re el Italio.
+
+SUBBRANĈO MONOLOGO AŬ SKEĈO
+
+Juĝkomisiono: Giuliano Turone, Saša Pilipović, Georgo Handzlik. Patroprenis 3 verkoj de 3 aŭtoroj el 3 landoj [1 el Azio, 2 el Eŭropo].
+
+La unua premio – premio María Cuevas – estas ne aljuĝita. La dua premio estas ne aljuĝita. La tria premio estas aljuĝita al “Kromnomo” de Ewa Barbara Grochowska el Francio. Honora mencio estas aljuĝita al “10-20-40-80” de Amir Naor el Israelo.
+
+INFANLIBRO DE LA JARO
+
+Juĝkomisiono: Ricardo Albert Reyna, Edmund Grimley Evans, Martin Markarian. Partoprenis 2 infanlibroj de 2 eldonejoj el 2 landoj [ambaŭ el Eŭropo].
+
+La premio “Infanlibro de la jaro” estas aljuĝita al la Eldonejo “Verda Stelo Esperanto Asocio Nyíregyháza”, pro la verko “La malbela knabineto” de Veronika Marék, tradukita de János Sárközi.
+
+BRANĈO ESEO
+
+Juĝkomisiono: Gotoo Hitoshi, Antonio Valén, Giridhar Rao. Partoprenis 11 verkoj de 9 aŭtoroj el 8 landoj [7 el Eŭropo, 4 el Ameriko].
+
+La unua premio – premio Luigi Minnaja – estas ne aljuĝita. La dua premio estas aljuĝita al “Kunfluo de homaj valoroj en la verkaro de migranto Trevor Steele” de Carlo Minnaja el Italio. La tria premio estas ne aljuĝita. Honora mencio estas aljuĝita al “ChatGPT: Ĝi vomas ĉion, krom genio” de Brandon Sowers el Usono.
+
+BRANĈO KANTOTEKSTO
+
+Juĝkomisiono: Ĵak Le Puil, Ankie van der Meer, Flávio Fonseca. Partoprenis 11 verkoj de 7 aŭtoroj el 7 landoj [1 el Afriko, 1 el Azio, 9 el Eŭropo].
+
+La unua premio estas aljuĝita en egaleco al la verkoj: “Nia kato” de Tomas Frejarö el Svedio, kaj al “Bilbok-logoj” de Serge Sire el Francio. La dua premio estas aljuĝita al “Nun komenciĝas nova viv’” de Tomas Frejarö el Svedio. La tria premio estas aljuĝita al “Jetio” de Evgenij Georgiev el Kazaĥio. Honora mencio estas aljuĝita al “Ni kantos en teamo“ de Antonio Valén el Hispanio.
+
+Laŭ i nformo de Miguel Gutiérrez Adúriz , sekretario de la Belartaj Konkursoj de UEA
+
+
+---
+
+# Kongresa flago transdonita al Afriko
+
+**Published:** 2023-08-05
+
+**URL:** https://www.liberafolio.org/2023/08/05/kongresa-flago-transdonita-al-afriko/
+
+**Categories:** UEA, movado
+
+UEA ne plu estas en financa krizo, laŭ la ĝenerala direktoro dum la vendreda komitata kunveno. Pro subvencio de EU eblos dungi novajn oficistojn kaj ne altigi la kotizon. Ĝis la fino de aŭgusto la komitato deziras vidi raporton pri la reteja renovigo kaj la nova administra sistemo.
+
+La Universala Kongreso en Torino finiĝis sabate antaŭtagmeze per la tradicia Solena Fermo, dum kiu simbola kongresa flago estis transdonita al la organizantoj de la venontjara Universala Kongreso.
+
+Laŭ takso de ĉeestintoj, la kongreso estis bone organizita, la kongresejo taŭga kaj la varmo malpli terura ol oni povis timi. La nombro de kongresanoj (aliĝis iom pli ol 1300 personoj) estis relative kontentiga, se pensi pri la lastatempaj tendencoj.
+
+La meza aĝo de la kongresanoj kiel ĉiam estis alta, kaj la plej multaj kongresanoj venis el riĉaj okcidentaj landoj.
+
+Okazis dum la kongreso kelkaj gravaj librolanĉoj, pri kiuj raportis la kongresa kuriero . En la jam tradicia futbala matĉo la reprezentantoj de la esperantistoj ĉi-foje per la ciferoj 6-3 venkis la lokan teamon , kiu konsistis el enmigrintoj el Peruo.
+
+Malpli kontentiga estis la urbestra akcepto, kiun ne partoprenis la urbestro mem, sed nur urba oficisto, kiu alvenis kun duonhora malfruo. Mankis sufiĉaj sidlokoj, kaj la modestan manĝon pagis privata esperantisto el propra poŝo.
+
+Laŭdojn de ĉeestintoj aliflanke ricevis la Esperantologia konferenco, okazinta ĵaŭde kaj vendrede. Dum ĝi Jouko Lindstedt proponis ”liberiĝi de interlingvistiko”.
+
+Laŭ li estas pli sencohave kaj rezultopromese esplori la aspektojn de Esperanto kadre de ordinaraj branĉoj de lingvistiko, kaj eĉ etnografio kaj sociologio. Tiam Esperanto laŭ li prezentiĝas paralele al realaj lingvaj fenomenoj, ne paralele al lingvoprojektoj verdire surpaperaj.
+
+Ŝatataj estis ankaŭ pluraj el la koncertoj. Inter la plej popularaj sendube estis tiu de Ĵomart kaj Nataŝa, kiu en mardo plenigis la salonon Lapenna.
+
+En vendredo okazis la dua kunsido de la komitato de UEA. Dum ĝi estis pritraktita raporto de la komisiono pri financo, kiu starigis al la asocio kelkajn urĝajn taskojn plenumendajn antaŭ la fino de la jaro. Temas pri la reteja renovigo kun la nova administra sistemo, plibonigo de la kongresa organizado, plenumo de la kondiĉoj de la administra subvencio de EU por certigi ĝian ricevon en 2024 kaj 2025 – kaj pretigo de nova strategia plano, kiu mankas de pluraj jaroj.
+
+Laŭ la raporto de la komisiono pri financo, ĉio tio rilatas al la modernigo de la labormetodoj de la asocio, kaj konsistigas ”urĝan defion por daŭra kresko de la membraro” kaj estas ”esenca motoro de nia financa stabileco”.
+
+La rezultoj de la reteja renovigo, kiu estis lanĉita en 2013, laŭ la raporto estu testitaj ene de unu monato, ĝis la fino de aŭgusto. Tiu testado inkluzivu ”ĉiujn interkonsentitajn funkciojn, konektadon al librotena sistemo, retan dezajnon, transmigron de datumoj kaj ĝian facilan uzeblecon por oficistoj”. Poste oni decidu, ĉu lanĉi la novan Akso-sistemon aŭ tute rezigni pri ĝi.
+
+Dum la diskuto pri la reteja renovigo kaj la nova administra sistemo montriĝis, ke la pluiron de la projekto malhelpis interalie manko de fido inter respondeculoj flanke de UEA kaj TEJO. Samtempe TEJO insistas ke la sistemo estas preta por ekuzo laŭ la interkonsentitaj kondiĉoj, dum reprezentantoj de UEA trovas, ke ĝi plu havas gravajn mankojn.
+
+– La estraro multe laboris por povi veni al decido. Tio inkluzivis ke ni konsultis specialistojn pri komputilaj sistemoj, kaj venis al ni multaj demandoj. Fakuloj ne povis kompreni, kiel estas organizita ekzemple la dokumentado, diris la prezidanto de UEA, Duncan Charters.
+
+Laŭ li la estraro de UEA nun serĉas plian eksteran spertulon, kiu povus doni siajn fakajn vidpunktojn pri la sistemo. Krome laŭ li gravas, ke la plia prizorgo de la sistemo post eventuala ekfunkciigo estu garantiita.
+
+– Ni deziras doni al la ĝenerala direktoro personon, kiun li povas fidi kiel kunlaboranton, kunaganton, se ni akceptos la transiron de la malnova sistemo al nova, diris Charters.
+
+La ĝenerala direktoro de UEA, Martin Schäffer, listigis mankojn, kiuj laŭ li troviĝas en la proponata sistemo:
+
+– Se ni transirus al Akso, ni devus komplete rezigni pri pagoj per UEA-konto, ĉar la du sistemoj ne kongruas. Libroservo en la nova sistemo ne ekzistas, kongresa servo ne ekzistas, tion ni devas konsideri. Mi certe pensas, ke ĝis la 31-a de aŭgusto absolute ne eblos fari ion ajn.
+
+La reprezentanto de TEJO, Tobiasz Kubisiowski, siavice atentigis, ke ĉiu plia prokrasto estas aldona kosto al TEJO.
+
+– Ĝis ni havas solvon, la financa respondeco pri la oficisto kaj disvolvado restas ĉe TEJO. Ankaŭ ni ŝatus ke UEA havu pli bonan sistemon, eĉ se tio ne estos Akso.
+
+Dietrich Weidmann, komitatano A por Svisio argumentis ke ĉiuokaze necesas klara limdato, por ke la projekto komencita en 2013 iam estu finita.
+
+– Oni povas diskuti, ĉu necesas unu plia monato, sed ni havis jam naŭ jarojn, do mi pensas, ke se ni ne metas iun daton, ni atendos denove naŭ jarojn.
+
+La komitato fine akceptis la rekomendojn de la komisiono pri financo senŝanĝe, do kun la postulo testi la rezultojn de Akso ĝis la fino de aŭgusto, kaj plenumi la aliajn urĝajn taskojn ĝis la fino de la jaro. La finajn konkludojn pri nova administra sistemo la komitato faros en aparta kunsido la 23-an de septembro.
+
+Dum la diskuto Rubén Sánchez, komitatano A por Argentino, demandis pri la financa situacio de la asocio:
+
+– Antaŭlonge UEA maldungis dungitojn pro supozata financa krizo, nun oni parolas pri dungi denove. Ĉu UEA estas en krizo aŭ ne?
+
+Unue respondis prezidanto Duncan Charters:
+
+– Ni transiras al nova epoko, en kiu ni povos uzi la plej talentajn personojn, kie ajn ili loĝas, por kunhelpi.
+
+Kompletigis ĝenerala direktoro Martin Schäffer:
+
+– UEA ne plu estas en financa krizo, tion jam montras la spezokontoj de la lastaj tri jaroj. Poste la komitato decidos pri la membrokotizoj, kaj ni proponos ne altigi. Pri dungoj temas ĉefe pri tio, ke oni serĉas fakulojn pri iu speciala temo. La antaŭaj dungitoj aŭ intertempe pensiiĝis, aŭ ne havas la sciojn, kiuj bezonatas. Krome ne temas pri longedaŭraj dungoj.
+
+Poste la komitato efektive decidis ne altigi la membrokotizojn por 2024, kvankam la kostoj en Nederlando altiĝis je 10 procentoj. La komitato decidis ankaŭ pri la konsisto de la nova elekta komisiono, kiun eniris Renato Corsetti, Guy Matte kaj Margareta Želve.
+
+La komitato senŝanĝe aprobis rezolucion pri la kongresa temo ”Enmigrado – kunfluo de homaj valoroj”. Laŭ la rezolucio, la kongreso ”agnoskas la historian valoron de interŝtataj migradoj ĉie ajn en la mondo, ĉar per tiuj migradoj kunfluis homaj valoroj – migrado estas bazo por la evoluo de la homaro”.
+
+Samtempe la rezolucio kun zorgo konstatas, ke laŭ statistiko la nombro de rifuĝintoj en la mondo pasintjare unuafoje superis 100 milionojn. ”La cifero kreskas de jaro al jaro. Ni avertas, ke pro la klimatŝanĝiĝo pli kaj pli da homoj estos devigataj forlasi siajn hejmojn.”
+
+La rezolucio estas pli ampleksa kaj detala ol kutime, sed laŭ la ĉefa aŭtoro, la ĵurnalisto Thomas Bormann, ĝi estos bone uzebla en la eksteraj rilatoj de UEA kun aliaj organizaĵoj. Por aliaj celoj ekzistas iom malpli longa versio , kiu interalie estis voĉlegita kaj aplaŭde akceptita de la kongresanoj en la solena fermo.
+
+
+---
+
+# Esperantistaj recenzantoj atentas la tradukon
+
+**Published:** 2023-08-11
+
+**URL:** https://www.liberafolio.org/2023/08/11/esperantistaj-recenzantoj-atentas-la-tradukon/
+
+**Categories:** kulturo
+
+Tobiasz Kubisiowski, interalie konata kiel estrarano de TEJO kaj pli frue Pola Esperanto-Junularo, ĵus magiŝtriĝis ĉe Universitato de Varsovio. Por sia disertaĵo li esploris, kiel oni recenzas tradukitajn verkojn en Esperanto. Montriĝis, ke la kvalito de la traduko estas preskaŭ ĉiam pritraktata en recenzoj de Beletra Almanako. Laŭ li, la recenzoj meritas pli da atento flanke de la esperantista komunumo, pro sia literaturkrea funkcio.
+
+Libera Folio: Pri kio temas via magistriĝa disertaĵo, kaj kiel tio rilatas al Esperanto?
+
+Tobiasz Kubisiowski: – Mi studis aplikatan lingvistikon en Universitato de Varsovio kaj la kampo, pri kiu mi magistriĝis, estis tradukscienco. Kadre de diversaj universitataj kursoj, kaj ankaŭ en la tradukscienca literaturo, mi plurfoje aŭdis aŭ legis, ke el la vidpunkto de tradukistoj estas bedaŭrinde, ke la recenzoj de tradukitaj verkoj tre malofte kaj nesufiĉe okupiĝas pri la fakto, ke temas pri traduko. Tamen, legante esperantlingvajn recenzojn de verkoj tradukitaj en Esperanton, mi konstatis la malon – la traduko, la motivoj de la tradukinto kaj la lingvaĵo de la traduko estis ofte menciataj, priskribataj kaj taksataj.
+
+– Tial mi decidis esplori en mia magistriĝa disertaĵo la jam ekzistantajn modelojn de kritiko de tradukoj kaj kompari ilin al la efektiva recenza praktiko en la esperantista medio. Alivorte, mi trastudis kelkajn modelojn por tradukkritiko kaj provis vidi, kiuj iliaj elementoj efektive aperas en tradukrecenzoj en komunumo, por kiuj la fenomeno de tradukoj estas aparte grava, tio estas inter esperantistoj. La recenzoj, kiujn mi analizis, venis el la plej ĝisdataj numeroj de ”Beletra Almanako”, kaj por pravigi tiun elekton mi devis sufiĉe amplekse priskribi la literaturon de Esperanto kaj la rolon de tradukoj en ĝia evoluo.
+
+Ĉu vi komparis la esperantlingvajn recenzojn de tradukoj kun recenzoj de tradukoj en alia lingvomedio? Se jes, kiajn diferencojn vi trovis?
+
+– Mi ne komparis ilin al recenzoj en alia lingvomedio, nur al la teorie postulataj modeloj. La ĉefa diferenco estis la rigoreco de kelkaj el tiuj modeloj: kvankam iliaj aŭtoroj ofte proponis ilin por solvi la mankon de atento je tradukoj en recenzoj, la proponataj modeloj estis metodologie tre rigoraj, kaj tute nerealismaj rilate al la kritiko de tradukoj kiel literatura ĝenro. Multaj eroj el la modeloj tamen ja troviĝis en la analizitaj recenzoj, ĉefe takso pri la kvalito de la traduko, mencio pri la nomo kaj ĝisnunaj atingoj de la tradukinto(j), kaj citaĵoj el la traduko kaj/aŭ el la originala teksto por pravigi la opinion de la recenzanto pri la tradukita verko.
+
+Ĉu vi bezonis iel argumenti por akceptigi vian elekton de ĝuste esperantlingvaj tradukoj kaj recenzoj?
+
+– En la disertaĵo mem – jes. Mi argumentis, ke en la medio de la Esperanta literaturo la rolo de tradukoj estas granda, ĉefe pro la influo de tradukitaj verkoj sur la literatura stilo en Esperanto en la unua periodo de la Esperanta literaturo (pli-malpli ĝis 1920). La recenzantoj de mia disertaĵo trovis tiun argumentadon konvinka kaj akceptis mian hipotezon, poste pruvitan per la analizo, ke la recenzoj en ”Beletra Almanako” ĝenerale ne preteratentas la fenomenon de tradukado.
+
+– Dum la prilaborado de la disertaĵo mi renkontis neniujn problemojn pri la elekto de la temo, des pli, ke disertaĵoj, kiuj ĉefe aŭ parte koncernas Esperanton kaj ĝian kulturon, en la pasinteco jam estis defenditaj ne nur en la universitato, en kiu mi studis, sed eĉ kadre de mia studprogramo.
+
+Kiaj estas la teoriaj modeloj kiujn vi uzis, kaj kiel la recenzoj kiujn vi studis rilatis al tiuj modeloj? Kiom da recenzoj vi studis por via disertaĵo?
+
+– La modeloj estis interalie tiuj de Juliane House (1977, 1997, 2015), Wolfram Wilss (1982), Peter Newmark (1988), Antoine Berman (1995), Lance Hewson (2011) kaj Piotr de Bończa Bukowski (2021). Kiel mi imagas, la recenzantoj kompreneble ne sekvas apartajn modelojn, kiam ili verkas siajn tekstojn. Tio estas ilia rajto kaj ankaŭ la modelo, kiun mi proponis en la disertaĵo, ne celas esti iu deviga kadro por ĉiuj recenzoj de tradukoj. Mi tamen konstatis kun kontento, ke la esperantlingvaj recenzoj ofte trafe taksas la laboron de la tradukintoj kaj rimarkigas la malperfektaĵojn, aŭ male – aparte plaĉajn solvojn en tradukado en Esperanton.
+
+– Mi sukcesis analizi 22 recenzojn el ”Beletra Almanako”, el numeroj 26 (junio 2016) ĝis 43 (februaro 2022). Komence mi planis analizi ĉiujn recenzojn de tradukitaj verkoj el ĉiuj ĝis nun aperintaj numeroj (ekde 2007), sed, se mi ne eraris en la kalkulado, BA publikigis ĝis nun 85 tiajn tekstojn, kaj analizi ilin ĉiujn estis ekster miaj povoj rilate al la tempo kaj al la amplekso de la disertaĵo.
+
+Kia estas via ĝenerala impreso pri recenzoj en la Esperanta gazetaro kaj ilia signifo por la traduka kaj originala literaturo?
+
+– La Esperanta literaturo estas signife malpli granda ol tiu de naciaj lingvoj, precipe de la majoritataj lingvoj de la mondo. Pro tio la recenzoj rolas iom alie en nia komunumo. Dum mia analizado de recenzoj en ”Beletra Almanko” mi rimarkis ke, ne surprize, la samaj nomoj ofte ripetiĝis, ĉu kiel aŭtoroj de recenzoj, ĉu kiel tradukintoj. Tial legi la recenzojn estas efektive kiel legi fakajn opiniojn inter tradukistoj kaj aliaj literaturistoj.
+
+– Mi persone pensas, ke la recenzoj foje tro profunde koncentriĝas pri unuopaj vortoj kaj individuaj lingvaĵoj, sed estas konata trajto de esperantistoj diskuti ofte pri lingvaj aferoj. Tial la karaktero de la esperantlingvaj recenzoj estas por mi tute nemiriga, kaj mi opinias, ke ili meritas pli grandan atenton de la komunumo pro sia literaturkrea funkcio.
+
+
+---
+
+# Du kazoj de seksa molestado en la IJK en Italio
+
+**Published:** 2023-08-12
+
+**URL:** https://www.liberafolio.org/2023/08/12/du-kazoj-de-seksa-molestado-en-la-ijk-en-italio/
+
+**Categories:** TEJO, movado
+
+Du kongresanoj estis sekse molestitaj dum la Internacia Junulara Kongreso en Lignano, Italio. Estis elektita nova redaktoro de la revuo Kontakto . La tri novaj volontuloj de TEJO ĉiuj estas neesperantistoj.
+
+Du kazoj de seksa molestado okazis dum la ĉi-jara IJK en Italio. Ambaŭ viktimoj estis komencantoj, kiuj verŝajne unuafoje vizitis internacian Esperanto-aranĝon.
+
+Unu el la viktimoj, juna viro, tuj post la malagrabla travivaĵo frue dum la kongreso forflugis hejmen. Tie li rakontis pri la okazaĵo al siaj samlandanoj, kiuj siavice kontaktis la organizantojn de la kongreso. La kulpulo de tiu incidento ne estas konata.
+
+La alia viktimo, juna virino, anoncis al la organizantoj, ke ebria kongresano kontraŭ ŝia volo palpadis interalie ŝiajn mamojn. Estis atestantoj, kaj montriĝis, ke la kulpulo estas persono, kiu antaŭnelonge havis gvidan postenon en TEJO. Li konfesis sian kulpon, kaj en vendredo estis devigita antaŭtempe forlasi la kongresejon.
+
+La okazaĵoj estis publike priparolitaj vendrede dum la Malferma horo de la estraro. La eliranta prezidanto Albert Stalin Garrido flanke de TEJO pardonpetis al la personoj kiuj estis molestitaj.
+
+– Ni absolute ne intencas kaŝi aŭ ignori tiajn kazojn, ni kunsidas serioze por pritrakti ilin, kaj ni kunlaboros kun la kongresa komitato ankaŭ por transdoni ĉiujn lecionojn, por ke tio ne okazu dum la venonta IJK. Ni faras ĉion kion ni povas por solvi definitive ĉi tiun longedaŭran, sisteman problemon en Esperantujo, li diris.
+
+Li rakontis, ke oni havis renkontiĝon kun la viktimo kiu restis en la kongresejo, kaj post la diskuto decidis forpeli la kulpulon, kiu mem ne klopodis nei la okazaĵon.
+
+Responde al mesaĝo de Libera Folio la kulpulo diris, ke li mem tamen apenaŭ ion memoras pri la koncernaj vespero kaj nokto, ĉar li estis tro ebria.
+
+– Mi eksciis pri la okazaĵo de Albert kaj poste de aliaj, nekredeble bedaŭras, kaj sekvis la instrukciojn resti ekster la diskoteko por la resto de la kongreso, nur koncentriĝi pri la muzikalo, kaj ne plu trinki alkoholon. Mi mem punus min same aŭ pli severe.
+
+La kulpulo ne estis senprokraste forpelita, ĉar lia kunlaboro estis bezonata por unu el la muzikalaj prezentadoj, sed post ĝi li en vendredo estis devigita antaŭtempe forlasi la kongresejon. Laŭ Albert Stalin Garrido la viktimo konsentis pri tia aranĝo.
+
+Simila publika skandalo kun seksa molestado okazis almenaŭ en la IJK en Badajoz, Hispanio, en 2018. Tiufoje la viktimo same estis komencantino, dum la kulpulo estis estrarano de TEJO.
+
+En la kongresoj de TEJO de multaj jaroj estas apartaj respondeculoj, al kiuj kongresanoj povas sin turni por informi pri seksa molestado. En intervjuo de Libera Folio en februaro la prezidanto de TEJO diris, ke la asocio starigos novajn regularojn ”por fari TEJO-n kaj ĝiajn eventojn pli sekuraj spacoj kontraŭ seksperforto kaj -ĝenado”.
+
+Dum la Malferma horo de la estraro oni interalie diskutis, ĉu oni enkonduku ”nigran liston” de kongresanoj, kies aliĝpetoj ne estu akceptitaj ĉe postaj aranĝoj, ĉar ili kulpis pri seksa molestado.
+
+La demandoj pri la traktado kaj preventado de seksmolestado havis centran lokon dum la Malferma horo de la estraro. Tamen la estraro dum la kongreso traktis ankaŭ aliajn temojn.
+
+Oni eksciis, ke kiel nova redaktoro de la revuo Kontakto estis elektita Karina Oliveira. Ŝi pli frue estis interalie unu el la kunordigantoj de la portugallingva Duolingo-kurso de Esperanto, kaj partoprenis la studprogramon pri interlingvistiko kaj Esperanto ĉe la universitato Adam Mickiewicz en Poznano, Pollando. Ŝi pli frue estis ankaŭ estrarano de TEJO.
+
+Karina Oliveira transprenas la taskon de Paweł Fischer-Kotowski, kiu estis elektita inter tri kandidatoj en 2021.
+
+Oni eksciis ankaŭ, ke el la tri volontuloj, kiuj baldaŭ komencos sian deĵoradon ĉe TEJO en Roterdamo, neniu jam scipovas Esperanton.
+
+Inter la taskoj de la volontuloj, kiuj alvenos tra la programo Eŭropa Solidareca Korpuso (antaŭe ”Eŭropa Volontula Servo”), estos la ĉiutaga administrado de TEJO, protokolado dum kunsidoj, pritraktado de la poŝto kaj arkivoj de TEJO. La volontuloj laŭ la anticipa anonco krome interalie informos pri la agado de TEJO, kaj reprezentos la organizaĵon ĉe internaciaj aranĝoj kaj kongresoj.
+
+Multaj el la taskoj ne estas plenumeblaj sen scio de Esperanto. Tial la ideala kandidato laŭ la anonco ”havu bonan scipovon de Esperanto kaj se ne, pretu lerni la lingvon antaŭ aŭ tuj post la komenco de la volontulado”. Taŭgaj esperantistaj kandidatoj tamen evidente ne troveblis.
+
+La nova estraro de TEJO estis elektita jam antaŭ la IJK, en reta komitata kunsido la 15-an de julio , sed ankoraŭ ne ekoficis. Nova prezidanto de TEJO estos Tyron Surmon el Britio. La eliranta prezidanto Albert Stalin Garrido dum la komitata kunsido bedaŭris, ke li pro personaj kialoj ne povas daŭrigi en la estraro dum plia mandatperiodo. Li rekomendis sian vicprezidanton Tyron Surmon kiel tre taŭgan posteulon.
+
+Aliaj estraranoj estos Michal ”KuboF” Matúšov el Slovakio (ĝenerala sekretario), Snehaja Venkatesh (vicprezidanteco), kaj Abhinav Varma – ambaŭ el Barato – kaj Ada Florence Iracadukunda el Burundo. Estis diskuto pri tio, ĉu Ada Florence Iracadukunda havas sufiĉan sperton por ofici en la estraro de TEJO, sed fine ĉiuj kandidatoj estis elektitaj. Eventuale oni dum la oficperiodo serĉos pliajn estraranojn.
+
+Komentoj estas moderigataj. Komentoj, kiuj malkaŝus la identecon de kulpuloj aŭ viktimoj, ne estas permesataj.
+
+
+---
+
+# Hispanio petas pliajn oficialajn lingvojn por EU
+
+**Published:** 2023-08-18
+
+**URL:** https://www.liberafolio.org/2023/08/18/hispanio-petas-pliajn-oficialajn-lingvojn-por-eu/
+
+**Categories:** kulturo
+
+La registaro de Hispanio oficiale petis de EU, ke tri regionaj lingvoj – la kataluna, la eŭska kaj la galega – ekhavu oficialan staton en la Unio. Tion postulis alianco de malgrandaj partioj por subteni la elekton de reprezentanto de la maldekstra bloko al la parlamentestra posteno.
+
+La ŝtataj registaroj devas peti oficialigon de lingvoj por ke la koncerna instanco de Eŭropa Unio decidu tion. Tio okazis en ĵaŭdo pri la kataluna, la eŭska kaj la galega, kies oficialigon formale petis la hispana registaro. Dek ok minutojn post la oka, la hispana ambasadoro al EU prezentis leteron prian de la hispana ministro pri eksterlandaj aferoj al la ĝenerala sekretariino de la Konsilio de EU. La horo gravas, ĉar je la deka komenciĝis plenkunsido de la ĵus elektita deputitaro de Hispanio.
+
+Ili devis elekti novan prezidanton de sia asembleo (Kongreso de Deputitoj). Nek la maldekstra nek la dekstra bloko havas majoritaton en la parlamento. La elekto tute dependis de aliancoj kun etaj partioj, ĉefe kun tiuj kiuj defendas kulturojn malsamajn ol la hegemonia kastilia.
+
+La kataluna partio Junts, al kiu apartenas la ekzilita prezidento Puigdemont, postulis ke la socialisma hispana registaro agu antaŭ la komenciĝo de la kunsido (je la deka) rilate al la rajto uzi la katalunan oficiale en Eŭropa Unio. La registaro moviĝis laŭ tiu direkto, kaj senprobleme la kandidatino de la maldekstra bloko estis finfine elektita.
+
+Dum sia unua parolado la nova prezidantino de la deputitaro, Francina Armengol, rekte defendis la lingvan diversecon de Hispanio kaj promesis ne malpermesi kiel ĝis nun la uzadon de la kataluna, la eŭska kaj la galega en la hispana parlamento. Armengol estas katalunparolanto, baleardevena, kaj ĝis antaŭ du monatoj prezidis la balearan aŭtonoman registaron.
+
+Kiel balearano mi povas diri ke ŝi ne kontraŭis dum·sia regado la normaligon de la kataluna en la Baleara insularo. Kiel baleara prezidentino ŝi eĉ akceptis prezidi la pasintan solenan malfermon de Institut d’Estudis Catalans, kies sidejo kuŝas en Barcelono (do, ekster la insuloj) kaj pritraktas sciencon kaj kulturon de la tuta Kataluna Landaro kaj, plej grave, ĝia Filologia Sekcio (kiun mi prezidas nuntempe) estas la oficiala lingva akademio de la kataluna.
+
+Pri la oficialaj lingvoj en Hispanio krom la kastilia, mi diru ke la galega iumaniere jam estis oficiala en EU, se oni akceptas ke la limo kun la portugala estas nur dialekta. La eŭska teritorio parte kuŝas en nuntempa Hispanio kaj parte en nuntempa Francio. La kataluna lingva teritorio dividiĝas inter Hispanio, Francio, Italio kaj Andoro (kies sola oficiala lingvo ĝi estas).
+
+La hodiaŭa peto de la hispana registaro estas historia pro tio ke unuafoje la ŝtato internacie montras sian lingvan diversecon, kaj ankaŭ pro tio ke eŭropaj civitanoj kiel mi post la akcepto fare de EU vidos kiel nia lingvo (do la gepatra, unua, familia, nature lernita, ne altrudita laŭleĝe) ricevas la respekton de transnacia organizo kiu ekde nun ne plu traktos nin kiel eksterlandanojn per fremda lingvo.
+
+Nicolau Dols
+
+La aŭtoro estas la prezidanto de la Kataluna akademio
+
+
+---
+
+# Ukrainoj rakontas pri sia lando kaj la milito
+
+**Published:** 2023-08-23
+
+**URL:** https://www.liberafolio.org/2023/08/23/ukrainoj-rakontas-pri-sia-lando-kaj-la-milito/
+
+**Categories:** kulturo
+
+Ĵus aperis la esperantlingva versio de la verko ”Lando kiu vekiĝis” de Kalle Kniivilä, la redaktoro de Libera Folio. En la libro ordinaraj ukrainoj rakontas pri la milito, sed ankaŭ pri la evoluo de la lando dum 30 jaroj de sendependeco. Hans Becklin intervjuis la aŭtoron.
+
+Fine de junio aperis la sesa nefikcia libro de Kalle Kniivilä en Esperanto, Lando kiu vekiĝis . Ne estas malfacile imagi, pri kiu lando temas: Ukrainio, pene militanta sed daŭre ekzistanta. Tamen, la aŭtoro raportas ne pri tio, kio nun plenigas kvaronon de ĉies matena ĵurnalo, sed pri io alia.
+
+Lia ĉefa demando, iusence, estas kaj pli kohera, kaj pli abstrakta ol la figuroj kaj longaj tranĉeaj raportoj: Kiel ordinaraj ukrainoj fariĝis memkonsciaj pri sia aparteco, kaj kune kreis socion radikale malsaman kompare al Sovetio kaj ĝia plej granda posteulo Rusio.
+
+Ĉar la aŭtoro de la libro estas la redaktoro de Libera Folio , ni petis la regulan kontribuanton Hans Becklin lin intervjui. Kniivilä rolis nur kiel intervjuato, kaj la intervjuo aperas tie ĉi sen enhavaj redaktoj.
+
+Libera Folio: Ne surprizos iun ajn konanton de via verkaro, ke denove vin altiras la komplika situacio en ekssoveta lando. Tamen, kial vi decidis verki pri Ukrainio ĝuste nun?
+
+Kalle Kniivilä: – En 2018 mi ekhavis postenon kiel gazetara ataŝeo ĉe la ambasado de Svedio en Moskvo. Tamen pro diplomatia konflikto inter la du landoj mi post mallonga tempo en la posteno estis devigita forlasi Rusion, kaj la ministerio de eksterlandaj aferoj anstataŭe sendis min al la ambasado en Kijivo.
+
+– Tio el mia persona vidpunkto estis tre utila turniĝo, ĉar mi ekhavis la ŝancon vidi Ukrainion de interne kaj eklerni la ukrainan lingvon, kiu ja bezonatas por pli bone konatiĝi kun la lando.
+
+– Mi rapide komprenis ke mi pli frue, samkiel multaj aliaj okcidentanoj kiuj lernis la rusan lingvon, ekkonis Ukrainion tra rusiaj okuloj kaj pritraktis ĝin kiel ian strangan version de Rusio, dum efektive Ukrainio multmaniere estas pli normala lando ol Rusio – aŭ almenaŭ pli demokratia kaj plurisma.
+
+– Kompreninte tion, mi baldaŭ ekpensis, ke mi volus rakonti pri la lando el la vidpunktoj de ordinaraj ukrainanoj, sed la libroplanoj estis unue haltigitaj de la pandemio, poste de la milito. Dum iom da tempo mi pensis, ke mi atendu la finon de la milito, sed ĉar la milito ne ŝajnis finiĝi, mi fine decidis veturi tien ĉiukaze. Kaj efektive la interesiĝo ja nun estas tre granda.
+
+Tio estas interesa konstato. Mi supozus, ke Ukrainio komencis roli grande en via menso en 2014, kiam Rusio ĝin ekokupis – sed mi ja povas kompreni, ke en tiu jaro (kaj en via libro Krimeo estas nia ) Rusio, ne Ukrainio, estas la ĉefa aganto. Ĉu iu momento aŭ konstato dum via diplomatia servado aparte faligis la skvamojn de viaj okuloj? Kiel precipe rolis la lernado de la ukraina en tio?
+
+– Jam en 2014 mi havis la ideon verki libron pri la konflikto en orienta Ukrainio, sed fine elektis verki nur pri Krimeo, ĉar tie la situacio ne troviĝis en dinamika fazo. Sed la nuna libro temas unuavice pri la evoluo de la sendependa Ukrainio post la disfalo de Sovetio per la okuloj de ordinaraj loĝantoj de la lando, kvankam evidente la aktuala konflikto daŭre ĉeestas.
+
+– Mi ne dirus, ke estis iu specifa momento kiam miaj okuloj subite malfermiĝis. Verŝajne iom post iom, kiam mi ekkonis Ukrainion de interne kaj kiam la ukraina lingvo ne plu aspektis al mi kiel stranga, nekomprenebla variaĵo de la rusa, mi vidis, ke la ŝajna interna kaoso en la lando, kiel ĝi povas aspekti el rusia perspektivo, efektive multparte estas normala vivo de netotalisma socio, kie troviĝas videblaj konfliktoj kaj kie la ĉefaj amaskomunikiloj ne estas direktataj de la ŝtato, kiel en Rusio.
+
+Ŝajnas al mi, surbaze de viaj libroj, ke simila procedo okazis sine de multaj ukrainoj – ekkompreno pri aparta, nerusa identeco. Kiel tio rolas en la respondo de ordinaraj ukrainoj al la okupo unuavice kaj la milito duavice?
+
+– Efektive multaj loĝantoj de orienta Ukrainio tuj post la sendependiĝo komence ne faris grandan diferencon inter la landoj, sed evidente iom post iom iĝis malfacile ne elekti flankon, precipe post februaro 2022.
+
+– Estas strange, sed Vladimir Putin mem ekde 2014 faris multegon por fortigi la ukrainajn naciajn identecon kaj unuecon. Aliflanke neniu faris tiom kiom li por mortigi kaj persekuti la ruslingvajn loĝantojn de Ukrainio, kiujn li pretendas defendi, kaj por subfosi la rusan lingvon en Ukrainio.
+
+Putin (kaj ŝajne multaj rusoj) siavice estas plene konvinkitaj ne nur pri la historia unueco de la du landoj kaj la popolo(j) sed ankaŭ pri ĝia misio kiel fortikaĵo kontraŭ la dekadenco de la okcidento. Kiel ordinaraj ukrainoj reagas al tio? Ĉu ekzistas homoj, kiuj bedaŭras la militon sed tamen estas influataj de tiu ĉioklariga (kaj ĉiopardona) rakonto?
+
+– Sendube ekzistas homoj kun plej diversaj kaj kontraŭdiraj opinioj. Tamen ĉiam pli da homoj en Ukrainio malakceptas la rusian imperian propagandon kaj preferas anstataŭ al Rusio rigardi al la okcidento, kie ili trovas apogon al sia propra, aparta identeco. Ja la aserto de Putin, laŭ kiu ukrainoj kaj rusoj estas unu popolo, efektive signifas, ke la ukraina popolo tute ne ekzistas.
+
+Certe estas konate, ke fremdaj ĵurnalistoj apenaŭ povas labori plu en Rusio. Kiel estis al vi la plej lastatempa esplorado en Ukrainio? Ĉu vi alfrontis barojn kaj limojn de iu ajn speco?
+
+– Daŭris iom longe ricevi la oficialan akrediton de la ukraina armeo. Tamen, havante ĝin, mi de ĉiuj oficialaj instancoj kaj ordinaraj homoj ricevis tre agrablan kaj efikan helpon. Mi ja neniam troviĝis proksime al la fronto aŭ interesiĝis pri militaj sekretoj, do ne estis aparta kialo por la ukrainaj aŭtoritatoj limigi mian laboron.
+
+Kvankam vi ne estis ĉe la fronto, kiel la milito estis sentebla?
+
+– Mi pasigis tempon inter enlandaj rifuĝintoj, kiuj rakontis pri siaj spertoj kaj zorgoj. En la ĉiutaga vivo la milito malpli rimarkeblis ol mi atendis, ĝis Rusio komencis la terorbombadojn kontraŭ civila infrastrukturo kiel elektrocentraloj. Tiam unu bombo falis relative proksime al mia loĝejo en Kijivo, kaj mi decidis urĝe reveturi hejmen.
+
+Ĝenerale, kio plej surprizis vin dum via vizito?
+
+– Surprizis min la normaleco dum milita tempo, kiel bone la socio ŝajnis funkcii, ke la trajnoj veturis ĝustatempe spite la daŭrantajn atakojn. La trankvileco kaj afableco de la homoj en la eksterordinaraj cirkonstancoj.
+
+Tio ja estas raporto, kiun almenaŭ mi ne ofte aŭdas. Certe normaleco ne bone vendiĝas ĵurnale… Vi verkis la libron unue en la sveda, kaj poste en la finna. Kiel homoj en tiuj lingvoj reagas al ĝia enhavo? Ĉu la vendoj multe diferencas kompare al viaj pli fruaj libroj pri orienta Eŭropo?
+
+– Same kiel pli frue, ŝajnas ke la atento kaj interesiĝo iom pli grandas en Finnlando, eble ĉar Finnlando havas pli proksiman kaj ne malofte probleman rilaton kun Rusio. Fruas diri pri la vendoj rilate ĉi tiun libron, sed de kelkaj pli fruaj libroj oni vendis pli da ekzempleroj en la finna, kvankam la svedlingva publiko estas duoble pli granda.
+
+Kaj kiel, se iel ajn, reagis rusoj al la libro?
+
+– La libro ne aperis ruse, do evidente ĝin povus legi nur malmultaj rusoj. Iu negativa takso en Esperanto tamen jam aperis.
+
+Laste, sendube viaj lertoj estas eĉ pli postulataj en la nuna mondo de ĵurnalismo, ol iam ajn. Kial vi decidis utiligi tiun valoran tempon por aperigi la libron en Esperanto?
+
+– Se mi jam kolektis la materialon kaj verkis la libron en du lingvoj, ne postulas enormajn fortostreĉojn aperigi ĝin ankaŭ en Esperanto. Krome mi sentas grandan interesiĝon flanke de la esperantlingvaj legantoj, eĉ se la vendokvantoj estas modestaj kompare kun la nacilingvaj eldonoj.
+
+Hans Becklin
+
+La libro Lando, kiu vekiĝis estas eldonita de Mondial kaj aĉetebla ankaŭ ĉe UEA kaj ĉe multaj retaj librovendejoj per serĉo de la ISBN 9781595694522. Ĉe Mondial haveblas ankaŭ bita eldono .
+
+
+---
+
+# REU haltigas sian membrecon en UEA
+
+**Published:** 2023-08-23
+
+**URL:** https://www.liberafolio.org/2023/08/23/reu-haltigas-sian-membrecon-en-uea/
+
+**Categories:** UEA
+
+Rusia Esperantista Unio dum sia ĵusa konferenco en Tatarstano decidis ”haltigi” sian membrecon en UEA. Tio signifas ke UEA momente ne havas funkciantan landan asocion en la plej granda lando de la mondo.
+
+Dum la 32-a konferenco de Rusia Esperantista Unio (REU) en Kazano post longaj kaj akraj disputoj estis akceptita nova statuto de la asocio. Estis ankaŭ elektita nova estraro. Kiel prezidanto daŭrigas Aleksandr Lebedev.
+
+El la vidpunkto de la tutmonda Esperanto-movado la plej grava decido tamen sendube estas, ke REU decidis “haltigi” sian membrecon en UEA. La decido havas siajn radikojn en la eksigo de la rusia ĉefdelegito de UEA, Svetlana Smetanina, kaj efektive sekvis el ŝia propono.
+
+En aŭgusto 2022, post longa diskuto en la komitato de UEA, la estraro de la asocio decidis ne nomumi novan ĉefdelegiton por Rusio. En la praktiko tio signifis eksigon de la ĉefdelegito Svetlana Smetanina, kiu estis forte kritikata pro publikaj elpaŝoj pri la milito en Ukrainio, “neakcepteblaj por reprezentanto de UEA”.
+
+Temis unuavice pri komentoj en Facebook, kie nome de Smetanina aperis skribaĵoj pri “ukrainaj nazioj” kaj simile. Smetanina poste asertis, ke ne ŝi kulpis pri la skribaĵoj, kiuj aperis ŝianome.
+
+En marto 2023 REU ricevis de UEA enketilon pri la kvanto de aligitaj membroj kaj fakturon pri la kotizo, kiun REU pagu por la aligitaj membroj. Tiam Svetlana Smetanina proponis, ke oni prokrastu la pagojn al UEA ĝis la konferenco de REU decidos, kiel REU estonte rilatu aŭ ne rilatu kun UEA.
+
+Tri estraranoj tiam voĉdonis por la propono haltigi la pagojn, dum aliaj tri estraranoj voĉdonis por pagi kiel kutime. La voĉo de la prezidanto decidis, kaj oni haltigis la pagojn al UEA.
+
+La temo estis relevita dum la ĵusa konferenco de REU, kun la rezulto ke REU decidis daŭre nenion pagi al UEA, sed haltigi la membrecon ĝis UEA konfesos sian eraron pri Smetanina kaj agnoskos ŝin senkulpa.
+
+En la dokumentoj de la konferenco de REU troviĝas la teksto de protesta letero de REU al la estraro de UEA, kiun ni reproduktas ĉi-sube. Laŭ informoj de Libera Folio , UEA nenion respondis al la letero.
+
+Libera Folio petis komenton de la prezidantoj de REU kaj UEA, sed ĝis nun ne ricevis respondon.
+
+La konata Moskva Esperanto-aktivulo Oleg Ĉajka en la Telegram-babilejo de Libera Folio jam post la apero de ĉi tiu artikolo diris, ke grava kialo malantaŭ la decido distanciĝi de UEA estas la aktualaj kontraŭekstremismaj leĝoj de Rusio:
+
+– Oni povas esti prijuĝataj pro la partopreno en ajna neregistrita en Rusio socia organizo. Per tiu leĝo la ŝtato batalas kontraŭ tiuj “sociaj organizoj” kiuj nur ŝajnigas esti tiaj, sed laŭvere subfosas la ŝtaton kaj preparas la bazon al kontraŭŝtataj renversoj. Sed, kiel kutime, pro la timo oni per tia leĝo ankaŭ kovras la laboron de bonaj organizoj. UEA ne estas oficiale registrita en Rusio. Tial, por protekti sin, oni devis haltigi la membrecon.
+
+Protesta letero de REU al UEA pri la kampanjo kontraŭ Svetlana Smetanina
+
+Estimataj estraranoj de UEA,
+
+Kun bedaŭro ni konatiĝis kun amaso de ĉikanaj mesaĝoj fare de kelkaj UEA-komitatanoj kun alvokoj eksigi Svetlana Smetanina de la posteno de Ĉefdelegito de UEA por Rusio.
+
+Ni volus komuniki al vi la jenon.
+
+Ni opinias, ke ajna homo, inkluzive funkciulojn de organizaĵoj, rajtas havi sian propran opinion pri io ajn kaj esprimi tiun ie ajn en sia nomo. Same privataj politikaj eldiroj de homo ne devas esti preteksto por eksigi la personon de la posteno en statute neŭtrala organizaĵo. Neniu REU-estrarano esprimis sian opinion pri la nuna politika situacio je la nomo de REU. Ankaŭ Svetlana Smetanina ne faris tion. La atako kontraŭ ŝi havas fortan odoron de netoleremo al alia vidpunkto kaj persekutado laŭ politikaj motivoj.
+
+Se UEA komencos eksigi siajn estraranojn aŭ membrojn pro privataj politikaj sinesprimoj, al UEA ne plaĉaj, ĝi devas fari la samon ankaŭ rilate al siaj membroj kun kontraŭaj politikaj vidpunktoj. Aliokaze UEA montros sin kiel organizaĵo ne plu neŭtrala kaj forte vundos sian universalecon, ĉar evidentiĝos, ke ĝi reprezentas nur esperantistojn kun unu opinio kaj forĵetas esperantistojn kun la alia. Evidentas, ke tiu vojo gvidas al ruinigo de la tuta asocio.
+
+Ni traktas la vidpunktojn kaj proponojn de sinjoro Osmo Buller rilate al Svetlana Smetanina kiel lian privatan opinion, esprimi kiun li rajtas same, kiel liaj subtenantoj kaj oponantoj. Ni esperas, ke la Estraro de UEA ne dronos en la marĉo de politika engaĝiĝo. Ni kredas, ke UEA restos sur la platformo de neŭtraleco kaj egalrajteco de siaj postenuloj kaj membroj.
+
+Ni ripetas nian proponon daŭrigi la ĉefdelegitecon de Svetlana Smetanina kaj avertas, ke ni ne kunlaboros kun alia Ĉefdelegito, se li aŭ ŝi estos enoficigita rezulte de la maljusta eksigo de la nuna.
+
+Estraro de REU
+
+(Akceptita per reta voĉdonado la 5-an de aŭgusto 2022)
+
+
+---
+
+# La estraro de UEA kontemplas sian AKSO-n
+
+**Published:** 2023-08-25
+
+**URL:** https://www.liberafolio.org/2023/08/25/la-estraro-de-uea-kontemplas-sian-akso-n/
+
+**Categories:** UEA, interreto, movado
+
+Ĝis la fino de aŭgusto UEA devas en iu aŭ alia maniero veni al konkludo pri la reteja renovigo kaj decidi pri nova administra sistemo. Tion decidis la komitato en Torino. Nun la estraro entreprenas paŝojn por plenumi la decidon.
+
+Dum la dua kunsido de la komitato de UEA en Torino la 4-an de aŭgusto estis pritraktita raporto de la komisiono pri financo, kiu starigis al la asocio kelkajn urĝajn taskojn. Inter tiuj estis nova administra sistemo kaj la reteja renovigo, pri kiu UEA okupiĝas ekde 2013.
+
+La komitato akceptis la raporton, laŭ kiu la rezultoj de la projekto estu testitaj ĝis la fino de la monato. Poste oni decidu, ĉu lanĉi la novan AKSO-sistemon aŭ tute rezigni pri ĝi.
+
+Poste, dum la IJK okazis kunsido inter respondeculoj de UEA kaj la nova prezidanto de TEJO, Tyron Surmon, kiu pli frue estis ĉefrespondeculo de TEJO pri la AKSO-projekto. Surmon tamen ĉefe rekonfirmis la dubojn de UEA pri la projekto.
+
+Libera Folio diskutis la temon kun Tobiasz Kubisiowski, eliranta estrarano de TEJO, kiu dum la komitata kunsido de UEA en Torino estis la reprezentanto de TEJO, kaj  nun je la fino de sia mandato povas pli libere diskuti la staton de AKSO.
+
+– La fakulo konsultita de UEA havas rezervojn rilate al la organizado de la dokumentado. TEJO pretas agi por klarigi la dubojn, ĉefe per organizo de kunsido kun nia ĉefprogramisto. Atentindas ankaŭ la fakto, ke la kongresa sistemo de AKSO estas nun uzata por organizi alian junularan eventon, Junularan E-Semajnon en Germanujo, kio montras, ke la sistemo estas uzebla de aliuloj kaj ke la dokumentado, eĉ se ĝi meritas plibonigon, estas ja utila, jam nun, li diras.
+
+Aliaj obstakloj por la lanĉo de la nova sistemo laŭ li estas manko de librotena sistemo en ĝi, neklareco pri la estonto de UEA kaj de la sistemo de UEA–kontoj:
+
+– Tiuj eksplicite ne estis parto de la kontrakto, do TEJO neniam okupiĝis pri tio. Ni tamen komprenas, ke tiuj mankoj estas gravaj kaj esperas, ke UEA povos trovi taŭgan solvon por trovi uzon de AKSO malgraŭ ili.
+
+Jam post la fino de la kongreso la estraro de UEA efektive entreprenas paŝojn por plenumi la taskon donitan de la Financa komisiono kaj konfirmitan de la Komitato de UEA, Tobiasz Kubisiowski diras.
+
+– Laŭ mia scio okazas samtempe testado kaj kontrolado de AKSO en ĝia nuna stato, kaj ankaŭ esplorado pri aliaj administraj sistemoj uzeblaj por la celoj de UEA. Kvankam mi ne ĉeestas persone tiun laboron, nek TEJO-flanke, nek UEA-flanke, mi ricevas el pluraj fontoj informojn, ke la laboro ja okazas. Nuntempe mi ne povas certi pri tio, ke la Komitato de UEA ricevos kontentigan rezulton ĝis la fino de aŭgusto, sed mi tre ĝojas, ke la komitata decido mobilizis la Estraron kaj atendas la sekvajn evoluojn en tiu kampo.
+
+La administraj sistemoj, kiujn UEA nun uzas, estas tre malnovaj, kaj ĉiuokaze bezonas baldaŭan renovigon, diras Tobiasz Kubisiowski. Se oni ne ekuzos la AKSO-sistemon, necesos laŭ li tre baldaŭ trovi alian funkciantan sistemon. La problemo estas, ke la restantaj oficistoj de UEA simple ne havas tempon por prizorgi transiron al nova sistemo kaj samtempe prizorgi kurantajn taskojn.
+
+– Ĉu AKSO aŭ ne, UEA devos instrui al siaj oficistoj uzi novan administran sistemon. Mi persone komprenas la zorgojn de la ĝenerala direktoro kaj mi plene konscias, ke lanĉo de AKSO en ia ajn formo postulos de li kaj de la aliaj oficistoj multe da tempo kaj energio. Mi havas tamen la impreson, ke lia strategio estas atendi kaj ne modernigi la sistemon ĝis tio estos absolute necesa. Mi dubas, ke tia strategio estas dezirinda por la asocio.
+
+– Se la laborŝarĝo de la ĝenerala direktoro estas tro granda, mi esperas ke la Estraro de UEA sukcesos trovi solvojn por delegi parton de liaj taskoj al aliaj dungitoj, se la Estraro opinios ke la administra sistemo estas prioritato. Mi ankoraŭfoje substreku: la engaĝiĝo de la ĝenerala direktoro (de la posteno, ne de Martin Schäffer persone) estas necesa por la modernigo de la sistemo, ĉu tio okazu tra AKSO aŭ malgraŭ ĝi.
+
+La kongresa sistemo de AKSO pruvite bone funkcias, ĉar ĝi jam estis sukcese uzita por organizi la ĉi-jaran IJK-n. Tamen, post kiam UEA mendis de TEJO la novan sistemon, la kongresa administrado de UEA estis transdonita al la ekstera firmao E@I en Slovakio, kiu povus havi intereson komenci uzi la koncernan parton de AKSO por tio, sed nuntempe utiligas proprajn teknikajn solvojn.
+
+Spite tion, AKSO estas specife evoluigita por la bezonoj de UEA, kaj estas multe malpli temporabe transiri al ĝi ol ekadapti tute novan sistemon por la funkciado de UEA, kredas Tobiasz Kubisiowski:
+
+– AKSO estas pli ol nur “nova retejo de UEA”. La retejo estos nur supraĵa efiko de la modernigo, sed la plej grandan ŝanĝon devus sperti la labormaniero de la oficistoj, kiuj ne plu devu fari aŭtomatigeblajn taskojn permane.
+
+– Kelkaj funkciuloj de UEA sentas bezonon de teknika spertulo siaflanke por kontroli la uzeblecon de la sistemo. Ili tute pravas. Mi pensas, ke ne estas sekreto, ke inter la personoj okupiĝantaj pri AKSO ekzistas personaj preferoj kaj malŝatoj. La administra sistemo estas tamen sistemo, ĝi do devas funkcii sendepende de la prizorgantoj. Preta lanĉita AKSO estos dokumentita tiel, ke kompetenta teknikisto povu daŭrigi la laboron pri la sistemo, sendepende de ĝiaj kreintoj.
+
+La finajn konkludojn pri la afero la komitato de UEA faros en aparta kunsido la 23-an de septembro.
+
+
+---
+
+# Tro laca movadano
+
+**Published:** 2023-08-30
+
+**URL:** https://www.liberafolio.org/2023/08/30/tro-laca-movadano/
+
+**Categories:** kulturo
+
+Nia nova aŭtoro priskribas surprizan travivaĵon, spertitan dum la ĵusa Universala Kongreso. Ĉu tamen nova generacio de esperantistoj alportas al la movado novan senton kaj fortan vokon?
+
+Mi tute ne intencas stulte mistifiki la legantojn, rakontante pri iu Ĝenerala Superkunveno de iu Globala Verdula Organizo. La priskribata evento okazis kadre de la UK de UEA, ĉi-jare pasinta en la itala Torino.
+
+Ĝi estis mia unua UK, kvankam mi jam kelkajn jardekojn aktivas en la movado. Mi ege multon legis kaj aŭdis pri la antaŭaj kongresoj. Kaj ĝuste mia pasiva UK-sperto naskis la demandon, direktitan al la proksimume dekjara knabo kun la kongresa nomŝildo (tie estis skribita io tute ordinara – ”Frank” aŭ io simila). La knabo senzorge manĝis glaciaĵon apud la ĉefa konstruaĵo de la kongreso. Mi diris:
+
+– Saluton, juna amiko! Ĉu vi partoprenas la Infanan Kongreseton?
+
+Li nenion respondis, daŭre (kaj, evidente, tre ĝue) subigante la vizaĝon al la senĉesaj sunaj radioj. “Tute ne regas Esperanton”, indulgeme mi pensis, kaj demandis alimaniere:
+
+– Saluton! Ĉu vi komprenas Esperanton?
+
+– Hej, olda nano, haltigu viajn stupidajn eldiraĵojn! – neatendite li diris.
+
+Mi misglutis trinkatan bieron.
+
+– Ups, se vi tiom bone posedas la lingvon, kial vi ne tuj respondis? Ŝajne, via konduto ne estas tute ĝentila!
+
+La knabo peze suspiris, kraĉis sur la asfalton kaj malvolonte agnoskis:
+
+– Probable vi pravas. Pardonu min. Hodiaŭ la humoro estas abomenega. Tial mi ne bone regas min.
+
+–Pro kio via humoro estas fuŝa? – mi scivolis.
+
+– Aĥ, eĉ ne demandu. Imagu: jen, mi venis en Italion el miaj Ferooj. Longatendata ferio. Nur unu semajno. Sed tuj post la alveno oni trenis min por la komitatkunsido! Mi eĉ la valizon ne malpakis!
+
+Mi, ne jam kredante miajn orelojn, diris, esperante je io pli bona:
+
+– Ĉu temas pri Asocio de infanoj-esperantistoj aŭ Internacia Kuniĝo de ŝatantoj de komputilludoj?
+
+–Se estus ĉi tiel, mi estus feliĉa.
+
+– Do, pri kio temas?
+
+– Ja pri UEA.
+
+– Ĉu?!
+
+Mankis al mi vortoj.
+
+– Ne estas temo por priparoli, la knabo diris. – Jen, ekzemple, hodiaŭ. Mi ellitiĝis, duŝis min – kaj jam ĉe la matenmanĝo venis tiu damna sekretario kaj insistege min vokis en la kunsidejon.
+
+La knabo denove kraĉis kaj sufiĉe krude blasfemis.
+
+– Kaj tie – senĉesaj babiladoj. Vendo de la CO, sorto de la arkivoj, nova retejo, strategio, taktiko, propagando, kongresoj, estraroj, demisioj… Mi ege tediĝis!
+
+– Kiom aĝa vi estas? – neniun pli saĝan demandon mi povis elpensi tiumomente.
+
+– Dek du jam. Diable, la tempo flugegas!
+
+– Sed ĉu de via landa asocio neniu alia povis veni anstataŭ vi?
+
+– Neniu konsentas, se la prezidanto ĉeestas la kongreson, malice diris la knabo. – Kaj du miaj viculoj aroge preferis forveturi ripozi kun siaj genepoj en Sicilion. Kanajloj! Ili ripozas, sed mi ĉi tie ŝvitu anstataŭ ili ĉiuj!
+
+Li kraĉis la trian fojon kaj stariĝis, finmanĝinte la glaciaĵon.
+
+– Nu, sufiĉas jam. Tempas kuri, la paŭzeto finiĝis.
+
+– Kien vi kuros, ĉu… tien?
+
+–  En alian lokon ne eblas. Mi estas la protokolanto… Kaj krome mi finfine devas prezenti pretan version de la proponaro pri la modifoj al la Statuto. Mi konfesu, ke ĉi-afere mi mem nepardoneble tro longe pigras. Do, ĝis iam!
+
+Kaj li foriris.
+
+Felix von den Pimmeln
+
+
+---
+
+# Forpasis Imre Ferenczy
+
+**Published:** 2023-09-04
+
+**URL:** https://www.liberafolio.org/2023/09/04/forpasis-imre-ferenczy/
+
+**Categories:** movado
+
+En Hungario en la aĝo de 91 jaroj forpasis Imre Ferenczy, honora membro de UEA kaj de HEA. Li aktivis en Esperantujo ekde 1950, interalie en la radioamatora kaj medicinista organizaĵoj. Profesie li laboris kiel kirurgo kaj sportkuracisto.
+
+Forpasis la 1-an de septembro 2023, en Győr, en la aĝo de 91 jaroj, la hungara fervojista kuracisto D-ro Imre Ferenczy. Li naskiĝis la 25-an de julio 1932. De 1950 li okupiĝis pri Esperanto, do li sin dediĉis al la lingvo dum 73 jaroj. Li estis konsiderata la plej maljuna aktiva hungara esperantisto kaj partoprenis en ĉirkaŭ 40 Universalaj Kongresoj.
+
+Aktiva pri Esperanto ekde 1950, kiam li estis 18-jara, jam en 1955 li kunfondis Hungarlandan Esperanto-Konsilantaron. Ĝis 1960 li prezidis la junularan fakon de Hungara Esperanto-Asocio (HEA) kaj de 1962 ĝis 1970 li estis junulara gvidanto de Internacia Fervojista Esperantista Federacio (IFEF).
+
+Li estis fondinto kaj prezidanto de la hungara sekcio de Internacia Ligo de Esperantistaj Radio-Amatoroj (ILERA) kaj de la hungara sekcio de la Internacia Fervojista Radio-amatora Asocio. Lia voksigno estis HA1UD. Pro instigo lia, ekde 1982 funkcias radioamatora stacio kun speciala voksigno en la IFEF-kongresoj.
+
+D-ro Ferenczy diplomiĝis en la Universitato de Szeged kaj poste en la Universitato de Medicinaj Sciencoj en Budapeŝto, akirante ĝeneralan medicinan diplomon en 1957, 25-jara. Li laboris pri interna medicino en la hospitalo Parádfürdő inter 1957 kaj 1960, kaj poste li translokiĝis al la MÁV-hospitalo en Pécel por unu jaro. Inter 1961 kaj 1998, li laboris kiel la ĉefoperaciisto de la fervoja nodo Győr. Li ankaŭ aktivis kiel sportkuracisto kaj zorgis pri sama futbala teamo, futbal-grupo Győri MÁV DAC (nun Integral DAC), 43 jarojn sen interrompo (1963-2006). Pro tio li ricevis diplomon kiel ”Hungara rekordulo”.
+
+En 1970 li iĝis privata sekretario de d-ro Hideo Shinoda. Inter 1977 kaj 2000 li estis la gvidanto de la medicina fakkomisiono de HEA. Ekde 1985 li longtempe okupis la postenon de prezidanto de Universala Medicina Esperanto-Asocio (UMEA) kaj samtempe estis membro de la redaktantaro de Medicina Internacia Revuo (MIR), la organo de UMEA.
+
+En Varno (Bulgario) dum la 63-a Universala Kongreso de Esperanto (UK), en 1978, li ricevis la Premion Shinoda de UMEA pro sia elstara medicinmovada agado. En 2007 en Budapeŝto ĉe la Medicina Universitato Semmelweis li ricevis la jubilean oran diplomon pro sia 50-jara kuracista agado, en 2017 li ricevis la diamantan diplomon kaj en 2022 la feran diplomon.
+
+Li aŭtoris du verkojn, “Esperanta Medicina Vortaro” (2009) kaj “Mi estis fervojista kuracisto” (2012). Li modele kunlaboris kadre de la Faka Agado de UEA kiel reprezentanto de UMEA kaj aparte pri la kunlaboro inter Fakaj Asocioj (UMEA kaj IFEF). Kiel reprezentanto de UMEA li partoprenis tre multajn Universalajn Kongresojn ekde la jaro 1973.
+
+Krom en eŭropaj landoj li estis en Kubo, Koreio, Kanado, Aŭstralio, Israelo, Brazilo, Ĉinio kaj Japanio. Medicinan studvojaĝon li faris en Usono en la jaro 1998. Seninterrompe dum tridek jaroj, inter 1983 kaj 2013, li estis membro de la Komitato de UEA, kiel reprezentanto de UMEA.
+
+Li estis Honora Membro de HEA (1994) kaj Honora Membro de UEA (2003). Li estis Honora Prezidanto de UMEA.
+
+Laŭ gazetara komuniko de UEA
+
+
+---
+
+# Novaj planoj por Pasporta Servo
+
+**Published:** 2023-09-05
+
+**URL:** https://www.liberafolio.org/2023/09/05/novaj-planoj-por-pasporta-servo/
+
+**Categories:** movado
+
+Pasporta Servo iam estis eble la ĉefa servo de TEJO, sed nun dum pluraj jaroj funkcias preskaŭ sendepende de la organizaĵo al kiu ĝi formale apartenas. En la nova estraro de TEJO pri Pasporta Servo respondecas Patricio Agustín Iglesias, kiu nun volas evoluigi kaj aktualigi la servon.
+
+Pasporta Servo ekfunkciis en 1967, sed la lasta papera listo de gastigantoj aperis en 2017. De tiam la servo ekzistas nur en reta formo. En la retejo nun estas pli ol 2 300 gastigantoj. Tamen multaj el la informoj kredeble estas malaktualaj, ĉar la lasta amasa kontrolo de ĉiuj datenoj okazis en 2016, sojle al la publikigo de la lasta papera listo, rakontas Meir Goren, kiu aliĝis al la skipo en 2016.
+
+En 2021 la ĝistiama ĉefrespondeculo Baptiste Darthenay retiriĝis de la projekto. Ekde tiam Meir Goren restas la prizorganto de la retejo.
+
+– Mi prizorgas la teknikan flankon: evoluigas la retejon kaj certigas ke ĝi daŭre bonorde funkciu. Krome mi helpas al homoj kiuj skribas al la centra retpoŝtadreso de PS (kutime pri problemoj kun ilia konto) kaj fojfoje landaj organizantoj (ĉefe pri iuj teknikaj komplikaĵoj). Entute estas 47 landaj organizantoj , kaj iom malpli ol duono el ili estas aktivaj (en la senco ke ili regule vizitas la retejon, sed ne nepre por kontroli aŭ aprobi datumojn).
+
+Ne eblas scii, kiel multe da gastigadoj okazas per la servo, ĉar la retejo registras nur la fakton, ke uzantoj interkomunikiĝas, li klarigas.
+
+– Jare en PS aktivas inter 900 kaj 1 400 uzantoj laŭ ensalutoj, kaj oni interŝanĝas inter 100 kaj 550 mesaĝojn monate pere de la retejo.
+
+La mondo multe ŝanĝiĝis post 1967, kaj Pasporta Servo certe ne plu estas la unua loko, kie junaj esperantistoj serĉas tranokton, sed ĝi ne perdis sian signifon, diras Tobiasz Kubisiowski, kies oficperiodo kiel estrarano de TEJO ĵus finiĝis:
+
+– Tio videblas en diversaj Telegram-grupoj por apartaj urboj au regionoj, kie ofte estas pli facile trovi tranokton. Mi persone neniam provis tranokti pere de Pasporta Servo – mi preferis demandi jam konatajn esperantistojn en la koncerna urbo – sed mi konas ankaŭ amikojn, kiuj tute sukcese uzis ĝin. Kvankam la enhavo de la retejo povas ŝajni eksdata kaj malfacile uzebla, mi kredas, ke ĝi daŭre estas uzebla kaj uzata de nemalgranda grupo de homoj. PS estas parto de la tradicio de la Esperanto-kulturo, tial multaj pliaj homoj scias pri ĝia ekzisto.
+
+En la estraro de TEJO oni diskutis la ideon estonte inkluzivi Pasportan Servon en iu projekto subvenciita de EU, li rakontas.
+
+– Laŭ mia scio Pasporta Servo estas sur la listo de ideoj por eblaj subvencipetoj de TEJO. Do, se en iu momento eblos subvencipeti por plifaciligi vojaĝojn per iu projekto, kiu povus financi la ordigon de la adresaro kaj pretigon kaj presigon de la libreto, tion TEJO eble faros.
+
+Ĝenerale Pasporta Servo tamen dum la lastaj jaroj evoluis relative sendepende de la formalaj gvidorganoj de TEJO, rakontas Patricio Agustín Iglesias, la nova kasisto de TEJO.
+
+– Menciindas ke Wojtek Oreszczuk, dum sia volontulado en Roterdamo pasintjare, kontaktis ukrainajn gastigantojn por esprimi la kunlaboremon de la movado kaj koni iliajn eventualajn bezonojn.
+
+En la ĵus ekoficinta estraro Patricio Agustín Iglesias havos la ĉefrespondecon pri Pasporta Servo.
+
+– Ĝi estas pli konata ol TEJO mem: spektu ajnan enkondukon pri Esperanto kaj ĝi plejofte mencios kaj UEA kaj Pasportan Servon, sed bedaŭrinde ne nian kernan junularan organizon. Multaj nunaj aktivaj movadanoj ekesploris pri nia lingvo kiam ili aŭdis ke ĝi faciligas vojaĝi ŝparante monon. Krome, ni argentinaj, esperantistoj sentas nin aparte ligataj al la ilo, ĉar inter ĝiaj pioniroj troviĝas nia samlandano Rubén Feldman González.
+
+Krom Patricio Agustín Iglesias, pri Pasporta Servo en la estraro aktivos Ada Florence Iracadukunda el Burundo kaj Abhinav Varma el Barato. Laŭ Patricio Agustín Iglesias, estus bone tutmondigi la reton de gastigantoj:
+
+– La mapo mem klare montras, ke ekster Eŭropo malabundas gastigantoj. Tute indas instigi ĉieajn homojn aliĝi al la programo, kun speciala atento al landoj kaj regionoj ne bone reprezentataj, ĉefe per persona kontaktado. Por doni ekzemplojn, ni nuntempe havas neniun gastiganton en Angolo, Kazaĥio, Mozambiko, Paragvajo aŭ Ruando, landoj kie mi konscias ke estas esperantistoj.
+
+Entute estas 2 378 gastigantoj, sed duono el tiuj troviĝas en ses landoj: Francio (374), Brazilo (222), Usono (178), Germanio (173), Rusio (131) kaj Pollando (100) – entute 1 178 en tiuj landoj.
+
+– Kreskigi la kvanton de landoj kaj gastigantoj estas la plej pova reklamilo por la servo. Ankaŭ indas disvastigi per la sociaj retoj spertojn de homoj kiuj uzis ĝin kaj afiŝojn pri la programo.
+
+Jam en la sekva granda reta evento de TEJO, Retoso 2023 , povos okazi programero pri Pasporta Servo, li diras.
+
+– Ankaŭ la Virtuala Kongreso kaj aliaj retaj kaj ĉeestaj eventoj povas esti bonaj okazoj por disvastigi la programon kaj kolekti novajn proponojn. Tute indas instigi junulojn aliĝi al la komisiono kaj aljuĝi por ĝi en la buĝeto de 2024 almenaŭ etan monsumon. Kaj mi ege emas, eble venontjare, inviti prelegi homojn kiuj estis enplektitaj en Pasporta Servo tra la lastaj jardekoj.
+
+Se eĉ sen granda aktivado flanke de la gvidorganoj de TEJO Pasporta Servo pluvivis kaj kreskis, kun iom pli da subteno ĝi povos bone evolui kaj vigliĝi, li esperas.
+
+– Tamen, kiel dirite, ni unue devas renkontiĝi por detale taksi kun la komisionanoj, dialoge kun la stabo, kiuj ideoj ŝajnas la plej trafaj. Kaj mi ankaŭ invitas la legantojn de Libera Folio lasi siajn sugestojn inter la komentoj. Ni klopodos legi ĉiujn!
+
+Pli pri la temo
+
+La retejo de Pasporta Servo
+
+Kresko minacas Pasportan Servon (2004)
+
+TEJO reformas Pasportan Servon (2008)
+
+Disfalo minacas Pasportan Servon (2009)
+
+Pasporta Servo 2011 aperos aprile (2011)
+
+La retejo de Pasporta Servo refarota ekde nulo (2014)
+
+Pasporta Servo renaskiĝis en la reto (2015)
+
+Pasporta Servo bone fartas eĉ sen komisiito (2021)
+
+
+---
+
+# Baza legolisto aktualigita proze kaj poezie
+
+**Published:** 2023-09-12
+
+**URL:** https://www.liberafolio.org/2023/09/12/baza-legolisto-aktualigita-proze-kaj-poezie/
+
+**Categories:** kulturo
+
+Antaŭ kvarona jarcento William Auld laste ĝisdatigis sian liston de la gravaj beletraĵoj originale verkitaj en Esperanto. Nun ĝi estis kompletigita de Sten Johansson, kiu elektis pliajn prozajn verkojn, kaj de Nicola Ruggiero kaj Suso Moinhos, kiuj aldonis titolojn al la poezia parto. Sed pluraj gravaj verkoj en la listo ne plu facile haveblas.
+
+En 1988 William Auld, unu el la plej elstaraj esperantlingvaj poetoj, publikigis ”Bazan legoliston” de la originalaj esperantlingvaj verkoj, kiuj laŭ li estis la plej gravaj kaj valoraj por nuntempa leganto. La listo aperis en la verko “La Fenomeno Esperanto”, origine celita kiel prezento de Esperanto al neesperantista publiko, en ĉapitro pri la Esperanta literaturo.
+
+Tie Auld argumentas kontraŭ asertoj pri la neekzisto aŭ senvaloreco de la Esperanta literaturo, kaj skribas:
+
+Tiu supraĵa skizo apenaŭ donas impreson pri la realaj atingoj kaj abunda amplekso de la originala literaturo de Esperanto. Iu ajn, kiu volas eĉ aludi al ĝi devas esti leginta almenaŭ kelkajn elstarajn verkojn antaŭ ol esprimi opinion.
+
+Poste sekvas listo de 23 poeziaj kaj 29 prozaj verkoj. En 1997 li iom kompletigis ĝin. Lia lasta versio de la listo enhavis 27 poeziajn kaj 32 prozajn verkojn.
+
+Sed kian utilon oni do havas de tia listo?
+
+– La eventuala utilo ja dependas de ĉies opinio, sed laŭ mi ĝi povas helpi al legantoj elekti iom valorajn verkojn kaj eble eviti la plej aĉajn. Mi persone opinias ke Auld plejparte elektis tre trafe kaj bone, diras Sten Johansson.
+
+Li de multaj jaroj prizorgas la valoran retejon OLE, pri originala literaturo Esperanta.
+
+William Auld forpasis en 2006, kaj poste neniu kompletigis lian liston. Laŭ Sten Johansson ne vere eblas ŝanĝi la liston post la morto de Auld.
+
+– Kiel dirite, Auld unufoje ĝisdatigis ĝin en 1997. Post lia morto evidente ne eblas ŝanĝi lian liston. Sed en la lastaj du jaroj kelkaj homoj instigis min krei propran aldonan liston. Mi sufiĉe hezitis ĉu tio indas, sed nun mi decidis tamen fari tion pri prozo kaj peti helpon de Suso Moinhos kaj Nicola Ruggiero pri poezio.
+
+Laŭ kiuj principoj ĝi estis ĝisdatigita?
+
+– Mia propra principo estis proponi verkojn, kiuj plaĉis al mi, el tiuj kiujn mi legis. Plejparte mi enlistigis verkojn pli novajn ol la listo de Auld, sed ankaŭ tri pli malnovajn. Evidente temas nur pri niaj personaj proponoj, surbaze de niaj spertoj kaj niaj gustoj. Ĉiu ajn homo povas fari sian propran liston, elektante el tio, kion oni legis.
+
+Kiom el la verkoj vi mem legis? Kiujn vi plej ŝatis kaj kial?
+
+– El mia propra aldonpropono mi legis ĉiujn 14, ne surprize. El ili mi plej ŝatis ”Mi stelojn jungis al revado” de Mikaelo Bronŝtejn. El la proza listo de Auld mi legis 29 el 32. El tiuj mi plej ŝatis ”Lappar, la antikristo” de Endre Tóth. El la poeziaj listoj mi legis unu verkon komplete, sed krome eble pecetojn de 2 aŭ 3 el 41. Mi ja legis du-tri aliajn poemarojn, kiuj ial ne trafis en la listojn, diras Sten Johansson.
+
+En la listo estas ankaŭ unu via propra verko. Ĉu ankaŭ ĝin vi mem elektis?
+
+– Jes. Kiel pretekston mi diru ke ĝi estas laŭrita de la Akademio.
+
+Temas pri la romano ”Sesdek ok”, kiu ricevis la duan Laŭron de la Akademio en 2022. En la nova listo same troviĝas ”Mi stelojn jungis al revado” de Mikaelo Bronŝtejn, kiu ricevis la unuan Laŭron en 2021 .
+
+Suso Moinhos, kiu kunlaboris pri la poezia parto, atentigas ke ajna tiaspeca listo evidente estas subjektiva, pridiskutebla afero.
+
+– Do ne ekzistas unu sola listo ebla. Oni komprenu ankaŭ, ke temas pri listo de libroj . Tio signifas, ke bedaŭrinde ni ne povis konsideri aŭtorojn, kiuj ankoraŭ ne aperigis poemaron. Temas pri verkistoj, kies produktado estas ĝis nun malgranda, aŭ kies versaĵoj sidas nur dise tra periodaĵoj.
+
+– Nia ĉefa kriterio ĉe la elekto estis la literatura kvalito. Cetere, ni decidis, iom sur la spuroj de Auld, enlistiginta ”Esperantan Antologion”, ke en nia kontribuo ne povis manki la verkaroj de Auld mem, de Boulton, de Edwin de Kock kaj de Ragnarsson.
+
+Por legi librojn, ne sufiĉas havi liston, necesas la libroj mem. Tamen pluraj el la libroj ne estas plu aĉeteblaj.
+
+– Ne el nia listo, sed el tiu de Auld, de longe mankas en libroservoj la ”Poemoj de Armand Su” kaj, en la sfero proza, ”La litomiŝla tombejo de Piĉ” kaj ”Lappar, la antikristo, de Tóth”. Krome, de longe ni atendas paperan reeldonon de ”La granda kaldrono” de Francis, kiu intertempe, bonŝance, aperis bite. Tiuj tri prozaj verkoj estas esencaj en la historio de la Esperanto-literaturo.
+
+Mankas ankaŭ de tre longe ”Naskitaj sur la ruino: Okinavo”, de Masao Miyamoto, atentigas Suso Moinhos.
+
+Nicola Ruggiero, la alia kontribuinto al la poezia parto de la listo, listigas plurajn poeziajn verkojn en la listo, kiuj ne plu haveblas almenaŭ laŭ la katalogo de UEA:
+
+Goodheir, Albert: Merlo sur menhiro (1974)
+
+Hohlov, N.: La tajdo (1924)
+
+Kalocsay Kálmán: Streĉita kordo (1931)
+
+Ķurzēns, Nikolai: Mia spektro (1938)
+
+Schwartz, Raymond: La stranga butiko (1931)
+
+Schwartz, Raymond: Verdkata testamento (1926)
+
+Su, Armand: Poemoj de Armand Su (1992)
+
+– Temas pri verkoj tre apartaj unu de la alia. Ĉiu el ili meritus reeldonon en presa formo kaj samtempe en bita formo. Tamen, ĝis nun, nur FEL eldonas ankaŭ en bita formo, sed nur tion pri kio ĝi rajtas, memkompreneble. Tiuj du verkoj de Schwartz haveblas kiel sonlibroj en KD. Kredeble, la aliaj verkoj iel haveblas en interreto, diras Nicola Ruggiero.
+
+Pri Kalocsay li atentigas, ke aliaj liaj verkoj ja ankoraŭ haveblas, kaj troveblas ankaŭ en interreto.
+
+– Iam indos kunigi ĉiujn liajn poeziajn kaj literaturkritikajn eseojn en plenverkaron, kiel jam okazis por aliaj granduloj de nia literaturo.
+
+Multaj esperantistoj ne tre bone konas la originalan literaturon. Eĉ tiuj, kiuj ja legas prozon, ofte apenaŭ ion scias pri la originala poezio. Kio do estas speciala pri la Esperanta poezio, kio igas ĝin aparte leginda? Nicola Ruggiero klopodas klarigi:
+
+– Ne estas facile respondi sen iĝi false retorika. Mi legas poezion ĉar per ĝi mi atingas alian signifo-nivelon en memesplorado. Certe ankaŭ la prozo povas utili al tio, sed la poezio uzas similajn rimedojn alimaniere. Mi pensas ĉefe pri la uzo de imaĝoj – pervortaj prezentoj de sensa impreso, ne nepre vida; ili povas esti rektaj aŭ figuraj. La imaĝo implicas rekreon de la realo surbaze de elementoj bazitaj sur intuo aŭ vizio de la verkisto, kiun oni devas malĉifri. Ĝuste en tiu malĉifrado troviĝas riĉiĝo kaj konstanta rekreo kaj vidpunkto pri la realo de nia mondo kaj de nia konscio.
+
+Aldono al la Baza legolisto, 2023
+
+Jen la aldonoj al la legolisto, elektitaj de Sten Johansson (prozo) kaj de Suso Moinhos kaj Nicola Ruggiero (poezio). La ligiloj gvidas al informoj pri la koncerna verko en la retejo OLE . Tie troveblas ankaŭ la listo de William Auld , inkluzive liajn kompletigojn de 1997.
+
+Prozo
+
+Adamson, Hendrik: Auli. 1934
+
+Bronŝtejn, Mikaelo: Mi stelojn jungis al revado. 2016
+
+Conterno Guglielminetti, Clelia: Ho, tomboj de l’ prapatroj. 2015
+
+Elgo, Serĝo (Lagrange, Georges): Surklifa. 2000
+
+Fernández, Miguel: Camacho, Jorge; Neves, Gonçalo; Liven Dek (Gutiérrez Adúriz, Miguel): Ekstremoj. 1997
+
+Gabrielli, Lina: Karnavalo. 1973
+
+García, Higinio: Kapturnoj. 1999
+
+Johansson, Sten: Sesdek ok. 2020
+
+Karpunina, Lena: La bato. 2000
+
+Löwenstein, Anna: La memoraĵoj de Julia Agripina. 2021
+
+Modest, Julian (Miĥalkov, Georgi): Maja pluvo. 1984
+
+Rodin, Sen (Franceschi, Filippo): Bildoj pri norda lando kaj aliaj rakontoj. 2006
+
+de Seabra, Manuel: La armeoj de Paluzie. 1996
+
+Štimec, Spomenka: Kroata milita noktlibro. 1993
+
+Poezio
+
+Auld, William: En barko senpilota. 1987
+
+Boulton, Marjorie: Unu animo homa. 2022
+
+Camacho, Jorge: En la profundo. 2013
+
+Camacho, Jorge: La silika hakilo. 2011
+
+Conterno Guglielminetti, Clelia: Eta vivo. 1969
+
+Dresen, Hilda: Norda naturo. 1967
+
+Fernández, Miguel: El miaj sonoraj soloj. 1996
+
+Fernández, Miguel: Semoj de matenruĝo. 2023
+
+de Kock, Edwin: Testamente. 2015
+
+Mao Zifu: Kantoj de Anteo. 2006
+
+Nervi, Mauro: La turoj de l’ ĉefurbo. 1978
+
+Nervi, Mauro: Havenoj. 2001
+
+Philippe, Benoît: Kvazaŭ varfo. 2016
+
+Ragnarsson, Baldur: La lingvo serena. 2007
+
+Rossi, Nicolino: Sur la vivopado. 1980
+
+Urbanová, Eli: Nur tri kolorojn. 1960
+
+
+---
+
+# Malklaras la sorto de la libroservo de UEA
+
+**Published:** 2023-09-19
+
+**URL:** https://www.liberafolio.org/2023/09/19/malklaras-la-sorto-de-la-libroservo-de-uea/
+
+**Categories:** UEA, kulturo, movado
+
+Jam antaŭ du jaroj la komitato de UEA decidis, ke la libroservo de la asocio estonte estos prizorgata de la organizaĵo E@I en Slovakio. Tamen ĝis nun la afero pendas, ŝajne ĉar oni ne sukcesis konsenti pri la konkretaj kondiĉoj de la transdono. Provizore la libroservon partatempe prizorgas Ionel Oneț, kiu devus emeritiĝi fine de 2022.
+
+Spite la retan epokon, libroeldonado kaj tutmonda vendado de libroj restas angulŝtono de la Esperanta kulturo. Iam gravan rolon en la eldona kampo havis Universala Esperanto-Asocio, sed la agado de UEA sur tiu tereno praktike ĉesis. Post 2019 aperis ĉe UEA nur unu verko: ilustrita historio de Unesko kun la titolo ” De ideoj al agoj ”. Eĉ tiu verko estas dulingva (Esperanta/ĉina) komuna eldonaĵo de UEA kaj Unesko.
+
+Ankaŭ en la distribuado de libroj en Esperanto UEA dum jardekoj havis centran rolon. Eĉ se landaj kaj regionaj libroservoj precipe ekster Eŭropo estis gravaj por komencantoj, nur UEA ĉiam povis oferti plenan elekton de libroj el la tuta mondo kaj el multaj epokoj. La plej grava internacia konkuranto, la libroservo de Flandra Esperanto-Ligo, povis proponi proksimume duonon el la titoloj haveblaj ĉe UEA.
+
+Laŭ raporto pri la Esperanta libromerkato dum la jaroj 2001–2010, aperinta en la revuo Esperanto en decembro 2011, verŝajne duono de la tutmonda Esperanta librovendado okazis tra UEA. Kiel statas la afero nun ne klaras, ĉar nova jardeka raporto ne aperis en 2021.
+
+Jam de du jaroj malklaras la plua sorto de la libroservo de UEA. La domo en Nieuwe Binnenweg 176, kie troviĝas la libroservo kaj granda parto de la stoko, estas vendota. En septembro 2021 la komitato decidis, ke la libroservo estos transdonita al la organizaĵo E@I en Slovakio, kiu liveru servojn al UEA laŭ kontrakto.
+
+Jam dum la koncerna komitata kunsido la aranĝo vekis kritikon, ĉar mankis informoj pri la enhavo de la proponata kontrakto.
+
+– Mi ne emas principe konsenti pri kontrakto, pri kies konkretaj kondiĉoj mi nenion scias. Ne nur ĉar laŭ mi ne estas logike unue aprobi servoprovizanton kaj nur poste difini la kondiĉojn, sed ankaŭ ĉar ĝis nun mi nenion konkretan scias pri la maniero kiel estis elektita tiu ĉi servoprovizisto, diris tiam komitatano Mariana Evlogieva.
+
+Komitatano Hans Becklin proponis, ke oni faru publikan alvokon pri alternativaj proponoj. La estraro argumentis, ke ĉiuj necesaj esploroj pri alternativoj jam estis faritaj, sed ne eblis publike raporti pri ili, ĉar kritiko pri aliaj proponantoj de servoj povus esti ”ofenda”.
+
+La propono de la estraro transdoni kaj la kongresan administradon kaj la libroservon al E@I estis sekve aprobita post voĉdono. Dum la kongresa administrado jam estas prizorgata de E@I, pri la transdono de la libroservo dum du jaroj ne okazis ajnaj videblaj paŝoj.
+
+Fine de 2022 devus emeritiĝi la multjara respondeculo pri la libroservo, Ionel Oneț. Por ke la libroservo simple ne ĉesu funkcii, la estraro de UEA tiam petis lin provizore daŭrigi sian laboron.
+
+”Nia libroservisto konsentis deĵori kelkajn pliajn monatojn”, la estraro raportis al la komitato la 8-an de januaro, post kiam Libera Folio petis klarigon pri la estonteco de la libroservo.
+
+De tiam pasis pli ol kelkaj monatoj, sed daŭre haveblas neniaj informoj pri la estonteco de la plej grava librovendejo en Esperantujo. En januaro, jam post la apero de artikolo pri la temo, Libera Folio ricevis respondon de Peter Baláž, la kunordiganto de E@I, kiu dementis la aserton, ke lia organizaĵo prokrastas la aferon:
+
+– E@I ne prokrastas subskribon de la kontrakto, ĉar la kontrakto ne pretas ankoraŭ. Por ĝuste fari ĝin bone (kaj eviti eblajn postajn problemojn) ni provas solvi ĉiujn defiojn kaj eblajn obstaklojn. Tial mi nun komunikas kun jurista firmao, por trovi la plej bonan solvon por tiu transpreno kaj prizorgo de la libroservo.
+
+Laŭ li, la spaco por la libroservo jam en januaro baze pretis, kvankam mankis kelkaj aferoj, kiel alarmo kaj kameraoj kaj asekuro, por ke la libroj povu esti sekure transprenitaj kaj stokitaj.
+
+– Do jes ni daŭre interesiĝas kaj pretas akcepti tiun ĉi taskon kaj defion, li konfirmis tiam.
+
+Peter Baláž tiam supozis, ke la afero povos preti en marto, sed kiam Libera Folio en marto kontaktis la prezidanton de UEA, Duncan Charters, estis nenio nova por raporti:
+
+– Rilate la Libroservon, ankaŭ tiuj aranĝoj estas traktataj, sed nek mi nek iu alia scias pri la fina rezulto. Ni kompreneble celas kiel eble plej glatan transiron, sed same restas multaj komplikaĵoj pri transiro. Intertempe daŭre funkcias la Libroservo normale.
+
+En junio Charters respondis simile al demando de Libera Folio pri la vendo de la domo, pri la lanĉo de la nova retejo, kaj pri la sorto de la libroservo:
+
+– Estas progreso en ĉiuj tri aferoj kiujn vi menciis, sed ĝis nun neniu raportebla rezulto, ĉar ankoraŭ prilaborataj.
+
+De tiam Libera Folio spite petojn sukcesis ricevi neniajn novajn informojn pri la estonteco de la libroservo.
+
+Pri progreso rilate al la administra sistemo AKSO kaj la nova retejo, la estraro – laŭ decido de la komitato farita en Torino – ricevis la taskon raporti ĝis la fino de aŭgusto. Tio ne okazis. Post rememorigo de Renato Corsetti la vicprezidanto Francisco Maia respondis , ke la dato ”montriĝis nerealisma”.
+
+La 10-an de septembro laŭ informoj de Libera Folio tamen okazis plurhora kunsido inter reprezentantoj de TEJO, UEA kaj eksteraj observantoj, kiujn petis inkluzivigi la komitato de UEA. Dum la kunsido reprezentantoj de TEJO prezentis la nunan staton de la sistemo kaj respondis al teknikaj demandoj.
+
+Laŭ plano akceptita en Torino, la komitato de UEA sabate la 23-an de septembro devos kunveni por fari finajn decidojn pri la estonteco de la reteja projekto komencita en 2013. Tiam la komitatanoj havos ŝancon ankaŭ peti raporton pri la planoj de la estraro por la libroservo.
+
+
+---
+
+# Decido pri nova retejo denove prokrastita
+
+**Published:** 2023-09-26
+
+**URL:** https://www.liberafolio.org/2023/09/26/decido-pri-nova-retejo-denove-prokrastita/
+
+**Categories:** UEA
+
+Komitatanoj de UEA konsentis denove prokrasti decidon pri la nova retejo kaj la administra sistemo Akso. La projekto de reteja renovigo daŭras ekde 2013. Dum sabata kunsido estis konsentite, ke la komitato estos informita pri progresoj en januaro 2024.
+
+Ĝis la fino de aŭgusto UEA en iu aŭ alia maniero venu al konkludo pri la reteja renovigo kaj decidu pri nova administra sistemo. Tion decidis la komitato en Torino, sed tio ne okazis. La tempoplano montriĝis nerealisma, laŭ vicprezidanto Fernando Maia .
+
+Dimanĉe la 10-an de septembro por trakti la temon tamen kunvenis reprezentantoj de TEJO, UEA kaj eksteraj observantoj, kiujn petis inkluzivigi la komitato de UEA.
+
+Du semajnojn poste, en sabato la 23-a de septembro, okazis “neformala” kunsido de la komitato, kie devis esti preparitaj finaj konkludoj pri la projekto: ĉu oni akceptu la novan administran sistemon AKSO, preparitan de TEJO laŭ mendo de UEA, aŭ ĉu UEA serĉu tute novan solvon por la modernigo de la administrado de la retejo.
+
+La estraro tamen daŭre ne povis prezenti la finan raporton, kiun la komisiono pri financo urĝe postulis en siaj konkludoj , prezentitaj dum la UK en Torino en aŭgusto. Anstataŭe la komitato ricevis nur ĝeneralajn klarigojn pri la stato de la proponata sistemo, samkiel dum la UK.
+
+Dum la kunveno estis levita la demando, ĉu entute havas sencon, ke bonfara organizaĵo kun nur kelkmil membroj kreu tute novan, propran programon por retejo kaj administrado, anstataŭ elturniĝi per ekzistantaj programoj.
+
+La demando verŝajne estis starigita dek jarojn tro malfrue, ĉar la laboro jam estas farita, sed laŭ la estraro tamen ekzistis validaj kialoj por mem entrepreni la projekton. Interalie oni volis, ke la videbla parto de la programo estu komplete en Esperanto. Krome oni havis la okazon profiti de “helpemaj programistoj” ĉe TEJO.
+
+Vicprezidanto Fernando Maia raportis pri la kvarhora kunsido okazinta la 10-an de septembro, kaj konkludis, ke dum la venontaj semajnoj necesos pliaj konsultiĝoj. Prezidanto Duncan Charters diris, ke la dokumentoj pri la programo, kiujn ricevis UEA, estas bonaj kaj verŝajne ebligos ke aliaj programistoj transprenu ĝian pluan evoluigon.
+
+Laŭ la plano de la estraro, la sistemo nun estu analizita de tri kompetentaj fakuloj, kiuj ĝis novembro raportu al UEA siajn konkludojn. Nur post tio oni decidu, ĉu UEA akceptu la proponatan sistemon – aŭ tute rezignu pri la afero, kiu ĝis nun kostis almenaŭ 100 000 eŭrojn.
+
+Oni eksciis, ke al la komitato la demando pri la sorto de AKSO laŭplane revenos nur en januaro 2024. Tiel oni efektive ignoras la pli fruan formalan decidon de la komitato, faritan en Torino.
+
+Por valide ŝanĝi tiun decidon necesus reta voĉdono, ĉar neformala kunsido ne povas ŝanĝi oficialan decidon de la komitato, des pli ke mankis kvorumo dum la sabata kunveno.
+
+Dum la kunveno estis preterpase levita ankaŭ la demando pri la estonteco de la libroservo de UEA, kiu daŭre malklaras. Laŭ la estraro daŭras esploroj pri la afero, kiun laŭdire komplikas iuj eŭropaj reguloj pri transsendo de varoj.
+
+Jam antaŭ du jaroj la komitato de UEA decidis, ke la libroservo de la asocio estonte estos prizorgata de la organizaĵo E@I en Slovakio. Tamen ĝis nun la afero pendas, ŝajne ĉar oni ne sukcesis interkonsenti pri la konkretaj kondiĉoj.
+
+La komitatanoj dum sia sabata kunveno diskutis ankaŭ pri la kongresaj planoj por la proksima tempo. Interalie temis pri tio, ĉu oni iel povas finance helpi partoprenadon de afrikanoj en la venontjara UK en Tanzanio, por ke ĉeestu almenaŭ iu esperantisto el ĉiu afrika lando, kiu havas Esperanto-movadon.
+
+Estis prezentita ankaŭ mallonga raporto pri kontaktoj okazintaj kaj okazontaj kun la firmao Kosmo rilate al la utiligado de la administra subvencio de EU.
+
+
+---
+
+# Nenio klaras pri la retejaj planoj de UEA
+
+**Published:** 2023-10-04
+
+**URL:** https://www.liberafolio.org/2023/10/04/nenio-klaras-pri-la-retejaj-planoj-de-uea/
+
+**Categories:** UEA, interreto, movado
+
+Kion decidis la komitato de UEA pri la reteja renovigo? Kio okazos nun? Ĉu UEA tute forlasos la administran sistemon AKSO, kiun laŭ mendo de UEA dum pluraj jaroj ellaboris TEJO? Post la publikigo de estrara raporto pri la pasintsemajna neformala kunveno de komitatanoj la afero eĉ malpli klaras ol antaŭe.
+
+Dum la kongreso en Torino la komitato de UEA senŝanĝe akceptis la rekomendojn de la komisiono pri financo, laŭ kiu ĝis la fino de aŭgusto oni testu la rezultojn de la laboro pri la nova administra sistemo AKSO kaj raportu pri la rezultoj al la komitato.
+
+Jam tiam tamen klaris, ke la tasko estas neplenumebla, kaj oni konsentis, ke la finan sorton de la reteja renovigo la komitato diskutu en aparta kunveno la 23-an de septembro. Ankaŭ je tiu dato la estraro tamen ne povis doni al la komitato finan raporton, sed nur klarigojn pri novaj esploroj kaj kunsidoj, kiuj devos okazi dum la proksimaj monatoj.
+
+Formale eĉ ne klaras, kion la komitato efektive decidis en sia kunsido la 4-an de aŭgusto, ĉar ĝis nun aperis nek protokolo de la kunsido nek raporto pri ĝi en la komunikiloj de UEA. Raportis pri ĝi nur Libera Folio . La manko de protokolo estas rekta malobservo de la regularo de UEA, laŭ kiu la protokolo devas esti havebla plej laste unu monaton post la kunveno.
+
+La afero iĝis eĉ pli konfuza, kiam la ĝenerala sekretario de UEA, Aleks Kadar, la 2-an de oktobro post pluraj petoj fine publikigis raporteton pri la neformala kunsido okazinta la 23-an de septembro.
+
+La raporto ĝenerale estas tre svaga kaj sendetala. Tute mankas konkretaj faktoj ekzemple pri la administra subvencio de EU, kiun UEA unuafoje ricevis. La raporto mencias nur, ke la temo estis tuŝita:
+
+”Pri la administra subvencio de EU estis menciitaj la ĝisnunaj atingoj kaj la plano de la Estraro kunsidi pri Kosmo Strategio por prepari la sekvajn paŝojn.”
+
+La kunsidon partoprenis malpli ol duono el la komitatanoj, do ĝi neniel povus esti decidopova, eĉ se oni tion dezirus. Ial la kunvenon gvidis vicprezidanto Fernando Maia.
+
+La raporto sendita al la komitata retlisto asertas, ke kiel bazo por la kunsido servis la raporto de la komisiono pri financo, kiu ja estis senŝanĝe aprobita de la komitato en Torino. Tamen praktike la rekomendoj de la komisiono estis ignorataj.
+
+La plej urĝa el tri taskoj identigitaj de la komisiono pri financo en tiu raporto estis ”testi la rezultojn de AKSO ene de unu monato (limdato 2023/08/31), inkluzivante ĉiujn interkonsentitajn funkciojn, konektadon al librotena sistemo, retan dezajnon, transmigron de datumoj kaj ĝian facilan uzeblecon por oficistoj”.
+
+Tio ne estis farita. Okazis nur laborkunsido, kaj surbaze de ĝi la estraro evidente decidis plu prokrasti la aferon. La nova prokrasto en la raporto estas prezentata en formo de ”propono”, sed ne klaras kiu proponas kion al kiu, nek ĉu la komitato havas ajnan rolon en la afero:
+
+Inter la konkludoj de la laborkunsido aperis la propono, ke estonte pri AKSO respondecus rekte UEA kaj la plano, instigita de la raporto de la komisiono pri financo, taski al laborgrupo de fakuloj pri programado, por analizi la aferon kaj raporti al UEA kun konkludoj.
+
+Laŭ la nuna propono tiu laborgrupo havus ĝis komenco de decembro por liveri raporton, surbaze de kiu UEA povus konkludi ĉu ĝi daŭras aŭ ne kun AKSO. Do decido tia de UEA povus veni en decembro-januaro.
+
+Post la publikigo de la raporto, la eksa ĝenerala direktoro de UEA, Osmo Buller, reagis en la retlisto UEA-membroj:
+
+– Post tiuj respondoj oni scias nur tion, kion oni scias jam de multaj jaroj, nome ke la afero plu prokrastiĝas.
+
+Li trovas ”ploriga”, ke nur dudeko el entute 55 komitatanoj partoprenis la kunsidon:
+
+– Plimulto do eĉ ne interesiĝas pri la afero, kio estas tre zorgiga. Entute la pasiveco de la komitato estas zorgiga, ĉar ĝi ne limiĝas al la AKSO-afero. Estas tasko de la estraro daŭre veki la komitaton per ĉiaj impulsoj, sed ŝajne tio ne gravas al la estraro. Al ĝi ne gravas ekzemple liveri akurate al la komitato la protokolon de la kunsidoj en Torino, kio laŭ la regularo devis okazi plej laste unu monaton post la lasta kunsido. Krome, la protokolo devas esti disponebla ne nur al la komitatanoj sed al ĉiuj interesitoj.
+
+Ĝenerale apenaŭ aperas komentoj pri la afero en la listo UEA-membroj aŭ aliaj listoj, por ne paroli pri la diskutlisto de la komitato mem. Evidente la membroj kaj komitatanoj de UEA post dek jaroj perdis la esperon, ke la reteja renovigo komencita en 2013 iam sukcesos.
+
+La statistikoj de Libera Folio kaj la ŝrumpanta kvanto de komentoj montras, ke ankaŭ niaj legantoj ĉiam malpli atentas pri la ”prioritata” projekto de UEA, do eble la estraro sukcesos ĝin silente entombigi, sen ke iu memoros pri la elspezitaj laboro kaj mono.
+
+
+---
+
+# 10-a Oficiala Aldono al la Universala Vortaro
+
+**Published:** 2023-10-07
+
+**URL:** https://www.liberafolio.org/2023/10/07/10-a-oficiala-aldono-al-la-universala-vortaro/
+
+**Categories:** kulturo
+
+La 24-an de septembro 2023, la Akademio aprobis la 10-an Oficialan Aldonon al la Universala Vortaro, kun 420 novaj radikoj kaj 832 novaj vortoj aŭ plurvortaj terminoj kaj iliaj difinoj. Voĉdonis 41 akademianoj el 45 (91%), 32 aprobis (78%), 4 voĉdonis kontraŭ kaj 5 sindetenis. Libera Folio publikigas la plenan tekston.
+
+La teksto nun troveblas ankaŭ en la retejo de la Akademio .
+
+La Akademio de Esperanto prezentas en tiu ĉi Deka Oficiala Aldono 420 radikojn kaj 832 vortojn aŭ plurvortajn terminojn, kiujn ĝi decidis aldoni al la Universala Vortaro, t.e. oficialigi. Post tiu aldono, la Akademia Vortaro tiel konsistos el la origina Universala Vortaro kaj dek Oficialaj Aldonoj.
+
+La unua renkonto inter esperantistoj tre ofte komenciĝas per interŝanĝo de informoj pri la lokoj, kie ili kaj iliaj familianoj loĝas aŭ naskiĝis, pri ilia genta aŭ landana aparteno, kaj pri la lingvoj, kiujn ili lernis denaske aŭ nun scipovas paroli. Surbaze de tiu realo povas ŝajni surpriza la fakto, ke la Universala Vortaro enhavas relative malmulte da propraj nomoj pri geografio, kaj ke ĝia paletro de nomoj por gentoj kaj lingvoj estas ankoraŭ modesta kompare kun la vasta kanvaso, sur kiu evoluas la nuntempa lingvouzo. La jena Oficiala Aldono volas ŝanĝi tiun situacion kaj fiksi la formon de multaj tiaj vortoj surbaze de raciaj principoj kaj de uzo konstatebla ĉe bonaj aŭtoroj.
+
+Sed la intereso de tiu ĉi dokumento kompreneble ne limiĝas al la faciligo de sinprezentaj konversacioj. Sur la geografia tereno ĝi starigas detalan mapon de la aktuala mondo kaj evidentigas gravajn rilatojn inter gentoj, landoj kaj lingvoj. Ĝi ebligos paroli pri la ĉefaj montoj, maroj, riveroj, insuloj kaj lagoj per nomoj ekde nun oficialigitaj. Ĝi ankaŭ atestas la rilaton inter lingvoj kaj lingvofamilioj, la historian evoluon de landoj nuntempaj kaj antikvaj, kaj skizas la administran dividon de multaj landoj en regionojn aŭ alinomajn landerojn. Kaj preter la aro da elementoj, kiujn oficialigas la Aldono, ĝi volas montri per ekzemploj la ĝeneralajn principojn aplikindajn ĉe ĝusta esperantigo de pliaj samspecaj vortoj.
+
+Nomoj de gentoj aŭ landanoj (vidu la postan atentigon pri la rilato inter tiuj du konceptoj) kiel anglo, franco, germano, hispano kaj ruso jam estas Fundamentaj, kaj el tiuj eblas formi la landnomojn Anglujo, Francujo, Germanujo, Hispanujo kaj Rusujo. Same Fundamentaj estas la kontinentonomo Eŭropo kaj la urbonomoj Berlino, Bulonjo, Londono, Nov‐Jorko kaj Parizo, kiel detalite en la parto B de la 1‐a Listo de la Sepa Oficiala Aldono. La Oka Oficiala Aldono el la jaro 1974 plie oficialigis 32 landnomojn kaj 15 landanonomojn (tamen sen difinotekstoj) kaj krome la nomojn de kvar kontinentoj, unu maro kaj du oceanoj (kun difinotekstoj kaj tradukoj en ses naciajn lingvojn). La Naŭa Oficiala Aldono el la jaro 2007 poste oficialigis la nomojn de la du polusaj regionoj kaj du pliajn landnomojn.
+
+La Akademio de Esperanto aperigis en la jaro 1989 dokumenton kun la nomo “Listo de Normaj Landnomoj” (Oficialaj Informoj de la Akademio de Esperanto, n‐ro 9), kiun ĝi anstataŭigis en la jaro 2009 per ĝisdatigita kaj reviziita “Listo de Rekomendataj Landnomoj” (Oficialaj Informoj de la Akademio de Esperanto, n‐ro 11 – 2009 04 15). Tiu lasta dokumento enhavas nomojn por ĉiuj 192 tiam ekzistantaj membroŝtatoj de la Unuiĝintaj Nacioj. La Deka Oficiala Aldono nun oficialigas ĉiujn el tiuj landnomoj, kiuj ankoraŭ ne estis oficialigitaj, kaj aldone la nomon de 193‐a membroŝtato (Sud‐Sudano), kiu sendependiĝis en la jaro 2011. La Akademio faras tiun elpaŝon konstatinte, ke la antaŭaj Akademiaj Rekomendoj kontribuis al firmigo kaj unuecigo de la lingvouzo, kaj ke la tempo nun estas matura por plena oficialigo.
+
+Per la Deka Oficiala Aldono la Akademio oficialigas ankaŭ la nomon de la plejparto de urboj, kie iam okazis Universala Kongreso. Ĝi faras tion konstatinte, ke tiuj urbonomoj firme enradikiĝis en la reala lingvouzo, kaj agnoskinte, ke la Esperanta geografio kelkfoje posedas trajtojn, kiuj distingas ĝin disde la kutima tutmonda geografio.
+
+Estas menciinde, ke la Deka Oficiala Aldono sekvas la modelon de la Naŭa Oficiala Aldono, en kiu ĉiuj difinoj estas verkitaj nur en Esperanto, sen tradukoj en naciajn lingvojn. Ĝi nur escepte provizas difinojn por elementoj jam antaŭe oficialigitaj. La Akademio konsideras la eblon estonte aldoni difinojn ankaŭ al la geografiaj nomoj entenataj en la Fundamento kaj en antaŭaj Oficialaj Aldonoj, laŭ la kriterioj de la jena dokumento. Estas notinde ankaŭ, ke la Deka Oficiala Aldono je la unua fojo oficialigas kelkajn plurvortajn kombinaĵojn (kiel la Ruĝa Maro kaj la Roma Regno), kiuj havas valoron de propra nomo.
+
+La Direktoro volas aparte danki al la membroj de la Sekcio pri la Ĝenerala Vortaro, kiuj per sindona laboro kaj konstruaj komentoj senlace kontribuis al plibonigo de la dokumento.
+
+La Deka Oficiala Aldono estis aprobita de la Akademio la 24‐an de Septembro 2023. Voĉdonis 41 el 45 Akademianoj (pli ol du trionoj). La limo de aprobo estis do 21 jesaj voĉdonoj (duono el ĉiuj voĉdonintoj). La dokumento ricevis 32 jesajn, 4 neajn kaj 5 sindetenajn voĉojn. Sekve estas oficialigitaj ĉiuj 420 radikoj kaj 832 vortoj aŭ plurvortaj terminoj kun siaj respektivaj difinotekstoj.
+
+La Direktoro de la Sekcio pri la Ĝenerala Vortaro, Jesper Lykke Jacobsen
+
+Atentigo pri uzado de popolnomoj
+
+Pli‐malpli ĉiuj popolnomoj apartenas al unu el la du kategorioj: gentobazaj popolnomoj kaj landobazaj popolnomoj.
+
+La nocio “gento” estas malfacile difinebla de scienca vidpunkto. Eĉ se oni alprenas la vastan difinon de “homgrupo kun difinitaj historiaj kaj kulturaj tradicioj”, estas malfacile difini, laŭ kiuj objektivaj kriterioj iu homo apartenu aŭ ne apartenu al tiu grupo. Kaj estas malfacile pravigi, kial por iuj el tiaj homgrupoj ekzistas en Esperanto aparta nomo por montri al ties anoj, kaj por aliaj ne.
+
+En tiu ĉi dokumento, ni uzas la vorton “gento” en vasta senco, agnoskante ke laŭ iuj preferoj kaj en certaj kuntekstoj oni povas distingi tiun vorton de la rilata termino “etno”. Same, la nocioj “popolo” kaj “nacio” havas signifojn apudajn al tiuj de la ĵus menciitaj terminoj. Por nuntempe ekzistanta, politike sendependa kaj internacie rekonata teritorio ni plejofte uzas la vorton “lando”, kvankam en iuj situacioj oni povas paroli pri “regno”, “ŝtato”, “princlando” aŭ alio.
+
+En la historio de lingvoj antaŭ Esperanto multaj popolnomoj aperis antaŭ la rilataj nomoj de landoj nun ekzistantaj, kaj iĝis nomdona elemento por formiĝantaj landoj. Ofte oni nomas tian nomdonan genton la “ĉefgento” de la lando nomita laŭe. Esperanto enprenis multajn landnomojn laŭ tiu skemo (Skotlando, Grekujo, Egiptujo, Japanujo), kaj ankaŭ la rilata vorto “ĉefgento” troviĝas en antaŭaj Akademiaj decidoj, kiel la Naŭa Oficiala Aldono. La termino “ĉefgento” cetere estas pure konvencia kaj tute aparte permesas konkludi, nek ke tiu gento nun konsistigas (aŭ eĉ iam konsistigis) la plimulton de la loĝantaro de la koncerna lando, nek ke ties (realaj aŭ supozitaj) trajtoj senŝanĝe konserviĝis tra la historia evoluo. Notindas, ke la nomoj de kelkaj, eĉ tre antikvaj, gentoj ne donis nomon al regno, aŭ tia regno ekzistis, sed en iu historia periodo malaperis aŭ dividiĝis en kelkajn regnojn (hebreoj kaj filiŝtoj de antikveco; frankoj; gaŭloj; poloj en la periodo, kiam Pollando ne ekzistis kiel aparta ŝtato; prusoj post la malapero de Prusujo; jugoslavoj ktp).
+
+Se la popolnomo estas gentobaza, tiam ĝi ofte konserviĝas tra la ŝanĝiĝoj en la konsisto de la popolo kaj refasonado de la mondmapo, dum la koncerna lando povas esti tute alia ol origine. Por tiaj popolnomoj la lingvaj rimedoj de Esperanto permesas distingi apartenon al la nomdona popolo de la lando disde landaneco. Ekzemplo de tia rigora, gentobaza uzo troviĝas jam en la Ekzercaro:
+
+Germanoj kaj francoj, kiuj loĝas en Rusujo, estas Rusujanoj, kvankam ili ne estas rusoj.
+
+Tia distingado povas esti aparte utila en esence multgentaj landoj, kie aparteno al gento (aŭ eĉ al la ĉefgento de la lando) estas ofte konsiderata afero alia ol landaneco.
+
+Male, multaj popoloj nomiĝas laŭ la lando, kie ili loĝas, tiel, ke la landnomo servas por derivi la nomon de la landanoj. Ankaŭ pri tiu skemo troviĝas abundaj ekzemploj en la ĝenerala lingvohistorio antaŭ Esperanto. Specife en tiu ĉi lasta, tiu nomdona kutimo ekzistas ne nur en la “Nova Mondo”, kie formiĝis la “novaj” nacioj de usonanoj, kanadanoj, aŭstralianoj, brazilanoj, meksikanoj kaj multaj aliaj, sed ankaŭ en la “Malnova Mondo” ekzistas (aŭ ekzistis) tiaj nacioj (nederlandanoj, venecianoj, irlandanoj, libianoj, marokanoj).
+
+La signifo de la popolnomo kutime evoluas konforme kun la ŝanĝiĝo de la teritoria konsisto de la koncerna lando.
+
+En kelkaj landoj la nomo de la ĉefgento estas ankaŭ uzata iom elaste por signifi simple loĝanton de la koncerna lando. Tia uzo estas ofta en landoj tradicie malmultgentaj, aŭ kiam ekzistas tradicio kaj atendo, ke malplimultaj gentoj aŭ enmigre alvenintoj rapide asimiliĝas al la ĉefgento. Alia motivo por elasta landana uzo ekzistas en oficialaj aŭ statistikaj rilatoj, en kiuj oni emas konsideri, ke ĉiu, kiu posedas ekzemple germanan naciecon kaj pasporton, estas efektiva germano, sendepende de gentaj konsideroj. Same, iuj nomas sin mem per tia landana uzo por montri sian asimiliĝon al la ĉefgento, laŭ memidentiĝo.
+
+La landana uzo de gentobaza popolnomo povas sin trudi ankaŭ al okazoj, kie tradicie valoras la rigore gentana uzo, aparte kiam temas pri deekstera rigardo al la koncerna lando. Tiu fenomeno montras, ke ne nur rolas la lokaj validaj faktoroj, sed ankaŭ la limigita kono, kiun eksterulo havas aŭ povas havi pri ili.
+
+El socia vidpunkto la diferenco inter gentobazaj kaj landobazaj popolnomoj ŝajnas sensignifa. Tiel oni apenaŭ povas tiri iajn socipolitikajn diferencojn el tio, ke la popolnomo “belgoj” estas gentobaza, dum la nomo de najbara nacio “nederlandanoj” estas derivita el la nomo de ilia lando. Ŝajnas do, ke tia distingo estas nur historia kaprico.
+
+Pri tiu vidpunkto jam atestas la antaŭa Akademia decido “Rekomendoj pri Landnomoj” el 1985, kies 3‐a punkto tekstas:
+
+La Akademio rekomendas konsideri, ke la signifo‐rilatoj inter la landnomoj kaj la koncernaj landano‐nomoj ĉiam estas principe la samaj, kiu ajn estas la kategorio de la landnomoj. Ekz‐e, Angl‐ujo / ‐io — Angl‐oj kaj en la alia kategorio Nederland‐o — Nederland‐anoj.
+
+Tamen, en kelkaj landoj oni nete distingas apartenon al la ĉefgento kaj landanecon. Ekzemple, nomi ajnan rusujanon “ruso” povas soni al tieaj landanoj kiel speco de ŝovinismo aŭ minimume nekompreno de bazaj sociaj distingoj.
+
+En aliaj landoj oni kutime ne faras tian distingadon. Tiel, la formo “italujano” apenaŭ renkonteblas. Tute analoge, la formo “nederlandano” kutime funkcias kiel gentana aŭ naciana nomo, ne nur kiel nomo de landano.
+
+Fine, en iuj aliaj landoj la uzado estas transira inter tiuj du polusaj modeloj kaj, krome, la uzado povas varii depende de la historia periodo, politika klimato kaj eĉ socia grupo kaj antaŭvideble plu evoluos.
+
+Ni atendas, ke la decidoj de la Akademio estos validaj dum longa tempo kaj nur minimume dependos de la politikaj kaj sociaj ŝanĝoj en la mondo. Tial ni ne penas pedante priskribi precizajn nuancojn de la hodiaŭa uzado de ĉiu aparta popolnomo. Tiaj detaloj kaj nuancoj ne aperu sur la nivelo de difinoj en la Akademia Vortaro.
+
+Tial ni difinas ĝenerale la koncernajn gentonomojn elaste, kun du konvenciaj signifoj: 1 Ano de la ĉefgento de X‐ujo (aŭ simila vortumo, eventuale kun kelkaj aldonaj informoj), kaj 2 Ano de X‐ujo, subkomprenante ke depende de la specifa termino, la kunteksto kaj de la parolanto povas validi pli rigora vidpunkto, tiel ke unu el la du signifoj estas pli verŝajna ol la alia.
+
+Tia flekseblo kaj variado estas parto de normala funkciado de Esperanto. Kiel validas preskaŭ pri ĉio en lingvo, por klare esprimi sian penson kaj por esti ĝuste komprenita, oni devas apliki atendeblajn eksterlingvajn sciojn kaj lingvo‐sociajn normojn de la koncerna medio kaj epoko.
+
+Rekomendo pri la elekto inter land kaj uj
+
+En kelkaj gentobazaj nomoj oni uzas la radikon land anstataŭ uj, pro internacieco aŭ Esperanta tradicio:
+
+poloj → Pollando (la lando de la poloj) svisoj → Svislando (la lando de la svisoj)
+
+Sed kompreneble oni povas ankaŭ en tiaj okazoj uzi uj : Polujo, Svisujo. En la ĉi‐postaj difinotekstoj, la Akademio prezentas kelkajn gentobazajn nomojn kun land anstataŭ uj , ĉar la formoj kun land estas pli kutimaj por tiuj nomoj. Sed la Akademio neniel kontraŭas la respondajn formojn kun uj . Inverse ankaŭ eblas ĉe tiuj landoj, por kiuj la Akademio prezentas formon kun uj , anstataŭe uzi formojn kun land (Danlando, Anglolando k.s.). Sed ĝenerale estas preferinde uzi land tiamaniere nur tiam, kiam la rezulta formo havas Esperantan tradicion.
+
+Pri ‐ujo kaj ‐io
+
+En la Oka Oficiala Aldono (1974) la Akademio esprimis sin pri la uzo de “la sufikso ‐ io ” apud la Fundamenta ‐ ujo por formi gentobazan landnomon, “nuligante la antaŭan malkonsilon de la Lingva Komitato, sed ne ŝanĝante ĝin al rekomendo”. En la “Listo de Rekomendataj Landnomoj” (2009) la Akademio sisteme prezentis formojn kun la finaĵo ‐io post la respondaj formoj kun la finaĵo ‐ujo, sed piednote rememorigis pri la neoficiala statuso de ‐io.
+
+En la jena Deka Oficiala Aldono la Akademio volas nenion ŝanĝi aŭ aldoni al siaj antaŭaj decidoj pri ‐io. Konstateblas nur, ke la Akademio ĝin ne oficialigis kaj ankaŭ nun ne oficialigas ĝin. Tial la nunaj difinotekstoj uzas la Fundamentan finaĵon ‐ujo. La respondaj formoj kun ‐io restas neoficialaj.
+
+Rekomendoj pri nomoj de landoj kaj iliaj subdividoj
+
+En 1985 la Akademio oficialigis la jenajn Rekomendojn pri Landnomoj, ree konfirmitan en la enkonduko al la Listo de Rekomendataj Landnomoj de 2009:
+
+Pro respekto al la tradicio, kaj en pacema spirito, ni deklaros, ke landnomo estas taŭga, se ĉiuj aŭ la granda plimulto senkonteste uzas la saman formon.
+
+En okazo de konflikto inter du aŭ pluraj formoj por unu sama landnomo aŭ ankaŭ inter la uzo de kategorio aŭ la alia por unu sama radiko, la Akademio rekomendas preferi la plej internacian landnomon kaj tiel obei al la 15‐a Regulo de la Fundamento.
+
+La Akademio rekomendas konsideri, ke la signifo‐rilatoj inter la landnomoj kaj la koncernaj landano‐nomoj ĉiam estas principe la samaj, kiu ajn estas la kategorio de la landnomoj. Ekz‐e, Angl‐ujo / ‐io ‐ Angl‐oj kaj en la alia kategorio Nederland‐o ‐ Nederland‐anoj.
+
+Principe estas malrekomendite nove formi nomon per iu internacia “sufikso” aŭ sufikse uzata fremda vorto (‐io, ‐(i)stano,…), se la tiel ricevita landnomo ne jam ekzistas internacie.
+
+Ni konsideras ĉi tiujn rekomendojn aplikindaj ne nur al la nomoj de sendependaj landoj, sed ankaŭ al iliaj subdividoj (ŝtatoj, provincoj, federaciaj landoj, dependaj teritorioj, kantonoj, regionoj, respublikoj, gubernioj ktp).
+
+La kvara listero klarigas, kial ni oficialigis formojn kiel “Luksemburgo” (por sendependa lando), “Nov‐Jorko” kaj “Kolorado” (por usonaj ŝtatoj) kaj ne la foje uzatajn konkurencajn formojn “Luksemburgio”, “Nov‐Jorkio” kaj “Koloradio”. La unua listero klarigas, kial ni oficialigis “Kebekio” por kanada provinco malgraŭ la malkohero de ĉi tiu formo kun la kvara principo: Ni konstatis, ke en la efektiva lingvouzo la uzado de “Kebekio” estas tiom unueca, ke ĉi‐okaze la unua listero havas prioritaton super la kvara listero.
+
+Uzado de dividostrekoj
+
+En ĉi tiu dokumento ni uzas dividostrekon en iuj kunmetitaj geografiaj nomoj, ekz. “Sud‐Afriko” kaj “Nov‐Gvineo”. Oni povus same bone skribi “Sudafriko” k.s., sed la uzo de dividostreko estas kutima kaj substrekas la kunmetitecon. Ni tamen uzas dividostrekon nur inter Esperantaj lingvoelementoj, neniam ene de Esperanta lingvoelemento, sekvante la jam okazintan decidon de la Oka Oficiala Aldono koncerne la nomon “Kostariko”. Tial, ekzemple, ni oficialigas la formojn “Riodeĵanejro” kaj “Telavivo”, ne “Rio‐de‐Ĵanejro” kaj “Tel‐Avivo”, kvankam tiuj lastaj skribmanieroj kun dividostreko estas oftaj. Ili restu konsiderataj neplene esperantigitaj same kiel aliaj tiaj formoj, eventuale uzeblaj por atingi pli facilan rekoneblon. Kiel ajn oni skribas la nomojn de tiuj du urboj, iliaj esperantaj radikoj ĉiuokaze estas “riodeĵanejr/” kaj “telaviv/”.
+
+Uzo de internaciaj kodaĵoj
+
+Nia dokumento uzas la internacian normon ISO 3166‐2 por provizi kodaĵojn por landoj kaj landeroj. La landera subdivido estas rekonebla pro la apero de dividostreko. La nomo de subdivido (ŝtato, provinco, federacia lando, dependa teritorio, kantono, regiono, respubliko, gubernio ktp) varias laŭ la koncerna lando. Aldone ni montras naciajn landerokodaĵojn por kvar respublikoj en la Rusuja Federacio, laŭ la normo ГОСТ Р 50577‐2018. Por lingvoj ni uzas la internacian normon ISO 639‐3.
+
+Acor ⁠ / ⁠ o ⁠ / ⁠ j. Insularo de Portugalujo, en Atlantiko. Internacia landerokodaĵo: PT‑ ⁠ 20.
+
+Adelajd ⁠ / ⁠ o. La ĉefurbo de la aŭstralia ŝtato Sud‑ ⁠ Aŭstralio.
+
+Aden ⁠ / ⁠ o. Havenurbo en la sudokcidenta parto de Jemeno, ĉe la Adena Golfo.
+
+Adriatik ⁠ / ⁠ o. Maro inter la Balkana kaj Itala Duoninsuloj.
+
+afgan ⁠ / ⁠ o. Ano de Afganujo. Afgan ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en meza Azio, inter Irano kaj Ĉinujo. Internacia landokodaĵo: AF. afgan ⁠ / ⁠ a. Rilata al afganoj aŭ Afganujo.
+
+Afrik ⁠ / ⁠ o (8OA). Centr‑Afrik ⁠ / ⁠ o. Lando en meza Afriko, norde de Demokratia Respubliko Kongo kaj sude de Ĉado 2 . Internacia landokodaĵo: CF. Okcident‑Afrik ⁠ / ⁠ o. Regiono de Afriko nuntempe plej ofte difinata kiel konsistanta el la landoj Maŭritanio, Malio, Niĝero, Niĝerio, ĉiuj landoj inter tiuj kvar kaj Atlantiko, kaj la apudaj insuloj. Sud‑Afrik ⁠ / ⁠ o. La plej suda lando de Afriko. Internacia landokodaĵo: ZA.
+
+Akad ⁠ / ⁠ o. Antikva urbo en Mezopotamio, la ĉefurbo de la Akada Imperio. akad ⁠ / ⁠ an ⁠ / ⁠ o. Ano de la antikva ĉefgento de la Akada Imperio, parolanta ŝemidan lingvon (internacia lingvokodaĵo: akk). akad ⁠ / ⁠ a. Rilata al Akado, akadanoj, la akada lingvo aŭ la Akada Imperio.
+
+Alask ⁠ / ⁠ o. Usona ŝtato, en la nordokcidenta parto de Nord‑ ⁠ Ameriko. Internacia landerokodaĵo: US‑ ⁠ AK.
+
+Aleksandri ⁠ / ⁠ o 1 Antikva urbo en Egiptujo, ĉe la bordo de Mediteraneo, fondita de Aleksandro la Granda. 2 Gubernio de Egiptujo, kies ĉefurbo estas Aleksandrio 1 . Internacia landerokodaĵo: EG‑ALX.
+
+Alp ⁠ / ⁠ o ⁠ / ⁠ j 1 La plej granda eŭropa montaro, kiu etendiĝas de Mediteraneo ĝis Aŭstrujo. 2 (kun preciziga nomepiteto) Kelkaj aliaj montaroj aŭ partoj de Alpoj 1 : Italaj Alpoj ; Japanaj Alpoj ; Aŭstraliaj Alpoj ; Lunaj Alpoj . Alt ⁠ / ⁠ a ⁠ / ⁠ j Alp ⁠ / ⁠ o ⁠ / ⁠ j. Departemento en Francujo, apud la itala landlimo, sudokcidente de Torino. Internacia landerokodaĵo: FR‑05. Mar ⁠ / ⁠ bord ⁠ / ⁠ a ⁠ / ⁠ j Alp ⁠ / ⁠ o ⁠ / ⁠ j. Departemento en Francujo, ĉe Mediteraneo, apud la itala landlimo. Internacia landerokodaĵo: FR‑06.
+
+Alzac ⁠ / ⁠ o. Regiono kun speciala statuso de Francujo, situanta inter Vogezoj 1 kaj Rejno, konsistanta el la departementoj Supra Rejno kaj Malsupra Rejno. Internacia landerokodaĵo: FR‑6AE. alzac ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Alzaco. alzac ⁠ / ⁠ a. Rilata al alzacanoj, Alzaco aŭ la ĝermana lingvo tie parolata (internacia lingvokodaĵo: gsw): alzaca vino .
+
+Amazon ⁠ / ⁠ o 1 Rivero en Sud‑ ⁠ Ameriko, kiu fluas de Andoj tra Peruo kaj Kolombio ĝis Brazilo, kie ĝi enfluas Atlantikon apud la ekvatoro. 2 Brazila ŝtato, en kiu situas granda parto de la amazona pluvarbaro. Internacia landerokodaĵo: BR‑ ⁠ AM. 3 Departemento en Kolombio, en ties suda parto. Internacia landerokodaĵo: CO‑AMA. 4 Regiono de Peruo, en ties noda parto. Internacia landerokodaĵo: PE‑AMA. 5 Venezuela ŝtato, en la suda parto de Venezuelo. Internacia landerokodaĵo: VE‑Z.
+
+Amerik ⁠ / ⁠ o (8OA). Centr‑Amerik ⁠ / ⁠ o. Regiono de Ameriko konsistanta el la landoj Gvatemalo, Belizo, Salvadoro, Honduro, Nikaragvo, Kostariko kaj Panamo. Nord‑Amerik ⁠ / ⁠ o. Regiono de Ameriko nuntempe plej ofte difinata kiel konsistanta el la insulo Gronlando kaj la landoj Kanado, Usono kaj Meksiko; iafoje ankaŭ Centr‑Ameriko kaj la insuloj en kaj apud la Kariba Maro estas enkalkulataj. Sud‑Amerik ⁠ / ⁠ o. La suda parto de Ameriko, kiun ĉirkaŭas Pacifiko, Atlantiko, la Kariba Maro kaj la orienta limo de Panamo.
+
+Amsterdam ⁠ / ⁠ o. La ĉefurbo de Nederlando, situanta en Nord‐Holando.
+
+And ⁠ / ⁠ o ⁠ / ⁠ j. La plej longa montoĉeno en Sud‑ ⁠ Ameriko, apartiganta Ĉilion disde Argentino kaj Bolivio kaj etendiĝanta pli norde tra Peruo kaj Ekvadoro, ĝis Kolombio.
+
+Andor ⁠ / ⁠ o. Lando en Pireneoj, inter Hispanujo kaj Francujo. Internacia landokodaĵo: AD.
+
+Angol ⁠ / ⁠ o. Lando en sudokcidenta Afriko, inter Demokratia Respubliko Kongo kaj Namibio. Internacia landokodaĵo: AO.
+
+Antigv ⁠ / ⁠ o. La ĉefa insulo de Antigvo kaj Barbudo. Antigv ⁠ / ⁠ o kaj Barbud ⁠ / ⁠ o. Insulara lando en la norda parto de Malgrandaj Antiloj, konsistanta precipe el Antigvo kaj la pli malgranda insulo Barbudo. Internacia landokodaĵo: AG.
+
+Antil ⁠ / ⁠ o ⁠ / ⁠ j. Insularo inter la Kariba Maro kaj Atlantiko, konsistanta el Grandaj Antiloj kaj Malgrandaj Antiloj. Grand ⁠ / ⁠ a ⁠ / ⁠ j Antil ⁠ / ⁠ o ⁠ / ⁠ j. La kvar plej grandaj insuloj en Antiloj (i.a. Kubo kaj Jamajko) kaj la Kajmana Insularo, situantaj en la norda parto de la Kariba Maro. Mal ⁠ / ⁠ grand ⁠ / ⁠ a ⁠ / ⁠ j Antil ⁠ / ⁠ o ⁠ / ⁠ j. Ĉeno de pli malgrandaj insuloj, en la orienta kaj sudorienta partoj de la Kariba Maro, etendiĝanta de Grandaj Antiloj ĝis Venezuelo kaj laŭlonge de ties bordo.
+
+Antverpen ⁠ / ⁠ o 1 Havenurbo en Flandrujo. 2 Provinco de Belgujo, kies ĉefurbo estas Antverpeno 1 . Internacia landerokodaĵo: BE‑ ⁠ VAN.
+
+Apolon ⁠ / ⁠ o. Dio de lumo, poezio kaj artoj, filo de Zeŭso, laŭ la antikvaj greka kaj roma mitologioj.
+
+arb ⁠ / ⁠ o (FdE). Nigr ⁠ / ⁠ a Arb ⁠ / ⁠ ar ⁠ / ⁠ o. Granda arbarkovrita montaro en sudokcidenta Germanujo, oriente de Rejno, proksima al la limoj kun Francujo kaj Svislando.
+
+Argentin ⁠ / ⁠ o. Lando en Sud‑ ⁠ Ameriko, inter Andoj kaj Atlantiko. Internacia landokodaĵo: AR. Asiri ⁠ / ⁠ o. Antikva regno en la norda parto de Mezopotamio, nun parto de Turkujo, Sirio, Irako kaj Irano.
+
+asiri ⁠ / ⁠ an ⁠ / ⁠ o. Ano de la antikva ĉefgento de Asirio. asiri ⁠ / ⁠ a. Rilata al asirianoj, Asirio aŭ la vario de la akada lingvo tie parolata.
+
+Aten ⁠ / ⁠ o 1 La ĉefurbo de Grekujo. 2 Urboŝtato en la antikva Grekujo.
+
+Aŭgsburg ⁠ / ⁠ o. Urbo en Germanujo, situanta en Bavarujo, nordokcidente de Munkeno.
+
+aŭstr ⁠ / ⁠ o 1 Ano de la ĉefgento de Aŭstrujo, parolanta la germanan lingvon. 2 Ano de Aŭstrujo. Aŭstr ⁠ / ⁠ uj ⁠ / ⁠ o. Federacia regno en la suda parto de Mez‑Eŭropo, ĉe la orienta parto de Alpoj. Internacia landokodaĵo: AT. aŭstr ⁠ / ⁠ a. Rilata al aŭstroj aŭ Aŭstrujo. Aŭstr ⁠ / ⁠ a Imperi ⁠ / ⁠ o. Inter la jaroj 1804 kaj 1867, imperio konsistanta el Aŭstrujo kaj aliaj landoj sub ties superrego. Aŭstr ⁠ / ⁠ uj ⁠ / ⁠ o‑Hungar ⁠ / ⁠ uj ⁠ / ⁠ o. Inter la jaroj 1867 kaj 1918, imperio formita per kunigo de la Aŭstra Imperio kaj parto de la Hungara Regno. Mal ⁠ / ⁠ supr ⁠ / ⁠ a Aŭstr ⁠ / ⁠ uj ⁠ / ⁠ o. Aŭstra federacia lando, en la nordorienta parto de Aŭstrujo. Internacia landerokodaĵo: AT‑ ⁠ 3. Supr ⁠ / ⁠ a Aŭstr ⁠ / ⁠ uj ⁠ / ⁠ o. Aŭstra federacia lando, okcidente de Malsupra Aŭstrujo. Internacia landerokodaĵo: AT‑ ⁠ 4.
+
+Aŭstronezi ⁠ / ⁠ o. Tiu parto de la mondo, en kiu vivas aŭstroneziaj gentoj. aŭstronezi ⁠ / ⁠ a. Rilata al grupo de lingvoj kaj gentoj, kiuj originas el Tajvano 1 aŭ suda Ĉinujo, kaj kiuj estas disvastiĝintaj al la insularo de sudorienta Azio, Mikronezio, Nov‑Gvineo, Melanezio, Polinezio kaj Madagaskaro.
+
+Azerbajĝan ⁠ / ⁠ o. Lando situanta okcidente de Kaspio. Internacia landokodaĵo: AZ. azerbajĝan ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Azerbajĝano. azerbajĝan ⁠ / ⁠ a. Rilata al azerbajĝananoj, Azerbajĝano aŭ la tjurka lingvo tie parolata (internacia lingvokodaĵo: aze). Okcident ⁠ / ⁠ a Azerbajĝan ⁠ / ⁠ o. Provinco de Irano, en ties nordokcidenta parto. Internacia landerokodaĵo: IR‑04. Orient ⁠ / ⁠ a Azerbajĝan ⁠ / ⁠ o. Provinco de Irano, oriente de Okcidenta Azerbajĝano. Internacia landerokodaĵo: IR‑03.
+
+Azi ⁠ / ⁠ o (8OA). Mal ⁠ / ⁠ grand‑ ⁠ Azi ⁠ / ⁠ o. Larĝa duoninsulo inter la Nigra Maro, la Egea Maro kaj Mediteraneo. Orient‑ ⁠ Azi ⁠ / ⁠ o. Regiono pli‑ ⁠ malpli konsistanta el Ĉinujo, Japanujo kaj Koreujo. Sud‑ ⁠ Azi ⁠ / ⁠ o. Regiono de Azio nuntempe plej ofte difinata kiel konsistanta el la landoj Barato, Pakistano, Bangladeŝo, Nepalo, Butano, Srilanko, Maldivoj kaj ankaŭ (sed ne ĉiam) Afganujo; iafoje ankaŭ Birmo kaj Irano estas enkalkulataj.
+
+aztek ⁠ / ⁠ o. Ano de grupo da indiĝenaj popoloj en centra Meksiko, kies kulturo floris tra meza Ameriko de la 14‑a jarcento ĝis la alveno de la hispanaj konkerantoj en la jaro 1521. aztek ⁠ / ⁠ a. Rilata al aztekoj aŭ ilia kulturo: azteka sunŝtono ; azteka piramido .
+
+Babilon ⁠ / ⁠ o. Antikva urbo en Mezopotamio, fama pro siaj muregoj, sia sepŝtupa temploturo kaj siaj pendoĝardenoj. babilon ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Babilono. babilon ⁠ / ⁠ a. Rilata al babilonanoj, Babilono aŭ la vario de la akada lingvo tie parolata: babilona konfuzo de lingvoj (Zamenhof).
+
+Bagdad ⁠ / ⁠ o 1 La ĉefurbo de Irako, ĉe Tigriso. 2 Gubernio de Irako, en kiu situas Bagdado 1 . Internacia landerokodaĵo: IQ‑BG.
+
+Baham ⁠ / ⁠ o ⁠ / ⁠ j. Insulara lando en Atlantiko, norde de Kubo. Internacia landokodaĵo: BS. Grand ⁠ / ⁠ a
+
+Baham ⁠ / ⁠ o. La plej norda insulo de Bahamoj, ĉirkaŭ 100 kilometrojn oriente de Florido.
+
+Balkan ⁠ / ⁠ o 1 Montaro en Bulgarujo. 2 Regiono de Turkmenujo, en ties okcidenta parto. Internacia landerokodaĵo: TM‑B. balkan ⁠ / ⁠ a. Rilata al Balkano aŭ la Balkana Duoninsulo: balkana kulturo ; balkana muziko .
+
+balt ⁠ / ⁠ o 1 Ano de unu el la gentoj, kiuj parolas baltan lingvon. 2 Ano de Baltujo. Balt ⁠ / ⁠ uj ⁠ / ⁠ o. Regiono konsistanta el Litovujo, Latvujo kaj Estonujo; historie ankaŭ kun kelkaj apudaj regionoj de Rusujo kaj orienta Prusujo. balt ⁠ / ⁠ a. Rilata al baltoj, baltaj lingvoj aŭ Baltujo. balt ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Hindeŭropaj lingvoj el la branĉo, al kiu apartenas la litova kaj latva lingvoj: estonoj estas baltoj, sed ilia lingvo ne estas balta lingvo .
+
+Bangladeŝ ⁠ / ⁠ o. Lando ĉe la Bengala Golfo, inter Barato kaj Birmo. Internacia landokodaĵo: BD.
+
+Bankok ⁠ / ⁠ o. La ĉefurbo de Tajlando.
+
+bantu ⁠ / ⁠ o. Ano de vasta grupo da popoloj en la suda parto de Afriko, karakterizata precipe per la parenceco de la lingvoj. bantu ⁠ / ⁠ a. Rilata al bantuoj: bantuaj lingvoj .
+
+Barat ⁠ / ⁠ o. Federacia regno en Azio, okupanta la plej grandan parton de la hinda subkontinento. Internacia landokodaĵo: IN.
+
+Barbad ⁠ / ⁠ o 1 La plej orienta insulo en Malgrandaj Antiloj. 2 Lando situanta sur Barbado 1 . Internacia landokodaĵo: BB.
+
+Barbud ⁠ / ⁠ o 1 Insulo de Antigvo kaj Barbudo, ĉirkaŭ 40 kilometrojn norde de Antigvo. 2 Dependa teritorio de Antigvo kaj Barbudo, situanta sur Barbudo 1 . Internacia landerokodaĵo: AG‑10.
+
+Barcelon ⁠ / ⁠ o. La ĉefurbo de Katalunujo 2 .
+
+Barejn ⁠ / ⁠ o. Insulara lando en la Persa Golfo, inter Kataro kaj Sauda Arabujo. Internacia landokodaĵo: BH.
+
+baŝkir ⁠ / ⁠ o. Ano de la ĉefgento de Baŝkirujo, parolanta tjurkan lingvon (internacia lingvokodaĵo: bak). Baŝkir ⁠ / ⁠ uj ⁠ / ⁠ o. Respubliko en la Rusuja Federacio, inter Volgo kaj Uralo, oriente de Tatarujo. Internacia landerokodaĵo: RU‑BA. Nacia landerokodaĵo: 02. baŝkir ⁠ / ⁠ a. Rilata al baŝkiroj, la baŝkira lingvo aŭ Baŝkirujo.
+
+bavar ⁠ / ⁠ o 1 Ano de la ĉefgento de Bavarujo. 2 Ano de Bavarujo. Bavar ⁠ / ⁠ uj ⁠ / ⁠ o. Germana federacia lando en la sudorienta parto de Germanujo. Landerokodaĵo: DE‑BY. bavar ⁠ / ⁠ a. Rilata al bavaroj, la bavara vario de la germana lingvo (internacia lingvokodaĵo: bar) aŭ Bavarujo.
+
+Belfast ⁠ / ⁠ o. La ĉefurbo de Nord‑ ⁠ Irlando.
+
+Beliz ⁠ / ⁠ o 1 Rivero en Belizo 2 , kiu enfluas la Kariban Maron norde de Belizo 3 . 2 Lando en Centr‑Ameriko, ĉe la Kariba Maro, nordoriente de Gvatemalo. Internacia landokodaĵo: BZ. 3 Urbo en la orienta parto de Belizo 2 .
+
+belorus ⁠ / ⁠ o 1 Ano de la ĉefgento de Belorusujo, parolanta orientslavan lingvon (internacia lingvokodaĵo: bel). 2 Ano de Belorusujo. Belorus ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en orienta Eŭropo, oriente de Pollando kaj sudoriente de Litovujo kaj Latvujo. Internacia landokodaĵo: BY. belorus ⁠ / ⁠ a. Rilata al belorusoj, la belorusa lingvo aŭ Belorusujo.
+
+bengal ⁠ / ⁠ o 1 Ano de la ĉefgento de Bengallando, parolanta sanskritidan lingvon (internacia lingvokodaĵo: ben). 2 Ano de Bengallando. Bengal ⁠ / ⁠ land ⁠ / ⁠ o. Regiono konsistanta el Bangladeŝo kaj Okcidenta Bengallando. Okcident ⁠ / ⁠ a Bengal ⁠ / ⁠ land ⁠ / ⁠ o. Barata ŝtato, en la orienta parto de Barato, ĉe la Bengala Golfo. Internacia landerokodaĵo: IN‑WB. bengal ⁠ / ⁠ a. Rilata al bengaloj, la bengala lingvo aŭ Bengallando: bengala fajro (artfajraĵo); bengala tigro ; Bengala Golfo ; ni povas nun traduki inter 64 malsamaj lingvoj […] kiel la bengala (Kalocsay).
+
+Benin ⁠ / ⁠ o. Lando en Okcident‑Afriko, inter Togolando kaj Niĝerio. Internacia landokodaĵo: BJ.
+
+Beograd ⁠ / ⁠ o. La ĉefurbo de Serbujo, kaj inter la jaroj 1918 kaj 2003 de Jugoslavujo.
+
+Bergen ⁠ / ⁠ o. Havenurbo en la sudokcidenta parto de Norvegujo.
+
+Bern ⁠ / ⁠ o 1 Urbo en okcidenta Svislando, la sidejo de la svisaj parlamento kaj registaro. 2 Kantono en Svislando, kies ĉefurbo estas Berno 1. Internacia landerokodaĵo: CH‑ ⁠ BE.
+
+Bisaŭ ⁠ / ⁠ o. La ĉefurbo de Gvineo‑ ⁠ Bisaŭo.
+
+Bizanc ⁠ / ⁠ o. Antikva greka urbo, ĉe Bosporo; alinomita Konstantinopolo en la jaro 330.
+
+Bjalistok ⁠ / ⁠ o. Urbo en nordorienta Pollando, la naskiĝloko de Zamenhof.
+
+Bocvan ⁠ / ⁠ o. Lando en suda Afriko, oriente de Namibio kaj norde de Sud‑Afriko. Internacia landokodaĵo: BW.
+
+Bogot ⁠ / ⁠ o. La ĉefurbo de Kolombio.
+
+bohem ⁠ / ⁠ o. Ano de Bohemujo. Bohem ⁠ / ⁠ uj ⁠ / ⁠ o. Okcidenta parto de Ĉeĥujo, iama reĝlando.
+
+Bolonj ⁠ / ⁠ o. Universitata urbo en la norda parto de Italujo, inter Florenco kaj Venecio.
+
+Bon ⁠ / ⁠ aer ⁠ / ⁠ o 1 La ĉefurbo de Argentino. 2 Provinco de Argentino, en kiu situas Bonaero 1 . Internacia landerokodaĵo: AR‑B.
+
+bord ⁠ / ⁠ o (FdE). Ebur‑Bord ⁠ / ⁠ o. Lando en Okcident‑Afriko, inter Ganao kaj Liberio. Internacia landokodaĵo: CI. Lazur ⁠ / ⁠ a Bord ⁠ / ⁠ o. La mediteranea bordo de sudorienta Francujo.
+
+Borne ⁠ / ⁠ o. Insulo en sudorienta Azio, dividita inter Malajzio, Brunejo kaj Indonezio.
+
+bosn ⁠ / ⁠ o 1 Ano de la ĉefgento de Bosnujo kaj Hercegovino, parolanta sudslavan lingvon (internacia lingvokodaĵo: bos). 2 Ano de Bosnujo kaj Hercegovino. Bosn ⁠ / ⁠ uj ⁠ / ⁠ o. Regiono de la Balkana Duoninsulo, la norda parto de Bosnujo kaj Hercegovino. Bosn ⁠ / ⁠ uj ⁠ / ⁠ o kaj Hercegovin ⁠ / ⁠ o. Lando en la Balkana Duoninsulo. Internacia landokodaĵo: BA. bosn ⁠ / ⁠ a. Rilata al bosnoj, la bosna lingvo, Bosnujo, aŭ Bosnujo kaj Hercegovino.
+
+Boston/ ⁠ o. Havenurbo en la nordorienta parto de Usono, ĉe Atlantiko.
+
+Bospor ⁠ / ⁠ o. Markolo en nordokcidenta Turkujo, liganta la Nigran Maron kun la Marmora Maro kaj formanta la limon inter Eŭropo kaj Malgrand‑ ⁠ Azio.
+
+Brajton ⁠ / ⁠ o. Havenurbo en sudorienta Anglujo.
+
+Bratislav ⁠ / ⁠ o. La ĉefurbo de Slovakujo.
+
+Brazavil ⁠ / ⁠ o. La ĉefurbo de Respubliko Kongo (Kongo Brazavila).
+
+Brazilj ⁠ / ⁠ o. La ĉefurbo de Brazilo.
+
+breton ⁠ / ⁠ o 1 Ano de la ĉefgento de Bretonujo, parolanta precipe la francan, dum malplimulto parolas la bretonan lingvon de kelta origino (internacia lingvokodaĵo: bre). 2 Ano de Bretonujo. Breton ⁠ / ⁠ uj ⁠ / ⁠ o. Duoninsula regiono en nordokcidenta Francujo. Internacia landerokodaĵo: FR‑BRE. breton ⁠ / ⁠ a. Rilata al bretonoj, la bretona lingvo aŭ Bretonujo.
+
+Brunej ⁠ / ⁠ o. Lando en sudorienta Azio, ĉe la Sudĉina Maro, en la norda parto de Borneo. brunej ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Brunejo. brunej ⁠ / ⁠ a. Rilata al brunejanoj, Brunejo aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: kxd), parenca al la malaja.
+
+Brusel ⁠ / ⁠ o 1 La ĉefurbo de Belgujo. 2 Regiono de Belgujo, kiu entenas Bruselon 1 . Internacia landerokodaĵo: BE‑BRU.
+
+Budapeŝt ⁠ / ⁠ o. La ĉefurbo de Hungarujo.
+
+Bukareŝt ⁠ / ⁠ o. La ĉefurbo de Rumanujo.
+
+Burkin ⁠ / ⁠ o. Lando en Okcident‑Afriko, norde de Ganao. Internacia landokodaĵo: BF.
+
+Burund ⁠ / ⁠ o. Lando en orienta Afriko, inter Tanzanio, Ruando kaj Demokratia Respubliko Kongo. Internacia landokodaĵo: BI.
+
+Butan ⁠ / ⁠ o. Lando en Sud‑Azio, ĉe la orienta parto de Himalajo, inter Tibeto kaj Barato. Internacia landokodaĵo: BT.
+
+Cezar ⁠ / ⁠ o 1 Vira nomo, i.a. de la roma regnestro kaj generalo Gajo Julio Cezaro (100–44 antaŭ nia erao). 2 Imperiestra titolo en la Roma Regno: redonu al Cezaro la propraĵon de Cezaro, kaj al Dio la propraĵon de Dio (Nova Testamento). cezar ⁠ / ⁠ a. Rilata al Cezaro: homo estas kiel papilio: li vivas en la suno de la cezara favoro (Lidja Zamenhof).
+
+Ĉad ⁠ / ⁠ o 1 Granda lago oriente de Saharo. 2 Lando en meza Afriko, ĉe kies okcidenta landlimo troviĝas Ĉado 1 . Internacia landokodaĵo: TD.
+
+ĉeĉen ⁠ / ⁠ o . Ano de la ĉefgento de Ĉeĉenujo, parolanta nordorientkaŭkazan lingvon (internacia lingvokodaĵo: che). Ĉeĉen ⁠ / ⁠ uj ⁠ / ⁠ o. Respubliko en la Rusuja Federacio, norde de Kartvelujo. Internacia landerokodaĵo: RU‑CE. Nacia landerokodaĵo: 20. ĉeĉen ⁠ / ⁠ a. Rilata al ĉeĉenoj, la ĉeĉena lingvo aŭ Ĉeĉenujo.
+
+ĉeĥ ⁠ / ⁠ o 1 Ano de la ĉefgento de Ĉeĥujo, parolanta okcidentslavan lingvon (internacia lingvokodaĵo: ces). 2 Ano de Ĉeĥujo. Ĉeĥ ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en Mez‑Eŭropo, inter Aŭstrujo kaj Pollando. Internacia landokodaĵo: CZ. ĉeĥ ⁠ / ⁠ a. Rilata al ĉeĥoj, la ĉeĥa lingvo aŭ Ĉeĥujo.
+
+Ĉenaj ⁠ / ⁠ o. La ĉefurbo de la barata ŝtato Tamillando.
+
+Ĉikag ⁠ / ⁠ o. Urbo en Usono, ĉe la Grandaj Lagoj.
+
+Ĉili ⁠ / ⁠ o. Lando ĉe la okcidenta marbordo de Sud‑ ⁠ Ameriko. Internacia landokodaĵo: CL.
+
+ĉin ⁠ / ⁠ o (9OA). Hind ⁠ / ⁠ o ⁠ / ⁠ ĉin ⁠ / ⁠ uj ⁠ / ⁠ o. La duoninsulo en sudorienta Azio, kiu entenas Birmon, Tajlandon, Vjetnamujon, Laoson, Kamboĝon kaj kontinentan Malajzion.
+
+ĉuvaŝ ⁠ / ⁠ o. Ano de la ĉefgento de Ĉuvaŝujo, parolanta tjurkan lingvon (internacia lingvokodaĵo: chv). Ĉuvaŝ ⁠ / ⁠ uj ⁠ / ⁠ o. Respubliko en la Rusuja Federacio, ĉe Volgo, okcidente de Tatarujo. Internacia landerokodaĵo: RU‑CU. Nacia landerokodaĵo: 21. ĉuvaŝ ⁠ / ⁠ a. Rilata al ĉuvaŝoj, la ĉuvaŝa lingvo aŭ Ĉuvaŝujo.
+
+Dak ⁠ / ⁠ o. La ĉefurbo de Bangladeŝo.
+
+Dalas ⁠ / ⁠ o. Urbo en Usono, en nordorienta Teksaso.
+
+Damask ⁠ / ⁠ o 1 La ĉefurbo de Sirio. 2 Gubernio de Sirio, en kiu situas Damasko 1 . Internacia landerokodaĵo: SY‑DI.
+
+Dancig ⁠ / ⁠ o. Iama nomo de Gdansko.
+
+Danub ⁠ / ⁠ o. Granda eŭropa rivero, kiu fluas de la Nigra Arbaro en Germanujo, tra centra kaj sudorienta Eŭropo, ĝis ĝi enfluas la Nigran Maron.
+
+Delhi ⁠ / ⁠ o. Urbo en norda Barato. Nov‑ ⁠ Delhi ⁠ / ⁠ o. Urbo en la mezo de Delhio, kiu estas ties administra centro kaj la ĉefurbo de Barato.
+
+Dominik ⁠ / ⁠ o 1 Insulo en la mezo de Malgrandaj Antiloj. 2 Lando situanta sur Dominiko 1 . Internacia landokodaĵo: DM. Dominik ⁠ / ⁠ a Respublik ⁠ / ⁠ o. Lando en Grandaj Antiloj, en la orienta parto de la insulo, sur kiu situas ankaŭ Haitio. Internacia landokodaĵo: DO.
+
+dravid ⁠ / ⁠ o. Ano de unu el la gentoj parolantaj dravidan lingvon. dravid ⁠ / ⁠ a. Rilata al dravidoj aŭ la dravidaj lingvoj. dravid ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Lingvofamilio konsistanta el la tamila kaj parencaj lingvoj, parolataj en Srilanko, suda Barato, centra Barato, orienta Barato kaj sudokcidenta Pakistano.
+
+Dresden ⁠ / ⁠ o. Urbo en orienta Germanujo, la ĉefurbo de Saksujo 2 .
+
+Dublin ⁠ / ⁠ o 1 La ĉefurbo de la respubliko Irlando. 2 Graflando de la respubliko Irlando, en kiu situas Dublino 1 . Internacia landerokodaĵo: IE‑D.
+
+Edinburg ⁠ / ⁠ o. La ĉefurbo de Skotlando.
+
+Ege ⁠ / ⁠ o. Mitologia reĝo de Ateno 2 .
+
+egipt ⁠ / ⁠ o 1 Ano de la ĉefgento de Egiptujo, parolinta dum antikveco afrikazian lingvon (internacia lingvokodaĵo: egy), sed parolanta nun araban lingvon (internacia lingvokodaĵo: arz). 2 Ano de Egiptujo. Egipt ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en nordorienta Afriko, ĉe Nilo, konata pro sia civilizacio dum antikveco. Internacia landokodaĵo: EG. egipt ⁠ / ⁠ a. Rilata al egiptoj, la egiptaj lingvoj aŭ Egiptujo: egiptaj piramidoj ; egipta vario de la araba lingvo .
+
+Elam ⁠ / ⁠ o. Antikva regno, kiu ekzistis inter la 4‑a kaj 1‑a jarmiloj antaŭ nia erao en parto de la nuntempa Irano, oriente de Tigriso kaj de la Persa Golfo. elam ⁠ / ⁠ an ⁠ / ⁠ o. Ano de la antikva ĉefgento de Elamo. elam ⁠ / ⁠ a. Rilata al Elamo, elamanoj aŭ ilia lingvo (internacia lingvokodaĵo: elx).
+
+emir ⁠ / ⁠ o. Titolo de princo, generalo aŭ guberniestro en islamaj landoj. emir ⁠ / ⁠ land ⁠ / ⁠ o. Teritorio, kies suvereno estas emiro. Unu ⁠ / ⁠ iĝ ⁠ / ⁠ int ⁠ / ⁠ a ⁠ / ⁠ j Arab ⁠ / ⁠ a ⁠ / ⁠ j Emir ⁠ / ⁠ land ⁠ / ⁠ o ⁠ / ⁠ j. Federacio de sep emirlandoj sur la Araba Duoninsulo, inter la Persa Golfo kaj la Omana Golfo. Internacia landokodaĵo: AE.
+
+era ⁠ / ⁠ o. Kronologia sistemo, laŭ kiu oni kalkulas la tempon ekde aparta difinita tempopunkto: la kristana erao ; la erao de la fondo de Romo . ni ⁠ / ⁠ a era ⁠ / ⁠ o. La erao kalkulata ekde la jaro 1 laŭ la gregoria kaj julia kalendaroj (ligita, laŭ tradiciaj kalkuloj, al la naskiĝo de Kristo): Julio Cezaro estis murdita en la jaro 44 antaŭ nia erao .
+
+Eritre ⁠ / ⁠ o. Lando en orienta Afriko, ĉe la Ruĝa Maro, inter Sudano kaj Ĝibutio. Internacia landokodaĵo: ER.
+
+etrusk ⁠ / ⁠ o. Ano de la ĉefgento de Etruskujo. Etrusk ⁠ / ⁠ uj ⁠ / ⁠ o. Antikva regno, kiu ekzistis en la okcidenta parto de meza Italujo dum la unua jarmilo antaŭ nia erao; ĝi fariĝis parto de la Roma Imperio en la jaro 27 antaŭ nia erao. etrusk ⁠ / ⁠ a. Rilata al etruskoj, la etruska lingvo aŭ Etruskujo.
+
+Eŭfrat ⁠ / ⁠ o. Rivero en okcidenta Mezopotamio, kiu fluas de Turkujo tra Sirio ĝis Irako, kie ĝi kunfluas kun Tigriso ĉirkaŭ 200 kilometrojn nordokcidente de la Persa Golfo.
+
+Eŭrop ⁠ / ⁠ o (FdE). Mez‑Eŭrop ⁠ / ⁠ o. Regiono de Eŭropo nuntempe plej ofte difinata kiel konsistanta el la landoj Aŭstrujo, Ĉeĥujo, Germanujo, Hungarujo, Kroatujo, Liĥtenŝtejno, Pollando, Slovakujo, Slovenujo kaj Svislando; iafoje estas enkalkulataj ankaŭ kelkaj apudaj landoj. hind ⁠ / ⁠ eŭrop ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Familio konsistanta el lingvoj parolataj en preskaŭ ĉiuj partoj de Eŭropo kaj en Irano, Afganujo, Pakistano, norda Barato, Bangladeŝo, Srilanko kaj Maldivoj.
+
+eŭsk ⁠ / ⁠ o 1 Ano de la ĉefgento de Eŭskujo 1 . 2 Ano de Eŭskujo 1 . Eŭsk ⁠ / ⁠ uj ⁠ / ⁠ o 1 Regiono dividita inter Hispanujo kaj Francujo, ĉe la okcidenta parto de Pireneoj. 2 Aŭtonoma regiono de Hispanujo, formanta la sudokcidentan parton de Eŭskujo 1 . Internacia landerokodaĵo: ES‑PV. eŭsk ⁠ / ⁠ a. Rilata al eŭskoj, ilia lingvo (internacia lingvokodaĵo: eus) aŭ Eŭskujo.
+
+fenic ⁠ / ⁠ o. Ano de la antikva ĉefgento de Fenicujo, parolanta ŝemidan lingvon (internacia lingvokodaĵo: phn). Fenic ⁠ / ⁠ uj ⁠ / ⁠ o. Antikva mara imperio, kiu ekzistis ĉe la orienta parto de Mediteraneo, pli‑malpli en la nunaj Libano kaj Sirio, ekde la tria jarmilo antaŭ nia erao; ĝi estis konkerita de la Roma Regno en la jaro 64 antaŭ nia erao. fenic ⁠ / ⁠ a. Rilata al fenicoj, la fenica lingvo aŭ Fenicujo: el la fenica alfabeto fontas la postaj hebrea, greka, latina kaj araba alfabetoj .
+
+Fiĝi ⁠ / ⁠ o. Insulara lando en la orienta parto de Melanezio, ĉirkaŭ 2000 kilometrojn nord‑nordoriente de Nov‑Zelando. Internacia landokodaĵo: FJ. fiĝi ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Fiĝio. fiĝi ⁠ / ⁠ a. Rilata al fiĝianoj, Fiĝio aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: fij).
+
+Filadelfi ⁠ / ⁠ o. Havenurbo en Usono, sudokcidente de Nov‑ ⁠ Jorko.
+
+Filipin ⁠ / ⁠ o ⁠ / ⁠ j 1 Insularo en okcidenta Pacifiko. 2 Lando, kiu okupas Filipinojn 1 . Internacia landokodaĵo: PH. filipin ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Filipinoj. filipin ⁠ / ⁠ a. Rilata al filipinanoj, Filipinoj aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: fil).
+
+filiŝt ⁠ / ⁠ o. Ano de antikva popolo, loĝanta en teritorio ĉe Mediteraneo, okcidente de la Morta Maro, hodiaŭ parto de Egiptujo, Palestino kaj Israelo. Filiŝt ⁠ / ⁠ uj ⁠ / ⁠ o. Antikva regno, federacio de pluraj filiŝtaj urboŝtatoj, kiu ekzistis, ĝis la dua Babilona Imperio ĝin konkeris en la jaro 604 antaŭ nia erao.
+
+finn ⁠ / ⁠ o 1 Ano de ĉefgento de Finnlando, parolanta uralan lingvon (internacia lingvokodaĵo: fin). 2 Ano de Finnlando. Finn ⁠ / ⁠ land ⁠ / ⁠ o. Lando en norda Eŭropo, nordoriente de la Balta Maro. Internacia landokodaĵo: FI. finn ⁠ / ⁠ a. Rilata al finnoj, la finna lingvo aŭ Finnlando.
+
+flandr ⁠ / ⁠ o 1 Ano de la ĉefgento de Flandrujo, parolanta la nederlandan lingvon. 2 Ano de Flandrujo. Flandr ⁠ / ⁠ uj ⁠ / ⁠ o 1 Iama graflando, nun dividita inter Nederlando, Belgujo kaj Francujo. 2 Regiono de Belgujo; ties norda, nederlandlingva parto. Internacia landerokodaĵo: BE‑VLG. flandr ⁠ / ⁠ a. Rilata al flandroj, la flandra vario de la nederlanda lingvo aŭ Flandrujo.
+
+Florenc ⁠ / ⁠ o. Urbo en centra Italujo, inter 1865 kaj 1871 la ĉefurbo de Italujo.
+
+Florid ⁠ / ⁠ o 1 Duoninsulo, en la sudoriento de Nord‑ ⁠ Ameriko. 2 Usona ŝtato, kiu okupas Floridon 1 . Internacia landerokodaĵo: US‑ ⁠ FL.
+
+Fortalez ⁠ / ⁠ o. Havenurbo en la nordorienta parto de Brazilo.
+
+Frankfurt ⁠ / ⁠ o 1 Urbo en sudokcidenta Germanujo, ĉe la rivero Majno ( Frankfurt ⁠ / ⁠ o ĉe Majn ⁠ / ⁠ o ). 2 Urbo en orienta Germanujo, apud la pola landlimo, ĉe la rivero Odro ( Frankfurt ⁠ / ⁠ o ĉe Odr ⁠ / ⁠ o ).
+
+Friul ⁠ / ⁠ o. Regiono en nordorienta Italujo. friul ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Friulo. friul ⁠ / ⁠ a. Rilata al friulanoj, Friulo aŭ la latinida lingvo tie parolata (internacia lingvokodaĵo: fur).
+
+gael ⁠ / ⁠ o. Ano de kelta popolo, loĝanta en Skotlando kaj Irlando. gael ⁠ / ⁠ a. Rilata al gaeloj, la kelta lingvo de Skotlando (internacia lingvokodaĵo: gla) aŭ la okcidenta branĉo de la keltaj lingvoj, al kiu apartenas la irlanda (internacia lingvokodaĵo: gle).
+
+Gabon ⁠ / ⁠ o. Lando en meza Afriko, okcidente de Respubliko Kongo. Internacia landokodaĵo: GA.
+
+Gaj ⁠ / ⁠ o. Vira nomo, en la periodo de la Roma Regno.
+
+galeg ⁠ / ⁠ o 1 Ano de la ĉefgento de Galegujo, parolanta iberolatinidan lingvon (internacia lingvokodaĵo: glg). 2 Ano de Galegujo. Galeg ⁠ / ⁠ uj ⁠ / ⁠ o. Aŭtonoma regiono en la nordokcidenta parto de Hispanujo. Internacia landerokodaĵo: ES‑GA. galeg ⁠ / ⁠ a. Rilata al galegoj, la galega lingvo aŭ Galegujo.
+
+Galici ⁠ / ⁠ o. Regiono norde de Karpatoj, dividita inter Pollando kaj Ukrainujo.
+
+Galile ⁠ / ⁠ o. Regiono en la nordo de Palestino kaj la sudo de Libano, kie Jesuo predikis komence.
+
+Gambi ⁠ / ⁠ o 1 Granda rivero en Okcident‑Afriko, kiu fluas de norda Gvineo tra Senegalo ĝis Gambio 2 , kie ĝi enfluas Atlantikon. 2 Lando en Okcident‑Afriko, preskaŭ tute ĉirkaŭata de Senegalo. Internacia landokodaĵo: GM.
+
+Gana ⁠ / ⁠ o. Lando en Okcident‑Afriko, ĉe la Gvinea Golfo. Internacia landokodaĵo: GH. Gang ⁠ / ⁠ o. Granda rivero en Barato kaj Bangladeŝo, rigardata de la hinduoj kiel sankta.
+
+gaŭl ⁠ / ⁠ o. Ano de grupo da antikvaj popoloj, parolanta keltan lingvon (internacia lingvokodaĵo: xtg, xcg) kaj loĝantaj en Gaŭlujo. Gaŭl ⁠ / ⁠ uj ⁠ / ⁠ o. Parto de okcidenta Eŭropo, responda pli‑malpli al la nunaj Francujo, Belgujo, Luksemburgo, okcidenta Svislando, norda Italujo kaj la parto de Germanujo okcidente de Rejno; ĝin konkeris la Roma Regno en la 2‑a kaj 1‑a jarcentoj antaŭ nia erao. gaŭl ⁠ / ⁠ a. Rilata al gaŭloj, la gaŭla lingvo aŭ Gaŭlujo.
+
+Gdansk ⁠ / ⁠ o. Havenurbo en Pollando, ĉe la Balta Maro.
+
+golf ⁠ / ⁠ o (FdE). Aden ⁠ / ⁠ a Golf ⁠ / ⁠ o. Parto de la Hinda Oceano, inter Somalujo kaj Jemeno, kiu ligas la Ruĝan Maron al la Araba Maro. Alask ⁠ / ⁠ a Golf ⁠ / ⁠ o. Parto de Pacifiko, ĉe la suda marbordo de Alasko. Bengal ⁠ / ⁠ a Golf ⁠ / ⁠ o. Nordorienta parto de la Hinda Oceano, oriente de Barato kaj sude de Bangladeŝo.
+
+Gvine ⁠ / ⁠ a Golf ⁠ / ⁠ o. Parto de Atlantiko, ĉe la suda bordo de Okcident‑Afriko. Kaliforni ⁠ / ⁠ a Golf ⁠ / ⁠ o. Randa maro de Pacifiko, inter la Kalifornia Duoninsulo kaj la meksika ĉeftero. Meksik ⁠ / ⁠ a Golf ⁠ / ⁠ o. Maro formanta parton de Atlantiko, ĉirkaŭata precipe de Kubo kaj la nord‑ ⁠ amerika kontinento. Oman ⁠ / ⁠ a Golf ⁠ / ⁠ o. Golfo nordoriente de Omano, liganta la Araban Maron kun la Persa Golfo. Pers ⁠ / ⁠ a Golf ⁠ / ⁠ o. Interna maro en okcidenta Azio, inter Irano kaj la Araba Duoninsulo. Taj ⁠ / ⁠ land ⁠ / ⁠ a Golf ⁠ / ⁠ o. Okcidenta parto de la Sudĉina Maro, sudokcidente de Hindoĉinujo.
+
+got ⁠ / ⁠ o. Ano de tribo parolanta ĝermanan lingvon (internacia lingvokodaĵo: got), kiu invadis la Roman Imperion inter la 3‑a kaj 5‑a jarcentoj. got ⁠ / ⁠ a. Rilata al gotoj aŭ la gota lingvo.
+
+Gotenburg ⁠ / ⁠ o. Havenurbo ĉe la okcidenta marbordo de Svedujo.
+
+Gregori ⁠ / ⁠ o. Vira nomo, i.a. de pluraj antikvaj kaj mezepokaj ekleziuloj kaj papoj. gregori ⁠ / ⁠ a. Rilata al unu el la Gregorioj. gregori ⁠ / ⁠ a kalendar ⁠ / ⁠ o. Kalendaro enkondukita de papo Gregorio la 13‑a en la jaro 1582 por anstataŭi la julian kalendaron.
+
+Grenad ⁠ / ⁠ o 1 Insulara lando en la suda parto de Malgrandaj Antiloj. Internacia landokodaĵo: GD. 2 La ĉefa insulo de Grenado 1 .
+
+Grenadin ⁠ / ⁠ o ⁠ / ⁠ j 1 Insularo inter la insuloj Sankta Vincento kaj Grenado 2 , kies norda parto apartenas al la lando Sankta Vincento kaj Grenadinoj, dum la suda parto apartenas al Grenado 1 . 2 Paroĥo de Sankta Vincento kaj Grenadinoj, situanta sur Grenadinoj 1 . Internacia landerokodaĵo: VC‑06.
+
+Grizon ⁠ / ⁠ o. Kantono de Svislando, en ties sudorienta parto, inter Liĥtenŝtejno kaj Italujo. Internacia landerokodaĵo: CH‑GR.
+
+Gronland ⁠ / ⁠ o 1 Granda insulo inter Atlantiko kaj la Arkta Oceano, oriente de norda Kanado, plejparte kovrita de glacio kaj loĝata precipe de inuitoj. 2 Dependa teritorio de Danujo, situanta sur Gronlando 1 . Internacia landokodaĵo: GL. gronland ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Gronlando. gronland ⁠ / ⁠ a. Rilata al gronlandanoj, Gronlando aŭ la inuita lingvo tie parolata (internacia lingvokodaĵo: kal).
+
+guĝarat ⁠ / ⁠ o 1 Ano de la ĉefgento de Guĝaratlando, parolanta sanskritidan lingvon (internacia lingvokodaĵo: guj). 2 Ano de Guĝaratlando. Guĝarat ⁠ / ⁠ land ⁠ / ⁠ o. Barata ŝtato, en la okcidenta parto de Barato, ĉe la Araba Maro. Internacia landerokodaĵo: IN‑GJ. guĝarat ⁠ / ⁠ a. Rilata al guĝaratoj, la guĝarata lingvo aŭ Guĝaratlando.
+
+Gujan ⁠ / ⁠ o. Lando en la nordorienta parto de Sud‑Ameriko, inter Venezuelo kaj Surinamo. Internacia landokodaĵo: GY. Franc ⁠ / ⁠ a Gujan ⁠ / ⁠ o. Regiono kaj transmara departemento de Francujo, en la nordorienta parto de Sud‑Ameriko. Internacia land(er)okodaĵo: GF, FR‑973.
+
+Gvadelup ⁠ / ⁠ o 1 Insularo en la mezo de Malgrandaj Antiloj, inter Dominiko kaj Antigvo. 2 Regiono kaj transmara departemento de Francujo, sur Gvadelupo 1 . Internacia land(er)okodaĵo: GP, FR‑971. gvadelup ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Gvadelupo. gvadelup ⁠ / ⁠ a. Rilata al gvadelupanoj, Gvadelupo aŭ la kreola lingvo tie parolata (internacia lingvokodaĵo: gcf), bazita sur la franca.
+
+Gvine ⁠ / ⁠ o (8OA) Lando en Okcident‑Afriko. Internacia landokodaĵo: GN. Gvine ⁠ / ⁠ o‑ ⁠ Bisaŭ ⁠ / ⁠ o. Lando en Okcident‑Afriko, inter Senegalo kaj Gvineo. Internacia landokodaĵo: GW. Ekvator ⁠ / ⁠ a Gvine ⁠ / ⁠ o. Lando en meza Afriko, inter Kameruno kaj Gabono. Internacia landokodaĵo: GQ. Nov‑ ⁠ Gvine ⁠ / ⁠ o. Granda insulo norde de Aŭstralio.
+
+Ĝakart ⁠ / ⁠ o. La ĉefurbo de Indonezio.
+
+Ĝenev ⁠ / ⁠ o 1 Urbo en la sudokcidenta parto de Svislando. 2 Kantono de Svislando, kies ĉefurbo estas Ĝenevo 1 . Internacia landerokodaĵo: CH‑ ⁠ GE.
+
+ĝerman ⁠ / ⁠ o. Ano de historia gentaro, de kiu devenas la nuntempaj germanoj, nederlandanoj, angloj, svedoj, norvegoj, danoj kaj aliaj. Ĝerman ⁠ / ⁠ uj ⁠ / ⁠ o. Parto de Eŭropo, oriente de Rejno kaj norde de Danubo, en kiu loĝis la ĝermanoj. ĝerman ⁠ / ⁠ a. Rilata al ĝermanoj aŭ la ĝermanaj lingvoj.
+
+Ĝibraltar ⁠ / ⁠ o. Dependa teritorio de Britujo, ĉe la suda pinto de la Ibera Duoninsulo. Internacia landokodaĵo: GI.
+
+Ĝibuti ⁠ / ⁠ o 1 Lando en orienta Afriko, ĉe la suda ekstremaĵo de la Ruĝa Maro. Internacia landokodaĵo: DJ. 2 La ĉefurbo de Ĝibutio 1 .
+
+Hag ⁠ / ⁠ o. Urbo en Nederlando, en Sud‑Holando, sidejo de la nederlandaj parlamento kaj registaro.
+
+Haiti ⁠ / ⁠ o. Lando en Grandaj Antiloj, en la okcidenta parto de la insulo, sur kiu situas ankaŭ Dominika Respubliko. Internacia landokodaĵo: HT. haiti ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Haitio. haiti ⁠ / ⁠ a. Rilata al haitianoj, Haitio aŭ la kreola lingvo tie parolata (internacia lingvokodaĵo: hat), bazita sur la franca.
+
+Hamburg ⁠ / ⁠ o 1 Havenurbo en norda Germanujo. 2 Germana federacia lando, en kiu situas Hamburgo 1 . Internacia landerokodaĵo: DE‑ ⁠ HH.
+
+Hanoj ⁠ / ⁠ o . La ĉefurbo de Vjetnamujo.
+
+Havaj ⁠ / ⁠ o 1 La plej granda insulo de la Havaja Insularo. 2 Usona ŝtato, kiu okupas la Havajan Insularon preskaŭ tute. Internacia landerokodaĵo: US‑ ⁠ HI. havaj ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Havajo. havaj ⁠ / ⁠ a. Rilata al havajanoj, Havajo aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: haw).
+
+Havan ⁠ / ⁠ o. La ĉefurbo de Kubo.
+
+Helsink ⁠ / ⁠ o. La ĉefurbo de Finnlando.
+
+Hercegovin ⁠ / ⁠ o. Regiono sur la Balkana Duoninsulo, la suda parto de Bosnujo kaj Hercegovino.
+
+Himalaj ⁠ / ⁠ o. Montaro, kun la plej altaj pintoj en la mondo, norde de la hinda subkontinento. hind ⁠ / ⁠ o 1 Ano de unu el la gentoj de la hinda subkontinento, precipe en kuntekstoj, en kiuj temas pri historia periodo antaŭ la fondiĝo de la modernaj sendependaj sud‑aziaj ŝtatoj. 2 Baratano. Hind ⁠ / ⁠ uj ⁠ / ⁠ o 1 La hinda subkontinento: la ideo de Kolumbo, ke devas ekzisti okcidenta vojo Hindujon (Zamenhof). 2 La Brita Hinda Imperio, kiu situis en Hindujo 1 . 3 Barato. Brit ⁠ / ⁠ a Hind ⁠ / ⁠ uj ⁠ / ⁠ o. Tiu parto de la Brita Hinda Imperio, kiu estis sub rekta regado de Britujo (diference de la vasalaj princlandoj ene de tiu imperio). Nederland ⁠ / ⁠ a
+
+Hind ⁠ / ⁠ uj ⁠ / ⁠ o. Kolonio de Nederlando, kiu situis en la teritorio de la nuna Indonezio. hind ⁠ / ⁠ a. Rilata al la hinda subkontinento, precipe en kuntekstoj, kie gravas historiaj tradicioj: hinda civilizacio , arto , filozofio ; la personaro de “hinda restoracio” en okcidenta lando ofte devenas el Bangladeŝo aŭ Pakistano .
+
+hindi ⁠ / ⁠ a lingv ⁠ / ⁠ o. Sanskritida lingvo parolata en norda Barato (internacia lingvokodaĵo: hin), kiun karakterizas altnivela uzo de sanskritaj pruntvortoj.
+
+hindu ⁠ / ⁠ o. Ano de hinduismo. hindu ⁠ / ⁠ ism ⁠ / ⁠ o. Politeisma religio, kies sanktaj tekstoj estas en Sanskrito kaj kies anoj plejparte loĝas en Barato kaj Nepalo.
+
+Hiroŝim ⁠ / ⁠ o 1 Havenurbo en Japanujo, trafita de usona atombombo la 6‑ ⁠ an de Aŭgusto 1945. 2 Gubernio de Japanujo, kies ĉefurbo estas Hiroŝimo 1 . Internacia landerokodaĵo: JP‑ ⁠ 34.
+
+Holand ⁠ / ⁠ o. Parto de Nederlando, laŭlonge de la Norda Maro. Nord‑ ⁠ Holand ⁠ / ⁠ o. Provinco en Nederlando, formanta la nordan parton de Holando. Internacia landerokodaĵo: NL‑ ⁠ NH. Sud‑ ⁠ Holand ⁠ / ⁠ o. Provinco en Nederlando, formanta la sudan parton de Holando. Internacia landerokodaĵo: NL‑ ⁠ ZH.
+
+Hondur ⁠ / ⁠ o. Lando en Centr‑Ameriko, inter Gvatemalo kaj Nikaragvo. Internacia landokodaĵo: HN.
+
+Honkong ⁠ / ⁠ o 1 Insulo en suda Ĉinujo, en la norda parto de la Sudĉina Maro. 2 Urbo en Ĉinujo, kies suda parto estas Honkongo 1 . 3 Teritorio kun speciala statuso en suda Ĉinujo, en kiu situas Honkongo 2 . Internacia land(er)okodaĵo: HK, CN‑HK.
+
+Honŝu ⁠ / ⁠ o. La ĉefa insulo de la japana insularo.
+
+hun ⁠ / ⁠ o. Ano de azia popolo, kiu invadis Eŭropon en la 4‑a kaj 5‑a jarcentoj.
+
+ĥalde ⁠ / ⁠ o. Ano de la asiria ĉefgento de Ĥaldeujo, parolanta ŝemidan lingvon. Ĥalde ⁠ / ⁠ uj ⁠ / ⁠ o. Regno en la sudorienta parto de Mezopotamio, kiu formiĝis en la 10‑a jarcento antaŭ nia erao; asimilita al la dua Babilona Imperio en la 6‑a jarcento antaŭ nia erao. ĥalde ⁠ / ⁠ a. Rilata al ĥaldeoj, la ĥaldea lingvo aŭ Ĥaldeujo.
+
+iber ⁠ / ⁠ o 1 Ano de iu el la popoloj, kiuj loĝis en Iberujo dum la prahistorio. 2 Ano de iu el la nunaj landoj de Iberujo. Iber ⁠ / ⁠ uj ⁠ / ⁠ o. Ibera Duoninsulo. iber ⁠ / ⁠ a. Rilata al iberoj, iberaj lingvoj aŭ Iberujo: ibera skolo de Esperanta literaturo .
+
+imperi ⁠ / ⁠ o (FdE). Akad ⁠ / ⁠ a Imperi ⁠ / ⁠ o. Imperio regata de Akado, kiu disfloris en Mezopotamio inter la 24‑ ⁠ a kaj 22‑ ⁠ a jarcentoj antaŭ nia erao. Babilon ⁠ / ⁠ a Imperi ⁠ / ⁠ o. Ĉiu el la imperioj en Mezopotamio regataj de Babilono inter la 2‑ ⁠ a jarmilo kaj la jaro 539 antaŭ nia erao. Bizanc ⁠ / ⁠ a Imperi ⁠ / ⁠ o. Imperio regata de Konstantinopolo kaj ekzistanta de la jaro 395 ĝis la jaro 1453; la orienta parto de la Roma Imperio post ties divido. Inka ⁠ / ⁠ a Imperi ⁠ / ⁠ o. La plej granda imperio en Ameriko antaŭ la invado de la hispanoj, ekestinta en la altaj regionoj de la nuna Peruo, kaj fine ampleksinta grandan parton de la Pacifika flanko de Sud‑ ⁠ Ameriko. Otoman ⁠ / ⁠ a Imperi ⁠ / ⁠ o. Imperio, kiu regis super grandaj partoj de sudorienta Eŭropo, okcidenta Azio kaj norda Afriko inter la 14‑a jarcento kaj la jaro 1922; ĝi konkeris la Bizancan Imperion en la jaro 1453. Pers ⁠ / ⁠ a Imperi ⁠ / ⁠ o. Imperio establita en Irano en la jaro 550 antaŭ nia erao, poste ampleksinta grandan teritorion inter Egiptujo, la Balkana Duoninsulo kaj centra Azio, ĝis en la jaro 330 antaŭ nia erao konkeris ĝin Aleksandro la Granda. Rom ⁠ / ⁠ a Imperi ⁠ / ⁠ o. Imperia formo de la Roma Regno ekde la jaro 27 antaŭ nia erao.
+
+Indonezi ⁠ / ⁠ o. Lando sude de kontinenta Azio, konsistanta precipe el Sumatro, Javo, la suda parto de Borneo, kaj la okcidenta parto de Nov‑ ⁠ Gvineo. Internacia landokodaĵo: ID. indonezi ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Indonezio. indonezi ⁠ / ⁠ a. Rilata al indonezianoj, Indonezio aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: ind).
+
+Indus ⁠ / ⁠ o. Granda rivero en Sud‑ ⁠ Azio, fluanta de Tibeto tra Kaŝmiro kaj Pakistano, kie ĝi enfluas la Araban Maron apud Karaĉio.
+
+inka ⁠ / ⁠ o. Ano de la popolo de la Inkaa Imperio. inka ⁠ / ⁠ a. Rilata al inkaoj aŭ la Inkaa Imperio.
+
+insul ⁠ / ⁠ o (FdE). Arab ⁠ / ⁠ a Du ⁠ / ⁠ on ⁠ / ⁠ insul ⁠ / ⁠ o. Duoninsulo en okcidenta Azio, nordoriente de Afriko, inter la Ruĝa Maro, la Araba Maro, la Omana Golfo kaj la Persa Golfo. Balkan ⁠ / ⁠ a Du ⁠ / ⁠ on ⁠ / ⁠ insul ⁠ / ⁠ o. Duoninsulo en sudorienta Eŭropo, inter Adriatiko, la Egea Maro, Mediteraneo kaj la Nigra Maro. Iber ⁠ / ⁠ a Du ⁠ / ⁠ on ⁠ / ⁠ insul ⁠ / ⁠ o. Duoninsulo en sudokcidenta Eŭropo, sude de Pireneoj. Ital ⁠ / ⁠ a Du ⁠ / ⁠ on ⁠ / ⁠ insul ⁠ / ⁠ o. Sudeŭropa mediteranea duoninsulo, sur kiu situas granda parto de Italujo, Sanmarino kaj Vatikano. Kaliforni/ ⁠ a Du ⁠ / ⁠ on ⁠ / ⁠ insul ⁠ / ⁠ o. Duoninsulo en nordokcidenta Meksiko, etendiĝanta sude de la usona landlimo, laŭlonge de Pacifiko. Kore ⁠ / ⁠ a Du ⁠ / ⁠ on ⁠ / ⁠ insul ⁠ / ⁠ o. Duoninsulo en orienta Azio, inter la Flava Maro kaj la Japana Maro. Havaj ⁠ / ⁠ a Insul ⁠ / ⁠ ar ⁠ / ⁠ o. Insularo en la norda parto de Polinezio, ĉirkaŭ  3650 kilometrojn okcidente de la nord‑amerika kontinento. Kajman ⁠ / ⁠ a Insul ⁠ / ⁠ ar ⁠ / ⁠ o 1 Insularo sude de Kubo kaj nordoriente de Honduro, en Grandaj Antiloj. 2 Transmara teritorio de Britujo, en la okcidenta parto de la Kariba Maro, sur la Kajmana Insularo 1 . Internacia landokodaĵo: KY.
+
+inuit ⁠ / ⁠ o. Ano de grupo de indiĝenaj popoloj, loĝantaj en Gronlando, Kanado kaj Alasko.
+
+islam ⁠ / ⁠ o. Religio, kies sankta libro estas la Korano. islam ⁠ / ⁠ an ⁠ / ⁠ o. Kredanto de islamo.
+
+Istanbul ⁠ / ⁠ o 1 Havenurbo ĉe Bosporo, kies historia centro situas en la eŭropa parto de Turkujo. 2 Provinco de Turkujo, en kiu situas Istanbulo 1 . Internacia landerokodaĵo: TR‑34.
+
+Jamajk ⁠ / ⁠ o 1 Insulo en Grandaj Antiloj, sude de Kubo. 2 Lando sur Jamajko 1 . Internacia landokodaĵo: JM. jamajk ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Jamajko. jamajk ⁠ / ⁠ a. Rilata al jamajkanoj, Jamajko aŭ la kreola lingvo tie parolata (internacia lingvokodaĵo: jam), bazita sur la angla.
+
+Jav ⁠ / ⁠ o. La ĉefa insulo de Indonezio. jav ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Javo. jav ⁠ / ⁠ a. Rilata al javanoj, Javo aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: jav): java homo (speco de prahomo).
+
+Jemen ⁠ / ⁠ o. Lando en la sudokcidenta parto de la Araba Duoninsulo. Internacia landokodaĵo: YE.
+
+Jerusalem ⁠ / ⁠ o 1 Urbo situanta sur altebenaĵo inter Mediteraneo kaj la Morta Maro; sankta urbo de la religioj hebrea, kristana kaj islama. 2 Distrikto de Israelo, en kiu situas Jerusalemo 1 . Internacia landerokodaĵo: IL‑JM.
+
+Jokoham ⁠ / ⁠ o. Havenurbo en Japanujo, sude de Tokio.
+
+Jordan ⁠ / ⁠ o. Rivero, kiu fluas de la limo inter Libano kaj Sirio tra Israelo kaj la Galilea Lago, ĝis ĝi enfluas la Mortan Maron.
+
+Jordani ⁠ / ⁠ o. Lando en okcidenta Azio, ĉe la orienta bordo de Jordano. Internacia landokodaĵo: JO.
+
+Jork/ ⁠ o (FdE). Urbo en nordorienta Anglujo, ĉe la kunfluejo de du riveroj, fondita de la Roma Regno en la jaro 71. Nov‑Jork ⁠ / ⁠ o 1 Usona ŝtato, en la nordorienta parto de Usono. Internacia landerokodaĵo: US‑NY. 2 Havenurbo en Usono, ĉe Atlantiko, la plej granda urbo de Nov‑Jorko 1 .
+
+jorub ⁠ / ⁠ o. Ano de la ĉefgento de Jorubolando, parolanta atlantikkongan lingvon (internacia lingvokodaĵo: yor). Jorub ⁠ / ⁠ o ⁠ / ⁠ land ⁠ / ⁠ o, Jorub ⁠ / ⁠ uj ⁠ / ⁠ o. Regiono en Okcident‑Afriko, eksa regno, konsistanta el partoj de Niĝerio, Benino kaj Togolando. jorub ⁠ / ⁠ a. Rilata al joruboj, la joruba lingvo aŭ Jorubolando.
+
+jugoslav ⁠ / ⁠ o. Ano de Jugoslavujo. Jugoslav ⁠ / ⁠ uj ⁠ / ⁠ o. Inter la jaroj 1918 kaj 2003, federacia regno sur la Balkana Duoninsulo, kiu konsistis el Bosnujo kaj Hercegovino, Kroatujo, Makedonujo 4 , Montenegro, Serbujo kaj Slovenujo. Internacia landokodaĵo: YU. jugoslav ⁠ / ⁠ a. Rilata al jugoslavoj aŭ Jugoslavujo.
+
+Juli ⁠ / ⁠ o. Vira nomo, i.a. de Julio Cezaro. juli ⁠ / ⁠ a kalendar ⁠ / ⁠ o. Kalendaro enkondukita de Julio Cezaro en la jaro 46 antaŭ nia erao. Juli ⁠ / ⁠ in ⁠ / ⁠ o. Virina nomo (karesformo: Julinjo).
+
+Kaboverd ⁠ / ⁠ o. Insulara lando en Atlantiko, inter 600 kaj 850 kilometrojn okcidente de Senegalo. Internacia landokodaĵo: CV. kaboverd ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Kaboverdo. kaboverd ⁠ / ⁠ a. Rilata al kaboverdanoj, Kaboverdo aŭ la kreola lingvo tie parolata (internacia lingvokodaĵo: kea), bazita sur la portugala.
+
+Kair ⁠ / ⁠ o 1 La ĉefurbo de Egiptujo. 2 Gubernio de Egiptujo, en kiu situas Kairo 1 . Internacia landerokodaĵo: EG‑C.
+
+kajman ⁠ / ⁠ o. Besto el la sama familio kiel aligatoro, kun dentoj pli longaj kaj pintaj ol ĉi ties, vivanta en meza Ameriko kaj Sud‑Ameriko; ĝin karakterizas ventra kiraso formita de sinkovrantaj dupartaj ostecaj skvamoj kaj manko de osteca naza vando (familio Alligatoridae , subfamilio Caimaninae , precipa genro Caiman ).
+
+Kaliforni ⁠ / ⁠ o. Usona ŝtato, laŭlonge de Pacifiko. Internacia landerokodaĵo: US‑ ⁠ CA. Mal/ ⁠ supr ⁠ / ⁠ a Kaliforni ⁠ / ⁠ o. Meksika ŝtato, en la norda parto de la Kalifornia Duoninsulo. Internacia landerokodaĵo: MX‑BCN. Sud/ ⁠ a Mal ⁠ / ⁠ supr ⁠ / ⁠ a Kaliforni ⁠ / ⁠ o. Meksika ŝtato, en la suda parto de la Kalifornia Duoninsulo. Internacia landerokodaĵo: MX‑BCS.
+
+Kamboĝ ⁠ / ⁠ o. Lando en Hindoĉinujo, sude de Laoso, ĉe la Tajlanda Golfo. Internacia landokodaĵo: KH.
+
+Kamerun ⁠ / ⁠ o. Lando en meza Afriko, ĉe la Gvinea Golfo, sudoriente de Niĝerio. Internacia landokodaĵo: CM.
+
+Kanton ⁠ / ⁠ o 1 Havenurbo en suda Ĉinujo, ĉe la norda bordo de la Sudĉina Maro. 2 Provinco en suda Ĉinujo, kies ĉefurbo estas Kantono 1 . Internacia landerokodaĵo: CN‑ ⁠ GD.
+
+Karaĉi ⁠ / ⁠ o. Havenurbo en Pakistano.
+
+karib ⁠ / ⁠ o 1 Ĉeftera karibo. 2 Insula karibo. ĉef ⁠ / ⁠ ter ⁠ / ⁠ a karib ⁠ / ⁠ o. Ano de indiĝena gento vivanta ĉe la riveroj kaj marbordo de la nordokcidenta parto de kontinenta Sud‑Ameriko. insul ⁠ / ⁠ a karib ⁠ / ⁠ o . Ano de indiĝena gento vivanta nun en Dominiko kaj en Sankta Vincento kaj Grenadinoj, sed antaŭe ankaŭ sur aliaj insuloj en la Kariba Maro. karib ⁠ / ⁠ a. Rilata al kariboj aŭ la karibaj lingvoj.
+
+Karpat ⁠ / ⁠ o ⁠ / ⁠ j. Montaro en Mez‑Eŭropo, etendiĝanta arkoforme de Slovakujo ĝis Rumanujo.
+
+kartvel ⁠ / ⁠ o 1 Ano de la ĉefgento de Kartvelujo, parolanta sudkaŭkazan lingvon (internacia lingvokodaĵo: kat). 2 Ano de Kartvelujo. Kartvel ⁠ / ⁠ uj ⁠ / ⁠ o. Lando sude de Kaŭkazo 1 kaj nordoriente de Turkujo. Internacia landokodaĵo: GE. kartvel ⁠ / ⁠ a. Rilata al kartveloj, la kartvela lingvo aŭ Kartvelujo.
+
+Kaspi ⁠ / ⁠ o. Interna maro kaj la plej granda lago en la mondo, ĉe la limo inter Eŭropo kaj Azio, en kiun enfluas Volgo.
+
+Kaŝmir ⁠ / ⁠ o. Iama hinda reĝlando, nun dividita inter Barato, Pakistano kaj Ĉinujo. kaŝmir ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Kaŝmiro. kaŝmir ⁠ / ⁠ a. Rilata al kaŝmiranoj, Kaŝmiro aŭ la sanskritida lingvo tie parolata (internacia lingvokodaĵo: kas).
+
+katalun ⁠ / ⁠ o 1 Ano de la ĉefgento de Katalunujo 1 , parolanta okcitanlatinidan lingvon (internacia lingvokodaĵo: cat). 2 Ano de Katalunujo 1 . Katalun ⁠ / ⁠ uj ⁠ / ⁠ o 1 Regiono en la nordorienta parto de Iberujo, dividita inter Hispanujo, Francujo kaj Andoro. 2 Aŭtonoma regiono en nordorienta Hispanujo, parto de Katalunujo 1 . Internacia landerokodaĵo: ES‑CT. katalun ⁠ / ⁠ a. Rilata al katalunoj, la kataluna lingvo aŭ Katalunujo.
+
+Katar ⁠ / ⁠ o. Duoninsula lando en la nordorienta parto de la Araba Duoninsulo, ĉe la Persa Golfo. Internacia landokodaĵo: QA.
+
+Katmandu ⁠ / ⁠ o. La ĉefurbo de Nepalo.
+
+Kaŭkaz ⁠ / ⁠ o 1 Montaro inter la Nigra Maro kaj Kaspio. 2 Kaŭkazio. kaŭkaz ⁠ / ⁠ a. Rilata al Kaŭkazo aŭ la multaj lingvoj parolataj en Kaŭkazio.
+
+Kaŭkazi ⁠ / ⁠ o. Regiono ĉiuflanke de la montaro Kaŭkazo, inter la Nigra Maro kaj Kaspio.
+
+kazaĥ ⁠ / ⁠ o 1 Ano de la ĉefgento de Kazaĥujo, parolanta tjurkan lingvon (internacia lingvokodaĵo: kaz). 2 Ano de Kazaĥujo. Kazaĥ ⁠ / ⁠ uj ⁠ / ⁠ o. Lando, situanta ĉefe en centra Azio kaj parte en orienta Eŭropo, nordoriente de Kaspio. Internacia landokodaĵo: KZ. kazaĥ ⁠ / ⁠ a. Rilata al kazaĥoj, la kazaĥa lingvo aŭ Kazaĥujo.
+
+Kebek ⁠ / ⁠ o. Urbo en orienta Kanado.
+
+Kebeki ⁠ / ⁠ o. Franclingva provinco de Kanado, kies ĉefurbo estas Kebeko. Internacia landerokodaĵo: CA‑ ⁠ QC. Rimarko: Ĉi tiu oficialigo de “Kebeki ⁠ / ⁠ o” ne estu uzata kiel pravigo por la uzado de aliaj Esperantaj nomoj de landoj aŭ subdividoj, kiuj finiĝas per “‑io” malgraŭ manko de internacie uzata nomformo, kiu pravigas tiun esperantigon. “Kebeki ⁠ / ⁠ o” estas ĉi‑rilate escepta, ĉar ĉi tiu formo jam estas tiel forte kaj senkonteste enradikiĝinta en la Esperantan lingvouzon, ke ĉi‑okaze la jama lingvouzo pli gravas ol principoj ĝenerale observindaj ĉe esperantigo. Vidu ankaŭ la ĉi‑rilatan klarigon en la sekcio Rekomendoj pri nomoj de landoj kaj iliaj subdividoj de la enkonduko al ĉi tiu dokumento.
+
+kelt ⁠ / ⁠ o 1 Ano de hindeŭropa gentaro, kiu invadis grandan parton de Eŭropo kaj Malgrand‑Azio dum la 3‑a jarcento antaŭ nia erao. 2 Homo, kiu devenas de keltoj 1 aŭ de regiono, en kiu kelta lingvo estas parolata, aŭ estis parolata en pli moderna tempo. kelt ⁠ / ⁠ a. Rilata al keltoj aŭ keltaj lingvoj.
+
+Kembriĝ ⁠ / ⁠ o. Universitata urbo en Anglujo, norde de Londono.
+
+Kenj ⁠ / ⁠ o 1 La plej alta monto en Kenjo 2 . 2 Lando en ekvatora orienta Afriko. Internacia landokodaĵo: KE.
+
+kimr ⁠ / ⁠ o 1 Ano de la ĉefgento de Kimrujo. 2 Ano de Kimrujo. Kimr ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en okcidenta Britujo. Internacia landerokodaĵo: GB‑WLS. kimr ⁠ / ⁠ a. Rilata al kimroj, ilia lingvo aŭ Kimrujo: kimra lingvo (kelta lingvo, internacia lingvokodaĵo: cym). Nova Sud‑Kimr ⁠ / ⁠ uj ⁠ / ⁠ o. Aŭstralia ŝtato, en la orienta parto de Aŭstralio. Internacia landerokodaĵo: AU‑NSW.
+
+Kinŝas ⁠ / ⁠ o. La ĉefurbo de Demokratia Respubliko Kongo (Kongo Kinŝasa).
+
+Kiot ⁠ / ⁠ o 1 Eksa ĉefurbo de Japanujo, nordoriente de Osako. 2 Gubernio de Japanujo, en kiu situas Kioto 1 . Internacia landerokodaĵo: JP‑ ⁠ 26.
+
+Kipr ⁠ / ⁠ o 1 Insulo en la orienta parto de Mediteraneo, nordokcidente de Libano. 2 Lando sur Kipro 1 , kies norda parto estas okupata de Turkujo ekde la jaro 1974. Internacia landokodaĵo: CY.
+
+kirgiz ⁠ / ⁠ o 1 Ano de la ĉefgento de Kirgizujo, parolanta tjurkan lingvon (internacia lingvokodaĵo: kir). 2 Ano de Kirgizujo. Kirgiz ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en meza Azio, inter Kazaĥujo kaj Ĉinujo. Internacia landokodaĵo: KG. kirgiz ⁠ / ⁠ a. Rilata al kirgizoj, la kirgiza lingvo aŭ Kirgizujo.
+
+Kiribat ⁠ / ⁠ o. Insulara lando en la sudorienta parto de Mikronezio, ĉe la ekvatoro. Internacia landokodaĵo: KI.
+
+Kolkat ⁠ / ⁠ o. Havenurbo en Barato, la ĉefurbo de Okcidenta Bengallando.
+
+Kolombi ⁠ / ⁠ o. Lando en la nordokcidenta parto de Sud‑ ⁠ Ameriko, inter Venezuelo kaj Ekvadoro. Internacia landokodaĵo: CO.
+
+Kolonj ⁠ / ⁠ o. Urbo en okcidenta Germanujo, ĉe Rejno.
+
+Kolorad/ ⁠ o 1 Granda rivero en la sudokcidenta parto de Nord‑Ameriko, kiu fluas de la Roka Montaro en Kolorado 2 ĝis Kalifornio, kie ĝi fluas laŭlonge de ties sudorienta bordo kaj tra nordokcidenta Meksiko, kie ĝi enfluas la Kalifornian Golfon ĉe ties norda ekstremaĵo. 2 Usona ŝtato, norde de Nov‑Meksiko. Internacia landerokodaĵo: US‑CO.
+
+Kolumb ⁠ / ⁠ o. Familia nomo, i.a. de la fama esplorvojaĝanto Kristoforo Kolumbo (proks. 1451–1506), kiu ŝipveturis de Eŭropo al Ameriko kvarfoje inter 1492 kaj 1504: ovo de Kolumbo (eltrovaĵo, kiu poste ŝajnas simpla).
+
+Komor ⁠ / ⁠ o ⁠ / ⁠ j 1 Insularo en sudorienta Afriko, en la Hinda Oceano, oriente de Mozambiko kaj nordokcidente de Madagaskaro. 2 Lando, kiu okupas grandan parton de Komoroj 1 . Internacia landokodaĵo: KM. Grand ⁠ / ⁠ a Komor ⁠ / ⁠ o. La ĉefinsulo de Komoroj 2 . komor ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Komoroj. komor ⁠ / ⁠ a. Rilata al komoranoj, Komoroj aŭ iu el la kvar bantuaj lingvoj tie parolataj (internaciaj lingvokodaĵoj: swb, wlc, wni, zdj).
+
+Kong ⁠ / ⁠ o 1 Granda rivero en meza Afriko. 2 Mez‑ ⁠ afrika lando oriente de Kongo 1 , Demokrati ⁠ / ⁠ a Respublik ⁠ / ⁠ o Kong ⁠ / ⁠ o ( Kong ⁠ / ⁠ o Kinŝas ⁠ / ⁠ a , internacia landokodaĵo: CD). 3 Mez‑ ⁠ afrika lando okcidente de Kongo 1 , Respublik ⁠ / ⁠ o Kong ⁠ / ⁠ o ( Kong ⁠ / ⁠ o Brazavil ⁠ / ⁠ a , internacia landokodaĵo: CG).
+
+Konstantinopol ⁠ / ⁠ o. Dua ĉefurbo de la Roma Imperio (330‑395), poste la ĉefurbo de la Bizanca Imperio (395‑1453) kaj de la Otomana Imperio (1453‑1922); antaŭ la jaro 330 nomata Bizanco kaj post 1930 Istanbulo.
+
+kontinent ⁠ / ⁠ o (1OA). sub ⁠ / ⁠ kontinent ⁠ / ⁠ o. Parto de kontinento, rigardata kiel geologie, geografie aŭ politike aparta regiono. hind ⁠ / ⁠ a sub ⁠ / ⁠ kontinent ⁠ / ⁠ o. Regiono de Azio formanta vastan triangulon sude de Himalajo, inter la Araba Maro kaj la Bengala Golfo; ĝi entenas Baraton, Pakistanon, Bangladeŝon, Nepalon kaj Butanon; iafoje ankaŭ Srilanko kaj Maldivoj estas enkalkulataj, precipe en kulturgeografiaj kaj geologiaj kuntekstoj.
+
+Kopenhag ⁠ / ⁠ o. La ĉefurbo de Danujo.
+
+kore ⁠ / ⁠ o 1 Ano de la ĉefgento de Koreujo, parolanta la korean lingvon (internacia lingvokodaĵo: kor). 2 Ano de Koreujo. Kore ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en orienta Azio, sur la Korea Duoninsulo; de post la jaro 1948, dividita en du landojn: Nord‑Koreujo kaj Sud‑Koreujo. Nord‑Kore ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en orienta Azio, al kiu apartenas la norda parto de la Korea Duoninsulo. Internacia landokodaĵo: KP. Sud‑Kore ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en orienta Azio, al kiu apartenas la suda parto de la Korea Duoninsulo. Internacia landokodaĵo: KR. kore ⁠ / ⁠ a. Rilata al koreoj, la korea lingvo aŭ Koreujo.
+
+Kornval ⁠ / ⁠ o. Graflando kaj iama reĝlando en la sudokcidenta parto de Anglujo. Internacia landerokodaĵo: GB‑ ⁠ CON. kornval ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Kornvalo. kornval ⁠ / ⁠ a. Rilata al kornvalanoj, Kornvalo aŭ la kelta lingvo tie parolata (internacia lingvokodaĵo: cor).
+
+Korsik ⁠ / ⁠ o 1 Insulo de Francujo, en okcidenta Mediteraneo, sudoriente de la kontinenta parto de Francujo. 2 Regiono kun speciala statuso, sur Korsiko 1 , konsistanta el la departementoj Sud‑ ⁠ Korsiko kaj Supra Korsiko. korsik ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Korsiko. Sud‑ ⁠ Korsik ⁠ / ⁠ o. Departemento en Francujo, kiu estas la suda parto de Korsiko 2 . Internacia landerokodaĵo: FR‑ ⁠ 2A. Supr ⁠ / ⁠ a Korsik ⁠ / ⁠ o. Departemento en Francujo, kiu estas la norda parto de Korsiko 2 . Internacia landerokodaĵo: FR‑ ⁠ 2B. korsik ⁠ / ⁠ a. Rilata al korsikanoj, Korsiko aŭ la italolatinida lingvo tie parolata (internacia lingvokodaĵo: cos).
+
+Kosov ⁠ / ⁠ o. Lando sur la Balkana Duoninsulo, inter Montenegro kaj Nord‑Makedonujo. Internacia landokodaĵo: XK.
+
+Krakov ⁠ / ⁠ o. Urbo en la sudo de Pollando.
+
+Krime ⁠ / ⁠ o. Duoninsulo en la norda parto de la Nigra Maro.
+
+Kristofor ⁠ / ⁠ o. Vira nomo, i.a. de Kolumbo. Sankt ⁠ / ⁠ a Kristofor ⁠ / ⁠ o 1 La ĉefa insulo de Sankta Kristoforo kaj Neviso. 2 Ŝtato de Sankta Kristoforo kaj Neviso, sur Sankta Kristoforo 1 . Internacia landerokodaĵo: KN‑K. Sankt ⁠ / ⁠ a Kristofor ⁠ / ⁠ o kaj Nevis ⁠ / ⁠ o. Insulara lando en la norda parto de Malgrandaj Antiloj, okcidente de Antigvo kaj Barbudo, konsistanta el Sankta Kristoforo 1 kaj la pli malgranda insulo Neviso. Internacia landokodaĵo: KN.
+
+kroat ⁠ / ⁠ o 1 Ano de la ĉefgento de Kroatujo, parolanta sudslavan lingvon (internacia lingvokodaĵo: hrv). 2 Ano de Kroatujo. Kroat ⁠ / ⁠ uj ⁠ / ⁠ o. Lando sur la Balkana Duoninsulo, inter Slovenujo, Bosnujo kaj Adriatiko. Internacia landokodaĵo: HR. kroat ⁠ / ⁠ a. Rilata al kroatoj, la kroata lingvo aŭ Kroatujo. serb ⁠ / ⁠ o ⁠ / ⁠ kroat ⁠ / ⁠ a. Rilata al la bosna, kroata, montenegra kaj serba lingvoj, rigardataj kiel unu lingvo. Internacia lingvokodaĵo: hbs.
+
+kurd ⁠ / ⁠ o 1 Ano de la ĉefgento de Kurdujo, parolanta iranan lingvon (internaciaj lingvokodaĵoj: ckb, kmr, sdh). 2 Ano de Kurdujo. Kurd ⁠ / ⁠ uj ⁠ / ⁠ o 1 Regiono en okcidenta Azio, dividita inter Armenujo, Irano, Irako, Sirio kaj Turkujo, precipe loĝata de kurdoj. 2 Provinco de Irano, ĉe la iraka landlimo. Internacia landerokodaĵo: IR‑12. 3 Aŭtonoma regiono de Irako, en ties nordorienta parto. Internacia landerokodaĵo: IQ‑KR. kurd ⁠ / ⁠ a. Rilata al kurdoj, la kurda lingvo aŭ Kurdujo.
+
+Kuvajt ⁠ / ⁠ o 1 La ĉefurbo de Kuvajto 2 . 2 Lando sur la Araba Duoninsulo, ĉe la norda parto de la Persa Golfo. Internacia landokodaĵo: KW.
+
+lag ⁠ / ⁠ o (FdE). Galile ⁠ / ⁠ a Lag ⁠ / ⁠ o. Lago en la nordorienta parto de Israelo. Grand ⁠ / ⁠ a ⁠ / ⁠ j Lag ⁠ / ⁠ o ⁠ / ⁠ j. Kvin grandaj lagoj inter Kanado kaj Usono, en la orienta parto de tiuj landoj.
+
+Lagos ⁠ / ⁠ o 1 Urbo en sudokcidenta Niĝerio, ĉe la Gvinea Golfo; eksa ĉefurbo de Niĝerio. 2 Ŝtato de Niĝerio, en ties sudokcidenta parto, ĉe la Gvinea Golfo. Internacia landerokodaĵo: NG‑LA.
+
+Laos ⁠ / ⁠ o. Lando en Hindoĉinujo, inter Tajlando kaj Vjetnamujo. Internacia landokodaĵo: LA.
+
+Latin ⁠ / ⁠ o. La lingvo parolata de la antikvaj romanoj (internacia lingvokodaĵo: lat), kaj hodiaŭ ankoraŭ uzata en la romkatolika eklezio kaj en diversaj sciencaj fakoj: (figurasence) venis fino al mia latino (Zamenhof). latin ⁠ / ⁠ a. Rilata al Latino: latina traduko ; la latina (lingvo). latin ⁠ / ⁠ id ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Lingvoj devenintaj el Latino.
+
+Lesb ⁠ / ⁠ o. Insulo de Grekujo en la Egea Maro, hejmo de la samseksema poetino Sapfo. lesb ⁠ / ⁠ an ⁠ / ⁠ in ⁠ / ⁠ o. (figurasence) Samseksemulino.
+
+Lesot ⁠ / ⁠ o. Lando en suda Afriko, tute ĉirkaŭata de Sud‑Afriko. Internacia landokodaĵo: LS.
+
+Liĥtenŝtejn ⁠ / ⁠ o. Lando en Alpoj, inter Aŭstrujo kaj Svislando. Internacia landokodaĵo: LI.
+
+Lill ⁠ / ⁠ o. Urbo en norda Francujo, oriente de Bulonjo ĉe Maro, proksima al la belga landlimo.
+
+Lisbon ⁠ / ⁠ o 1 La ĉefurbo de Portugalujo. 2 Distrikto de Portugalujo, en kiu situas Lisbono 1 . Internacia landerokodaĵo: PT‑11.
+
+litov ⁠ / ⁠ o 1 Ano de la ĉefgento de Litovujo, parolanta baltan lingvon (internacia lingvokodaĵo: lit). 2 Ano de Litovujo. Litov ⁠ / ⁠ uj ⁠ / ⁠ o. Lando ĉe la Balta Maro, sude de Latvujo. Internacia landokodaĵo: LT. litov ⁠ / ⁠ a. Rilata al litovoj, la litova lingvo aŭ Litovujo.
+
+Loren ⁠ / ⁠ o. Regiono en orienta Francujo, okcidente de Alzaco, en kiu situas Vogezoj 2 kaj tri aliaj departementoj. Internacia landerokodaĵo: FR‑ ⁠ 54, FR‑ ⁠ 55, FR‑ ⁠ 57, FR‑ ⁠ 88.
+
+Losanĝeles ⁠ / ⁠ o. Havenurbo en Usono, en la suda parto de Kalifornio.
+
+Lucern ⁠ / ⁠ o 1 Urbo en Svislando, ĉe la Lago de la Kvar Kantonoj. 2 Kantono de Svislando, kies ĉefurbo estas Lucerno 1 . Internacia landerokodaĵo: CH‑ ⁠ LU.
+
+Luci ⁠ / ⁠ o. Roma nomo. Sankt ⁠ / ⁠ a Luci ⁠ / ⁠ o 1 Insulo en Malgrandaj Antiloj, norde de Sankta Vincento. 2 Lando situanta sur Sankta Lucio 1 . Internacia landokodaĵo: LC. sankt ⁠ / ⁠ a ⁠ / ⁠ luci ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Sankta Lucio. sankt ⁠ / ⁠ a ⁠ / ⁠ luci ⁠ / ⁠ a. Rilata al sanktalucianoj, Sankta Lucio aŭ la kreola lingvo tie parolata (internacia lingvokodaĵo: acf), bazita sur la franca.
+
+Luksemburg ⁠ / ⁠ o 1 La ĉefurbo de Luksemburgo 2 . 2 Lando en okcidenta Eŭropo, situanta inter Belgujo, Francujo kaj Germanujo. Internacia landokodaĵo: LU. 3 Kantono de Luksemburgo 2 , en kiu situas Luksemburgo 1 . Internacia landerokodaĵo: LU‑LU. luksemburg ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Luksemburgo. luksemburg ⁠ / ⁠ a. Rilata al luksemburganoj, Luksemburgo aŭ la okcidentĝermana lingvo tie parolata (internacia lingvokodaĵo: ltz).
+
+Madagaskar ⁠ / ⁠ o 1 Granda insulo en la Hinda Oceano, oriente de Mozambiko. 2 Lando, kiu situas sur Madagaskaro 1 . Internacia landokodaĵo: MG.
+
+Madrid ⁠ / ⁠ o 1 La ĉefurbo de Hispanujo. 2 Regiono de Hispanujo, en kiu situas Madrido 1 . Internacia landerokodaĵo: ES‑M.
+
+maja ⁠ / ⁠ o. Ano de la indiĝena gento, kiu starigis inter la 3‑a kaj la 16‑a jarcentoj potencan regnon en meza Ameriko. maja ⁠ / ⁠ a. Rilata al majaoj aŭ la majaaj lingvoj. maja ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Familio de lingvoj, parolataj precipe en Gvatemalo, Meksiko, Belizo, Salvadoro kaj Honduro.
+
+Majenc ⁠ / ⁠ o. Urbo en Germanujo, apud la kunfluejo de Rejno kaj Majno.
+
+Majn ⁠ / ⁠ o. Rivero en Germanujo, la plej longa alfluanto de Rejno.
+
+Majot ⁠ / ⁠ o 1 Insularo en la sudorienta parto de Komoroj 1 . 2 Regiono kaj transmara departemento de Francujo, sur Majoto 1 . Internacia land(er)okodaĵo: YT, FR‑976.
+
+makedon ⁠ / ⁠ o 1 Ano de Makedonujo 1 , parolanta hindeŭropan lingvon parencan al la antikva greka (internacia lingvokodaĵo: xmk). 2 Ano de la ĉefgento de Makedonujo 2 , parolanta sudslavan lingvon (internacia lingvokodaĵo: mkd). 3 Ano de Nord‑Makedonujo. Makedon ⁠ / ⁠ uj ⁠ / ⁠ o 1 Reĝlando norde de la antikva Grekujo, ĉe la Egea Maro; ĝi estis konkerita de la Roma Regno en la jaro 168 antaŭ nia erao. 2 Nuntempa regiono sur la Balkana Duoninsulo, kies ĉefaj partoj apartenas al Bulgarujo, Grekujo kaj Nord‑Makedonujo, dum malpli grandaj partoj apartenas al Albanujo, Serbujo kaj Kosovo. 3 Parto de la nuntempa Grekujo, kiu dum antikveco apartenis al Makedonujo 1 , nun dividita inter tri regionoj: Orient ⁠ / ⁠ a Makedon ⁠ / ⁠ uj ⁠ / ⁠ o kaj Trak ⁠ / ⁠ uj ⁠ / ⁠ o (internacia landerokodaĵo: GR‑A), Centr ⁠ / ⁠ a Makedon ⁠ / ⁠ uj ⁠ / ⁠ o
+
+(internacia landerokodaĵo: GR‑B) kaj Okcident ⁠ / ⁠ a Makedon ⁠ / ⁠ uj ⁠ / ⁠ o (internacia landerokodaĵo: GR‑C). 4 Iama federacia respubliko (1944‑1991) de Jugoslavujo, sur la sama teritorio kiel la nuna Nord‑Makedonujo. Nord‑Makedon ⁠ / ⁠ uj ⁠ / ⁠ o. Lando sur la Balkana Duoninsulo, inter Albanujo kaj Bulgarujo, okupanta la nordokcidentan teritorion de Makedonujo 2 . Internacia landokodaĵo: MK. makedon ⁠ / ⁠ a.
+
+Rilata al makedonoj, la makedonaj lingvoj, Makedonujo aŭ Nord‑Makedonujo.
+
+malaj ⁠ / ⁠ o. Ano de gento, parolanta aŭstronezian lingvon (internacia lingvokodaĵo: msa) kaj loĝanta precipe en Malajzio kaj orienta Sumatro. malaj ⁠ / ⁠ a. Rilata al malajoj aŭ la malaja lingvo.
+
+Malajzi ⁠ / ⁠ o. Federacia konstitucia monarĥio en sudorienta Azio, konsistanta el kontinenta parto kaj parto sur Borneo, disigitaj de la Sudĉina Maro. Internacia landokodaĵo: MY.
+
+Malavi ⁠ / ⁠ o. Lando en sudorienta Afriko, inter Zambio, Tanzanio kaj Mozambiko. Internacia landokodaĵo: MW.
+
+Maldiv ⁠ / ⁠ o ⁠ / ⁠ j 1 Insularo en Sud‑Azio, en la Hinda Oceano, ĉirkaŭ 600 kilometrojn sudokcidente de la suda pinto de la hinda subkontinento. 2 Lando, kiu okupas Maldivojn 1 . Internacia landokodaĵo: MV. maldiv ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Maldivoj. maldiv ⁠ / ⁠ a. Rilata al maldivanoj, Maldivoj aŭ la sanskritida lingvo tie parolata (internacia lingvokodaĵo: div).
+
+Mali ⁠ / ⁠ o. Lando en okcidenta Afriko, sudokcidente de Alĝerio. Internacia landokodaĵo: ML.
+
+Malt ⁠ / ⁠ o 1 Insulara lando en Mediteraneo, inter Sicilio kaj Nord‑Afriko. Internacia landokodaĵo: MT. 2 La ĉefa insulo de Malto 1 . malt ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Malto. malt ⁠ / ⁠ a. Rilata al maltanoj, Malto aŭ la ŝemida lingvo tie parolata (internacia lingvokodaĵo: mlt): malta ordeno (kavalira ordeno kristana).
+
+Manil ⁠ / ⁠ o. La ĉefurbo de Filipinoj.
+
+mar ⁠ / ⁠ o (FdE). Arab ⁠ / ⁠ a Mar ⁠ / ⁠ o. Randa maro inter Afriko kaj Barato, en la norda parto de la Hinda Oceano. Balt ⁠ / ⁠ a Mar ⁠ / ⁠ o. Interna maro en norda Eŭropo , formanta parton de Atlantiko kaj etendiĝanta inter Danujo kaj Finnlando. Blank ⁠ / ⁠ a Mar ⁠ / ⁠ o. Randa maro formanta parton de la Arkta Oceano, ĉe la nordokcidenta marbordo de Rusujo. Ege ⁠ / ⁠ a Mar ⁠ / ⁠ o. Parto de Mediteraneo, situanta inter Grekujo kaj Turkujo.
+
+Filipin ⁠ / ⁠ a Mar ⁠ / ⁠ o. Randa maro en la okcidenta parto de Pacifiko, oriente de Filipinoj. Flav ⁠ / ⁠ a Mar ⁠ / ⁠ o. Randa maro inter Ĉinujo kaj la Korea Duoninsulo, la nordokcidenta parto de la Orientĉina Maro. Japan ⁠ / ⁠ a Mar ⁠ / ⁠ o. Randa maro de Pacifiko, ĉirkaŭata de Japanujo, la Korea Duoninsulo kaj la orienta bordo de Rusujo. Karib ⁠ / ⁠ a Mar ⁠ / ⁠ o. Randa maro inter Sud‑ ⁠ Ameriko, Centr‑Ameriko kaj Antiloj. Kaspi ⁠ / ⁠ a Mar ⁠ / ⁠ o. Kaspio. Koral ⁠ / ⁠ a Mar ⁠ / ⁠ o. Randa maro de suda Pacifiko, ĉe la nordorienta marbordo de Aŭstralio. Marmor ⁠ / ⁠ a Mar ⁠ / ⁠ o. Interna maro en nordokcidenta Turkujo, inter la Egea Maro kaj la Nigra Maro. Mort ⁠ / ⁠ a Mar ⁠ / ⁠ o. Sala lago okcidente de Jordanio, en kiun fluas Jordano. Nigr ⁠ / ⁠ a Mar ⁠ / ⁠ o. Interna maro inter Eŭropo kaj Azio, oriente de la Balkana Duoninsulo kaj norde de Malgrand‑ ⁠ Azio, ligita al Mediteraneo. Nord ⁠ / ⁠ a Mar ⁠ / ⁠ o. Parto de Atlantiko inter la nordokcidentaj bordoj de la eŭropa kontinento kaj Britujo. Orient ⁠ / ⁠ ĉin ⁠ / ⁠ a Mar ⁠ / ⁠ o. Maro en la okcidenta parto de Pacifiko, oriente de Ĉinujo. Ruĝ ⁠ / ⁠ a Mar ⁠ / ⁠ o 1 Maro inter Afriko kaj la Araba Duoninsulo, etendiĝanta ĝis la Adena Golfo. 2 Gubernio de Egiptujo, en ties sudorienta parto, laŭlonge de la Ruĝa Maro 1 . Internacia landerokodaĵo: EG‑BA. 3 Ŝtato de Sudano, en ties nordorienta parto, laŭlonge de la Ruĝa Maro 1 . Internacia landerokodaĵo: SD‑RS.
+
+Sargas ⁠ / ⁠ a Maro. Parto de Atlantiko, ĉirkaŭata de oceanaj fluoj, kiun distingas ĝia aparta riĉeco je sargasoj kaj ĝia plej ofte kvieta surfaco kun aparte malhelblua koloro. Sud ⁠ / ⁠ ĉin ⁠ / ⁠ a Mar ⁠ / ⁠ o. Maro en la okcidenta parto de Pacifiko, sude de Ĉinujo.
+
+Maraton ⁠ / ⁠ o. Urbo de Grekujo, fama pro la venko de Ateno super la Persa Imperio en la jaro 490 antaŭ nia erao. maraton ⁠ / ⁠ o. Vetkuro laŭ distanco de 42,195 kilometroj.
+
+Marsejl ⁠ / ⁠ o. Havenurbo en suda Francujo, oriente de Montpeliero.
+
+Marŝal ⁠ / ⁠ o ⁠ / ⁠ j 1 Insularo en la orienta parto de Mikronezio 1 , norde de Nauro kaj oriente de Mikronezio 2 . 2 Lando, kiu okupas Marŝalojn 1 . Internacia landokodaĵo: MH. marŝal ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Marŝaloj. marŝal ⁠ / ⁠ a. Rilata al marŝalanoj, Marŝaloj aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: mah).
+
+Martinik ⁠ / ⁠ o 1 Insulo en la mezo de Malgrandaj Antiloj, inter Dominiko kaj Sankta Lucio. 2 Regiono kaj transmara departemento de Francujo, sur Martiniko 1 . Internacia land(er)okodaĵo: MQ, FR‑972. martinik ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Martiniko. martinik ⁠ / ⁠ a. Rilata al martinikanoj, Martiniko aŭ la vario de la gvadelupa lingvo tie parolata.
+
+maŭr ⁠ / ⁠ o 1 Dum antikveco, nomo donata de la romanoj al la loĝantoj de la Maŭritania Regno en nordokcidenta Afriko. 2 Dum mezepoko, nomo donata de la eŭropanoj al la islamaj loĝantoj de nordokcidenta Afriko, la Ibera Duoninsulo, Sicilio kaj Malto: maŭra arĥitekturo en Hispanujo .
+
+Maŭrici ⁠ / ⁠ o 1 La ĉefa insulo en Maŭricio 2 . 2 Insulara lando en la Hinda Oceano, ĉirkaŭ 900 kilometrojn oriente de Madagaskaro. Internacia landokodaĵo: MU. maŭrici ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Maŭricio. maŭrici ⁠ / ⁠ a. Rilata al maŭricianoj, Maŭricio aŭ la kreola lingvo tie parolata (internacia lingvokodaĵo: mfe), bazita sur la franca.
+
+Maŭritani ⁠ / ⁠ o. Lando en Okcident‑Afriko, nordoriente de Senegalo 2 . Internacia landokodaĵo: MR.
+
+Meksik/ ⁠ o (8OA). Nov‑Meksik ⁠ / ⁠ o. Usona ŝtato, okcidente de Teksaso kaj sude de Kolorado 2 , ĉe la suda parto de la Roka Montaro. Internacia landerokodaĵo: US‑NM.
+
+Melanezi ⁠ / ⁠ o. Parto de Oceanio, konsistanta el Nov‑Gvineo kaj grupo de insularoj en okcidenta Pacifiko, sude de Mikronezio kaj okcidente de Polinezio.
+
+Mezopotami ⁠ / ⁠ o. Historia regiono, kiu grandparte troviĝas inter Tigriso kaj Eŭfrato, hodiaŭ parto precipe de Irako.
+
+Mikronezi ⁠ / ⁠ o 1 Parto de Oceanio, konsistanta el grupo de insularoj en okcidenta Pacifiko, oriente de Filipinoj. 2 Insulara federacia lando en la sudokcidenta parto de Mikronezio 1 , nordoriente de Nov‑Gvineo. Internacia landokodaĵo: FM.
+
+Milan ⁠ / ⁠ o. Urbo en norda Italujo, inter Torino kaj Venecio.
+
+moldav ⁠ / ⁠ o 1 Ano de la ĉefgento de Moldavujo, parolanta la rumanan lingvon. 2 Ano de Moldavujo. Moldav ⁠ / ⁠ uj ⁠ / ⁠ o. Lando de orienta Eŭropo, inter Rumanujo kaj Ukrainujo. Internacia landokodaĵo: MD. moldav ⁠ / ⁠ a. Rilata al moldavoj, la moldava vario de la rumana lingvo aŭ Moldavujo.
+
+Monak ⁠ / ⁠ o 1 La ĉefurbo de Monako 2 . 2 Lando ĉe la orienta parto de la Lazura Bordo, proksime de la franc‑itala landlimo. Internacia landokodaĵo: MC.
+
+mongol ⁠ / ⁠ o 1 Ano de la ĉefgento de Mongolujo, parolanta la mongolan lingvon (internacia lingvokodaĵo: mon). 2 Ano de Mongolujo. Mongol ⁠ / ⁠ uj ⁠ / ⁠ o 1 Regiono en Azio, sude de Siberio, dividita inter Mongolujo 2 , Ĉinujo kaj Rusujo. 2 Lando en meza Azio, en la norda parto de Mongolujo 1 . Internacia landokodaĵo: MN. mongol ⁠ / ⁠ a. Rilata al mongoloj, al la mongola lingvo aŭ Mongolujo.
+
+mont ⁠ / ⁠ o (FdE). Blank ⁠ / ⁠ a Mont ⁠ / ⁠ o. Monto ĉe la limo inter Francujo, Italujo kaj Svislando, la plej alta monto en Alpoj. Rok ⁠ / ⁠ a Mont ⁠ / ⁠ ar ⁠ / ⁠ o. Montaro en la okcidenta parto de Nord‑Ameriko, kiu etendiĝas liniforme de okcidenta Kanado ĝis la sudokcidenta parto de Usono.
+
+Montenegr ⁠ / ⁠ o. Lando en sudorienta Eŭropo, ĉe la adriatika flanko de la Balkana Duoninsulo. Internacia landokodaĵo: ME. montenegr ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Montenegro. montenegr ⁠ / ⁠ a. Rilata al montenegranoj, Montenegro aŭ la sudslava lingvo tie parolata (internacia lingvokodaĵo: cnr).
+
+Montevide ⁠ / ⁠ o 1 La ĉefurbo de Urugvajo. 2 Departemento en Urugvajo, en kiu situas Montevideo 1 . Internacia landerokodaĵo: UY‑MO.
+
+Montpelier ⁠ / ⁠ o. Urbo en suda Francujo, ĉe la mediteranea bordo de Okcitanujo 2 .
+
+Montreal ⁠ / ⁠ o. Havenurbo en Kanado, en Kebekio.
+
+Moravi ⁠ / ⁠ o. Orienta parto de Ĉeĥujo.
+
+Moskv ⁠ / ⁠ o. La ĉefurbo de Rusujo, kaj inter la jaroj 1922 kaj 1991 de Sovet‑ ⁠ Unio.
+
+Mozambik ⁠ / ⁠ o. Lando en sudorienta Afriko, sude de Tanzanio. Internacia landokodaĵo: MZ.
+
+Mumbaj ⁠ / ⁠ o. Havenurbo ĉe la okcidenta marbordo de Barato.
+
+Munken ⁠ / ⁠ o. Urbo en suda Germanujo, la ĉefurbo de la federacia lando Bavarujo.
+
+Nagasak ⁠ / ⁠ o 1 Havenurbo en Japanujo, trafita de usona atombombo tri tagojn post Hiroŝimo. 2 Gubernio de Japanujo, kies ĉefurbo estas Nagasako 1 . Internacia landerokodaĵo: JP‑ ⁠ 42.
+
+Namibi ⁠ / ⁠ o. Lando en la okcidento de suda Afriko. Internacia landokodaĵo: NA.
+
+Napol ⁠ / ⁠ o. Urbo en la okcidenta parto de suda Italujo. napol ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Napolo. napol ⁠ / ⁠ a. Rilata al napolanoj, Napolo aŭ la vario de la itala lingvo parolata en la suda parto de la itala ĉeftero (internacia lingvokodaĵo: nap).
+
+Naur ⁠ / ⁠ o 1 Insulo en la nordorienta parto de Melanezio, sude de Marŝaloj kaj norde de Vanuatuo. 2 Lando sur Nauro 1 . Internacia landokodaĵo: NR. naur ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Nauro. naur ⁠ / ⁠ a. Rilata al nauranoj, Nauro aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: nau).
+
+Nepal ⁠ / ⁠ o. Lando en Azio, inter Barato kaj Tibeto. Internacia landokodaĵo: NP. nepal ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Nepalo. nepal ⁠ / ⁠ a. Rilata al nepalanoj, Nepalo aŭ la sanskritida lingvo tie parolata (internacia lingvokodaĵo: nep).
+
+Nevis ⁠ / ⁠ o 1 Insulo de Sankta Kristoforo kaj Neviso, ĉirkaŭ 3 kilometrojn sudoriente de Sankta Kristoforo. 2 Ŝtato de Sankta Kristoforo kaj Neviso, sur Neviso 1 . Internacia landerokodaĵo: KN‑N.
+
+Niĝer ⁠ / ⁠ o 1 Granda rivero en Okcident‑Afriko, kiu fluas de sudorienta Gvineo tra Malio kaj Niĝero, laŭlonge de ties limo kun Benino, ĝis Niĝerio, kie ĝi enfluas la Gvinean Golfon. 2 Lando en Okcident‑Afriko, sudoriente de Alĝerio. Internacia landokodaĵo: NE. 3 Ŝtato de Niĝerio, en ties okcidenta parto, tra kiu fluas Niĝero 1 . Internacia landerokodaĵo: NG‑NI.
+
+Niĝeri ⁠ / ⁠ o. Lando en Okcident‑Afriko, ĉe la Gvinea Golfo. Internacia landokodaĵo: NG.
+
+Nil ⁠ / ⁠ o. Rivero en orienta Afriko, la plej longa en Afriko, kiu post la kunfluo de Blanka Nilo kaj Blua Nilo en Sudano fluas ĝis Egiptujo, kie ĝi enfluas Mediteraneon. Blank ⁠ / ⁠ a Nil ⁠ / ⁠ o 1 Alfluanto de Nilo, kiu fluas de Ugando tra Sud‑Sudano ĝis Sudano, kie ĝi kunfluas kun Blua Nilo. 2 Ŝtato de Sudano, en ties suda parto, nordokcidente de Blua Nilo 2 . Internacia landerokodaĵo: SD‑NW. Blu ⁠ / ⁠ a Nil ⁠ / ⁠ o 1 Alfluanto de Nilo, kiu fluas de norda Etiopujo ĝis Sudano, kie ĝi kunfluas kun Blanka Nilo. 2 Ŝtato de Sudano, en ties sudorienta parto. Internacia landerokodaĵo: SD‑NB.
+
+Nurenberg ⁠ / ⁠ o. Urbo en Germanujo, en la federacia lando Bavarujo.
+
+ocean ⁠ / ⁠ o (1OA). Arkt ⁠ / ⁠ a Ocean ⁠ / ⁠ o. Oceano norde de Nord‑ ⁠ Ameriko, Eŭropo kaj Azio, en kiu situas la Norda Poluso. Hind ⁠ / ⁠ a Ocean ⁠ / ⁠ o. Oceano ĉirkaŭata de Afriko, Azio, Aŭstralio kaj la Suda Oceano. Sud ⁠ / ⁠ a Ocean ⁠ / ⁠ o. Oceano ĉirkaŭanta Antarkton kaj situanta en la regiono kun pli ol 60‑ ⁠ grada suda latitudo.
+
+Oceani ⁠ / ⁠ o. Mondoparto konsistanta el Aŭstralio kaj la ĉirkaŭantaj insuloj.
+
+Odes ⁠ / ⁠ o 1 Urbo en Ukrainujo, ĉe la Nigra Maro. 2 Regiono en sudokcidenta Ukrainujo, kiu entenas Odeson 1 . Internacia landerokodaĵo: UA‑51.
+
+Odr ⁠ / ⁠ o. Rivero, kiu fluas de Ĉeĥujo tra Pollando, kie ĝi formas parton de ties landlimo kun Germanujo, ĝis ĝi enfluas la Baltan Maron.
+
+okcitan ⁠ / ⁠ o. Ano de Okcitanujo 1 , precipe se portanto de la okcitana kulturo kaj parolanto de ties okcitanlatinida lingvo (internacia lingvokodaĵo: oci). Okcitan ⁠ / ⁠ uj ⁠ / ⁠ o 1 Partoj de suda Francujo, nordorienta Hispanujo kaj nordokcidenta Italujo, en kiuj estas aŭ estis parolataj dialektoj de la okcitana lingvo. 2 Regiono en suda Francujo, ĉe Pireneoj kaj apud Mediteraneo. Internacia landerokodaĵo: FR‑OCC. okcitan ⁠ / ⁠ a. Rilata al okcitanoj, la okcitana lingvo aŭ Okcitanujo.
+
+Okinav ⁠ / ⁠ o 1 Insulo de Japanujo, inter la Orientĉina Maro kaj Pacifiko. 2 Gubernio de Japanujo, konsistanta el Okinavo 1 kaj kelkaj el la pli malgrandaj insuloj inter la japana ĉeftero kaj Tajvano 1 . Internacia landerokodaĵo: JP‑ ⁠ 47. okinav ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Okinavo. okinav ⁠ / ⁠ a. Rilata al okinavanoj, Okinavo aŭ la lingvo tie parolata (internacia lingvokodaĵo: ryu), parenca al la japana.
+
+Oksford ⁠ / ⁠ o. Universitata urbo en Anglujo, nordokcidente de Londono.
+
+Olimp ⁠ / ⁠ o. La plej alta monto en Grekujo, laŭ la mitologio la restadejo de la antikvaj grekaj dioj. Olimpi ⁠ / ⁠ o. Urbo en Grekujo, kie okazis la unuaj Olimpiaj ludoj. Olimpi ⁠ / ⁠ a ⁠ / ⁠ j lud ⁠ / ⁠ o ⁠ / ⁠ j 1 Sportkonkursoj, okazintaj en Olimpio dum antikveco. 2 Internaciaj sportkonkursoj, okazantaj ĉiun kvaran jaron ekde 1896 en malsamaj landoj.
+
+Oman ⁠ / ⁠ o. Lando en la sudorienta parto de la Araba Duoninsulo. Internacia landokodaĵo: OM.
+
+Osak ⁠ / ⁠ o 1 Havenurbo en Japanujo, sudokcidente de Kioto. 2 Gubernio de Japanujo, kies ĉefurbo estas Osako 1 . Internacia landerokodaĵo: JP‑ ⁠ 27.
+
+Osl ⁠ / ⁠ o 1 La ĉefurbo de Norvegujo. 2 Distrikto de Norvegujo, en kiu situas Oslo 1 . Internacia landerokodaĵo: NO‑03.
+
+otoman ⁠ / ⁠ o. Ano de unu branĉo el la turka popolo, kiu kreis la Otomanan Imperion. otoman ⁠ / ⁠ a. Rilata al otomanoj aŭ la Otomana Imperio.
+
+Palaŭ ⁠ / ⁠ o. Insulara lando en la sudokcidenta parto de Mikronezio 1 , okcidente de Mikronezio 2 . Internacia landokodaĵo: PW. palaŭ ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Palaŭo. palaŭ ⁠ / ⁠ a. Rilata al palaŭanoj, Palaŭo aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: pau).
+
+Palestin ⁠ / ⁠ o 1 Lando en okcidenta Azio, sude de Libano. Internacia landokodaĵo: PS. 2 Historia lando, kie troviĝas nun Israelo kaj Palestino 1 .
+
+Papu ⁠ / ⁠ o. Provinco de Indonezio, en la nordokcidenta parto de Nov‑Gvineo. Internacia landerokodaĵo: ID‑PA. Papu ⁠ / ⁠ o‑Nov‑Gvine ⁠ / ⁠ o. Lando en la orienta parto de Nov‑Gvineo. Internacia landokodaĵo: PG. papu ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Grupo de lingvoj parolataj en Nov‑Gvineo, kiuj estas nek aŭstroneziaj, nek aŭstraliaj.
+
+Parnas ⁠ / ⁠ o. Monto en Grekujo, laŭ la mitologio la restadejo de Apolono kaj la muzoj.
+
+Pekin ⁠ / ⁠ o. La ĉefurbo de Ĉinujo.
+
+Pensilvani ⁠ / ⁠ o. Usona ŝtato, en la nordorienta parto de Usono, sude kaj sudokcidente de Nov‑Jorko 1 .
+
+pers ⁠ / ⁠ o. Ano de la ĉefgento de Persujo, parolanta iranan lingvon (internacia lingvokodaĵo: fas). Pers ⁠ / ⁠ uj ⁠ / ⁠ o. Alia nomo por Irano, uzata de okcidentanoj, precipe antaŭ la jaro 1935. pers ⁠ / ⁠ a. Rilata al persoj, la persa lingvo aŭ Persujo.
+
+Peterburg ⁠ / ⁠ o, Sankt‑ ⁠ Peterburg ⁠ / ⁠ o. Havenurbo en Rusujo, ĉe la Balta Maro.
+
+Pirene ⁠ / ⁠ o ⁠ / ⁠ j. Montoĉeno inter Hispanujo kaj Francujo. Alt ⁠ / ⁠ a ⁠ / ⁠ j Pirene ⁠ / ⁠ o ⁠ / ⁠ j. Departemento en Francujo, oriente de Atlantikaj Pireneoj. Internacia landerokodaĵo: FR‑65. Atlantik ⁠ / ⁠ a ⁠ / ⁠ j Pirene ⁠ / ⁠ o ⁠ / ⁠ j. Departemento en Francujo, en ties sudokcidenta ekstremaĵo. Internacia landerokodaĵo: FR‑64. Orient ⁠ / ⁠ a ⁠ / ⁠ j Pirene ⁠ / ⁠ o ⁠ / ⁠ j. Departemento en Francujo, ĉe la sudokcidenta parto de ties mediteranea marbordo. Internacia landerokodaĵo: FR‑66.
+
+portugal ⁠ / ⁠ o 1 Ano de la ĉefgento de Portugalujo, parolanta iberolatinidan lingvon (internacia lingvokodaĵo: por). 2 Ano de Portugalujo. Portugal ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en sudokcidenta Eŭropo, okcidente de Hispanujo, ĉe Atlantiko. Internacia landokodaĵo: PT. portugal ⁠ / ⁠ a. Rilata al portugaloj, la portugala lingvo aŭ Portugalujo.
+
+Prag ⁠ / ⁠ o. La ĉefurbo de Ĉeĥujo, kaj antaŭe de Bohemujo kaj de Ĉeĥoslovakujo.
+
+Principe ⁠ / ⁠ o. Insulo de Santomeo kaj Principeo, ĉirkaŭ 150 kilometrojn nordoriente de Santomeo 1 .
+
+prus ⁠ / ⁠ o 1 Ano de la ĉefgento de Prusujo, parolinta dum mezepoko baltan lingvon (internacia lingvokodaĵo: prg) kaj poste la germanan lingvon. 2 Ano de Prusujo. Prus ⁠ / ⁠ uj ⁠ / ⁠ o. Iama germana reĝlando, sude de la Balta Maro, kiu iom post iom aneksis grandan parton de Germanujo ĝis Rejno; malfondita en la jaro 1947. prus ⁠ / ⁠ a. Rilata al prusoj aŭ Prusujo.
+
+Raŭm ⁠ / ⁠ o. Urbo ĉe la okcidenta bordo de Finnlando.
+
+regn ⁠ / ⁠ o (FdE). Hungar ⁠ / ⁠ a Regn ⁠ / ⁠ o. Reĝlando en Mez‑Eŭropo ekzistanta inter la jaroj 1000 kaj 1918, precipe sur la teritorio de la nuna Hungarujo. Rom ⁠ / ⁠ a Regn ⁠ / ⁠ o. Regno regata de Romo ekde la 8‑a jarcento antaŭ nia erao, kiu en la 4‑a jarcento de nia erao dispartiĝis en okcidentan regnon, regatan de Romo ĝis ties falo en la jaro 476, kaj orientan regnon, regatan de Konstantinopolo, kiu regno plu ekzistis en la formo de la Bizanca Imperio ĝis ties falo en la jaro 1453.
+
+Rejkjavik ⁠ / ⁠ o. La ĉefurbo de Islando.
+
+Rejn ⁠ / ⁠ o. Rivero, kiu fluas de Svislando tra Germanujo ĝis Nederlando, kie ĝi enfluas la Nordan Maron. Supr ⁠ / ⁠ a Rejn ⁠ / ⁠ o. Departemento en Francujo, formanta la sudan parton de Alzaco. Internacia landerokodaĵo: FR‑ ⁠ 68. Mal ⁠ / ⁠ supr ⁠ / ⁠ a Rejn ⁠ / ⁠ o. Departemento en Francujo, formanta la nordan parton de Alzaco. Internacia landerokodaĵo: FR‑ ⁠ 67.
+
+Reuni ⁠ / ⁠ o 1 Insulo en la okcidenta parto de la Hinda Oceano, inter Maŭricio kaj Madagaskaro. 2 Regiono kaj transmara departemento de Francujo, sur Reunio 1 . Internacia land(er)okodaĵo: RE, FR‑974. reuni ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Reunio. reuni ⁠ / ⁠ a. Rilata al reunianoj, Reunio aŭ la kreola lingvo tie parolata (internacia lingvokodaĵo: rcf), bazita sur la franca.
+
+Riodeĵanejr/o 1 Havenurbo en la sudorienta parto de Brazilo, ĉe Atlantiko. 2 Brazila ŝtato, kies ĉefurbo estas Riodeĵanejro 1 . Internacia landerokodaĵo: BR‑ ⁠ RJ.
+
+Rom ⁠ / ⁠ o. La ĉefurbo de Italujo kaj de la antikva Roma Regno.
+
+romanĉ ⁠ / ⁠ o 1 Ano de la ĉefgento de Romanĉujo, parolanta latinidan lingvon (internacia lingvokodaĵo: roh). 2 Ano de Romanĉujo. Romanĉ ⁠⁠ / ⁠ uj ⁠ / ⁠ o. Parto de sudorienta Svislando, precipe Grizono, kaj nordorienta Italujo, precipe Friulo, kie loĝas la romanĉoj. romanĉ ⁠ / ⁠ a. Rilata al romanĉoj, la romanĉa lingvo aŭ Romanĉujo. ⁠
+
+Roterdam ⁠ / ⁠ o. Havenurbo en Nederlando, en Sud‑ ⁠ Holando.
+
+Ruand ⁠ / ⁠ o. Lando en orienta Afriko, inter Ugando kaj Burundo. Internacia landokodaĵo: RW.
+
+Sahar ⁠ / ⁠ o. Granda dezerto en norda Afriko, etendiĝanta de Atlantiko ĝis la Ruĝa Maro.
+
+saks ⁠ / ⁠ o 1 Ano de ĝermana tribo, loĝanta precipe en Saksujo 1 ; parto de tiu tribo konkeris Anglujon en la 5‑a jarcento. 2 Ano de Saksujo 2 . Saks ⁠ / ⁠ uj ⁠ / ⁠ o 1 Iama duklando kaj reĝlando, situanta en tiu nordokcidenta parto de Germanujo, kiu pli‑malpli respondas al la nuna Malsupra Saksujo. 2 Germana federacia lando situanta en orienta Germanujo, apud la limoj kun Pollando kaj Ĉeĥujo. Internacia landerokodaĵo: DE‑SN. Mal ⁠ / ⁠ supr ⁠ / ⁠ a Saks ⁠ / ⁠ uj ⁠ / ⁠ o. Germana federacia lando situanta en nordokcidenta Germanujo, apud la Norda Maro. Internacia landerokodaĵo: DE‑NI.
+
+Salomon ⁠ / ⁠ o ⁠ / ⁠ j 1 Insularo en la norda parto de Melanezio, oriente de Papuo‑Nov‑Gvineo kaj nordokcidente de Vanuatuo. 2 Lando, kiu okupas la sudorientan parton de Salomonoj 1 . Internacia landokodaĵo: SB.
+
+Salvador ⁠ / ⁠ o. Lando en Centr‑Ameriko, ĉe Pacifiko, sudokcidente de Honduro. Internacia landokodaĵo: SV.
+
+Samarkand ⁠ / ⁠ o 1 Urbo en orienta Uzbekujo, ĉirkaŭ 50 kilometrojn okcidente de ties limo kun Taĝikujo. 2 Regiono de Uzbekujo, kiu entenas Samarkandon 1 . Internacia landerokodaĵo: UZ‑SA.
+
+Samo ⁠ / ⁠ o. Insulara lando en la okcidenta parto de Polinezio, inter Nov‑Zelando kaj Havajo. Internacia landokodaĵo: WS. samo ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Samoo. samo ⁠ / ⁠ a. Rilata al samoanoj, Samoo aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: smo).
+
+Sanfrancisk ⁠ / ⁠ o. Havenurbo en Usono, en la norda parto de Kalifornio.
+
+Sanmarin ⁠ / ⁠ o 1 La ĉefurbo de Sanmarino 2 . 2 Lando tute ĉirkaŭata de Italujo, oriente de Florenco. Internacia landokodaĵo: SM.
+
+Sanpaŭl ⁠ / ⁠ o 1 La ĉefurbo de Sanpaŭlo 2 . 2 Brazila ŝtato, situanta en sudorienta Brazilo. Internacia landerokodaĵo: BR‑ ⁠ SP.
+
+Sanskrit ⁠ / ⁠ o 1 Lingvo kodigita de la gramatikisto Pāṇini ĉirkaŭ la 4‑a jarcento antaŭ nia erao kaj funkciinta kiel norma kultura lingvo en la antikva kaj mezepoka Hindujo. Internacia lingvokodaĵo: san. 2 Unu el la lingvoj parolataj en la antikva Hindujo, kies parolantoj povis reciproke kompreni sin, kaj sur kiuj baziĝis la kodigo de Sanskrito 1 : la epopeoj ekzemplas la “epopean Sanskriton” . sanskrit ⁠ / ⁠ a. Rilata al Sanskrito: la sanskrita (lingvo). sanskrit ⁠ / ⁠ id ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Lingvoj devenintaj el Sanskrito 2 .
+
+Santiag ⁠ / ⁠ o 1 La ĉefurbo de Ĉilio ( Santiag ⁠ / ⁠ o de Ĉili ⁠ / ⁠ o ). 2 Granda urbo ĉe la sudorienta marbordo de Kubo ( Santiag ⁠ / ⁠ o de Kub ⁠ / ⁠ o ). 3 Provinco de Kubo, en kiu situas Santiago 2 . Internacia landerokodaĵo: CU‑13.
+
+Santome ⁠ / ⁠ o 1 La ĉefa insulo de Santomeo kaj Principeo, ĉirkaŭ 250 kilometrojn okcidente de Gabono, ĉe la ekvatoro. 2 La ĉefurbo de Santomeo kaj Principeo, sur Santomeo 1 . Santome ⁠ / ⁠ o kaj Principe ⁠ / ⁠ o. Insulara lando en la Gvinea Golfo, konsistanta precipe el Santomeo 1 kaj la pli malgranda insulo Principeo. Internacia landokodaĵo: ST.
+
+Sapf ⁠ / ⁠ o. Poetino el antikva Grekujo (6‑a jarcento antaŭ nia erao).
+
+Sarajev ⁠ / ⁠ o 1 La ĉefurbo de Bosnujo kaj Hercegovino. 2 Kantono de Bosnujo kaj Hercegovino, en kiu situas Sarajevo 1 . Internacia landerokodaĵo: BA‑09.
+
+sargas ⁠ / ⁠ o. Genro de maralgoj el la klaso brunalgoj. ( Sargassum .)
+
+Saud ⁠ / ⁠ o. Familinomo de anoj de araba reĝa dinastio, kiu regas Saudan Arabujon. Saud ⁠ / ⁠ a Arab ⁠ / ⁠ uj ⁠ / ⁠ o. Lando inter la Ruĝa Maro kaj la Persa Golfo, kiu kovras la plej grandan parton de la Araba Duoninsulo. Internacia landokodaĵo: SA. saud ⁠ / ⁠ arab ⁠ / ⁠ uj ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Sauda Arabujo. saud ⁠ / ⁠ a. Rilata al Saudo, saudarabujanoj aŭ Sauda Arabujo.
+
+Sejŝel ⁠ / ⁠ o ⁠ / ⁠ j. Insulara lando en la Hinda Oceano, ĉirkaŭ 1300 kilometrojn sudoriente de Somalio. Internacia landokodaĵo: SC.
+
+Senegal ⁠ / ⁠ o 1 Rivero en Okcident‑Afriko, kiu fluas de Gvineo tra Malio, formas la limon inter Senegalo 2 kaj Maŭritanio, kaj fine enfluas Atlantikon. 2 Lando en Okcident‑Afriko, sudokcidente de Malio. Internacia landokodaĵo: SN.
+
+serb ⁠ / ⁠ o 1 Ano de la ĉefgento de Serbujo, parolanta sudslavan lingvon (internacia lingvokodaĵo: srp). 2 Ano de Serbujo. Serb ⁠ / ⁠ uj ⁠ / ⁠ o. Lando sur la Balkana Duoninsulo, inter Bosnujo kaj Hercegovino kaj Rumanujo. Internacia landokodaĵo: RS. serb ⁠ / ⁠ a. Rilata al serboj, la serba lingvo aŭ Serbujo.
+
+Seul ⁠ / ⁠ o. La ĉefurbo de Sud‑ ⁠ Koreujo.
+
+Siberi ⁠ / ⁠ o. Parto de Azio, etendiĝanta de Uralo ĝis Pacifiko, norde de la vasta montaro kaj dezertaro de meza Azio.
+
+Sicili ⁠ / ⁠ o 1 Insulo de Italujo, sude de la itala duoninsulo. 2 Regiono de Italujo, situanta sur Sicilio 1 . Internacia landerokodaĵo: IT‑ ⁠ 82. sicili ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Sicilio. sicili ⁠ / ⁠ a. Rilata al sicilianoj, Sicilio aŭ la vario de la itala lingvo tie parolata (internacia lingvokodaĵo: scn).
+
+Sieraleon ⁠ / ⁠ o. Lando en Okcident‑Afriko, inter Gvineo kaj Liberio. Internacia landokodaĵo: SL.
+
+Silezi ⁠ / ⁠ o 1 Regiono en Mez‑Eŭropo, kies plej granda parto apartenas al Pollando. 2 Provinco de Pollando, en ties suda parto. Internacia landerokodaĵo: PL‑24. silezi ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Silezio. silezi ⁠ / ⁠ a. Rilata al silezianoj, Silezio aŭ la okcidentslava lingvo tie parolata (internacia lingvokodaĵo: szl). Mal/supr/a Silezi/o. Provinco de Pollando, en ties sudokcidenta parto. Internacia landerokodaĵo: PL‐ 02.
+
+Singapur ⁠ / ⁠ o 1 La ĉefurbo de Singapuro 2 . 2 Lando sude de Malajzio. Internacia landokodaĵo: SG.
+
+skandinav ⁠ / ⁠ o 1 Ano de unu el la nordĝermanaj gentoj de Skandinavujo. 2 Ano de Skandinavujo. Skandinav ⁠ / ⁠ uj ⁠ / ⁠ o 1 Duoninsulo en norda Eŭropo, ampleksanta Norvegujon, Svedujon kaj nordokcidentan Finnlandon. 2 Regiono en norda Eŭropo ampleksanta, krom Norvegujo kaj Svedujo, Danujon; iafoje ankaŭ Finnlando kaj Islando estas enkalkulataj. skandinav ⁠ / ⁠ a. Rilata al skandinavoj: la skandinavaj lingvoj (parolataj en Islando, Svedujo, Norvegujo kaj Danujo).
+
+skot ⁠ / ⁠ o 1 Ano de la ĉefgento de Skotlando. 2 Ano de Skotlando. Skot ⁠ / ⁠ land ⁠ / ⁠ o. Lando en Britujo, norde de Anglujo. Internacia landerokodaĵo: GB‑SCT. skot ⁠ / ⁠ a. Rilata al skotoj, ilia okcidentĝermana lingvo aŭ Skotlando: skota lingvo (okcidentĝermana lingvo, internacia lingvokodaĵo: sco); skota skolo de Esperanta literaturo ; en la nordo kaj okcidento [de Skotlando] oni parolis la lingvon gaelan, [dum] en la centro kaj nordoriento oni parolis skote (Auld).
+
+slav ⁠ / ⁠ o. Ano de eŭropa gentaro, kiu karakteriziĝas per uzado de parencaj lingvoj , kaj al kiu apartenas la gentoj belorusoj, bulgaroj, ĉeĥoj, kroatoj, poloj, rusoj, serboj, slovenoj, slovakoj, ukrainoj kaj aliaj. slav ⁠ / ⁠ a. Rilata al slavoj aŭ slavaj lingvoj.
+
+slovak ⁠ / ⁠ o 1 Ano de la ĉefgento de Slovakujo, parolanta okcidentslavan lingvon (internacia lingvokodaĵo: slk). 2 Ano de Slovakujo. Slovak ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en Mez‑Eŭropo, inter Pollando kaj Hungarujo. Internacia landokodaĵo: SK. slovak ⁠ / ⁠ a. Rilata al slovakoj, la slovaka lingvo aŭ Slovakujo. ĉeĥo ⁠ / ⁠ slovak ⁠ / ⁠ o. Ano de Ĉeĥoslovakujo. Ĉeĥ ⁠ / ⁠ o ⁠ / ⁠ slovak ⁠ / ⁠ uj ⁠ / ⁠ o. Inter la jaroj 1918 kaj 1992, lando konsistanta el Ĉeĥujo kaj Slovakujo. ĉeĥ ⁠ / ⁠ o ⁠ / ⁠ slovak ⁠ / ⁠ a. Rilata al Ĉeĥoslovakujo.
+
+sloven ⁠ / ⁠ o 1 Ano de la ĉefgento de Slovenujo, parolanta sudslavan lingvon (internacia lingvokodaĵo: slv). 2 Ano de Slovenujo. Sloven ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en Mez‑Eŭropo, inter Aŭstrujo kaj Kroatujo. Internacia landokodaĵo: SI. sloven ⁠ / ⁠ a. Rilata al slovenoj, la slovena lingvo aŭ Slovenujo.
+
+Sofi ⁠ / ⁠ o 1 La ĉefurbo de Bulgarujo. 2 Provinco de Bulgarujo, en ties okcidenta parto, kies administra centro estas Sofio 1 . Internacia landerokodaĵo: BG‑23. Sofi ⁠ / ⁠ o‑Urb ⁠ / ⁠ o. Provinco de Bulgarujo, kiu entenas Sofion 1 , preskaŭ tute ĉirkaŭata de Sofio 2 sed ne parto de tiu ĉi. Internacia landerokodaĵo: BG‑22.
+
+somal ⁠ / ⁠ o 1 Ano de la ĉefgento de Somalujo, parolanta afrikazian lingvon (internacia lingvokodaĵo: som). 2 Ano de Somalujo. Somal ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en orienta Afriko, nordoriente de Kenjo 2 . Internacia landokodaĵo: SO. somal ⁠ / ⁠ a. Rilata al somaloj, la somala lingvo aŭ Somalujo.
+
+sovet ⁠ / ⁠ o 1 Dum la revoluciaj tempoj en Rusujo (la jaroj 1905 kaj 1917), konsilantaro de elektitaj deputitoj, kutime konsistanta el laboristoj, kamparanoj kaj soldatoj, kiu funkciis kiel organo de popola memregado ekde loka ĝis regiona nivelo. 2 En Soveta Unio, reprezenta organo kun leĝofara kaj decida povo ekde vilaĝa kaj urbodistrikta ĝis ŝtata nivelo. sovet ⁠ / ⁠ a. Rilata al sovetoj, politika sistemo asociita kun sovetoj, al Soveta Unio kaj ties loĝantoj, precipe en la kunteksto de la koncerna politika reĝimo. Sovet ⁠ / ⁠ a Uni ⁠ / ⁠ o, Sovet‑Uni ⁠ / ⁠ o. Unio de Sovetaj Socialismaj Respublikoj; iama federacia regno, ekzistanta inter la jaroj 1922 kaj 1991, kiu de 1956 ĝis sia dismembriĝo konsistis el 15 respublikoj, respondaj al la nunaj landoj Armenujo, Azerbajĝano, Belorusujo, Estonujo, Kartvelujo, Kazaĥujo, Kirgizujo, Latvujo, Litovujo, Moldavujo, Rusujo, Taĝikujo, Turkmenujo, Ukrainujo kaj Uzbekujo.
+
+Soveti ⁠ / ⁠ o = Soveta Unio. soveti ⁠ / ⁠ a. Rilata al Sovetio kaj ties loĝantoj.
+
+Srilank ⁠ / ⁠ o 1 Insulo en Sud‑Azio, en la Hinda Oceano, sudokcidente de la Bengala Golfo, ĉirkaŭ 200 kilometojn oriente de la suda pinto de la hinda subkontinento. 2 Lando sur Srilanko 1 . Internacia landokodaĵo: LK.
+
+status ⁠ / ⁠ o. Leĝa aŭ jura situacio de persono, organizo, regiono, lingvo k.s.
+
+Stokholm ⁠ / ⁠ o. La ĉefurbo de Svedujo.
+
+Strasburg ⁠ / ⁠ o. Urbo en orienta Francujo, la ĉefurbo de Malsupra Rejno.
+
+Sudan ⁠ / ⁠ o (8OA). Sud‑Sudan ⁠ / ⁠ o. Lando en meza Afriko, inter Centr‑Afriko kaj Etiopujo. Internacia landokodaĵo: SS.
+
+Sumatr ⁠ / ⁠ o. Insulo de Indonezio, situanta rande de la Hinda Oceano ambaŭflanke de la ekvatoro.
+
+Sumer ⁠ / ⁠ o. Dum antikveco, regno de Mezopotamio, sudoriente de Babilono. sumer ⁠ / ⁠ an ⁠ / ⁠ o. Ano de la antikva ĉefgento de Sumero, parolanta la sumeran lingvon (internacia lingvokodaĵo: sux). sumer ⁠ / ⁠ a. Rilata al sumeranoj, ilia lingvo aŭ Sumero.
+
+Surinam ⁠ / ⁠ o. Lando en la nordorienta parto de Sud‑Ameriko, inter Gujano kaj Franca Gujano. Internacia landokodaĵo: SR.
+
+suveren ⁠ / ⁠ o. Tiu, kiu en regno havas la plej superan povon.
+
+svazi ⁠ / ⁠ o 1 Ano de la ĉefgento de Svazilando, parolanta bantuan lingvon (internacia lingvokodaĵo: ssw). 2 Ano de Svazilando. Svazi ⁠ / ⁠ land ⁠ / ⁠ o. Lando en suda Afriko, inter Sud‑Afriko kaj Mozambiko. Internacia landokodaĵo: SZ. svazi ⁠ / ⁠ a. Rilata al svazioj, la svazia lingvo aŭ Svazilando.
+
+svis ⁠ / ⁠ o. Ano de Svislando. Svis ⁠ / ⁠ land ⁠ / ⁠ o, Svis ⁠ / ⁠ uj ⁠ / ⁠ o. Federacia regno en Mez‑Eŭropo, okcidente de Aŭstrujo. Internacia landokodaĵo: CH. svis ⁠ / ⁠ a. Rilata al svisoj aŭ Svislando.
+
+Ŝanhaj ⁠ / ⁠ o 1 Havenurbo ĉe la Orientĉina Maro, ĉefurbo de Ŝanhajo 2 . 2 Distrikto en orienta Ĉinujo, en kiu situas Ŝanhajo 1 . Internacia landerokodaĵo: CN‑ ⁠ SH.
+
+Ŝem ⁠ / ⁠ o. Unu el la filoj de Noa , laŭ la sanktaj tekstoj de kristanoj, hebreoj kaj islamanoj. ŝem ⁠ / ⁠ id ⁠ / ⁠ o. Ano de kiu ajn el la gentoj, supozataj deveni de Ŝemo. ŝem ⁠ / ⁠ id ⁠ / ⁠ a. Rilata al ŝemidoj aŭ ŝemidaj lingvoj.
+
+ŝem ⁠ / ⁠ id ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ o ⁠ / ⁠ j. Branĉo de la afrikazia lingvaro, parolata precipe en okcidenta Azio, norda kaj okcidenta Afriko kaj Malto.
+
+Ŝetland ⁠ / ⁠ o. Insularo de Skotlando, ĉirkaŭ 170 kilometrojn nordoriente de la ĉeftero. Internacia landerokodaĵo: GB‑ ⁠ ZET.
+
+taĝik ⁠ / ⁠ o 1 Ano de la ĉefgento de Taĝikujo, parolanta iranan lingvon (internacia lingvokodaĵo: tgk). 2 Ano de Taĝikujo. Taĝik ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en meza Azio, inter Afganujo kaj Kirgizujo. Internacia landokodaĵo: TJ. taĝik ⁠ / ⁠ a. Rilata al taĝikoj, la taĝika lingvo aŭ Taĝikujo.
+
+taj ⁠ / ⁠ o 1 Ano de la ĉefgento de Tajlando, parolanta la tajan lingvon (internacia lingvokodaĵo: tha). 2 Ano de Tajlando. Taj ⁠ / ⁠ land ⁠ / ⁠ o. Lando en Hindoĉinujo, inter Birmo kaj Kamboĝo. Internacia landokodaĵo: TH. taj ⁠ / ⁠ a. Rilata al tajoj, la taja lingvo aŭ Tajlando.
+
+Tajvan ⁠ / ⁠ o 1 Insulo situanta sudoriente de kontinenta Ĉinujo. 2 Lando situanta sur Tajvano 1 . Internacia landokodaĵo: TW.
+
+tamil ⁠ / ⁠ o 1 Ano de la ĉefgento de Tamillando, parolanta dravidan lingvon (internacia lingvokodaĵo: tam). 2 Ano de Tamillando. Tamil ⁠ / ⁠ land ⁠ / ⁠ o. Barata ŝtato, en la sudorienta parto de Barato. Internacia landerokodaĵo: IN‑TN. tamil ⁠ / ⁠ a. Rilata al tamiloj, la tamila lingvo aŭ Tamillando.
+
+Tamiz ⁠ / ⁠ o. Rivero en Anglujo, kiu trafluas Londonon.
+
+Tampere ⁠ / ⁠ o. Landinterna urbo en sudokcidenta Finnlando.
+
+Tanzani ⁠ / ⁠ o. Lando en orienta Afriko, sude de Kenjo. Internacia landokodaĵo: TZ.
+
+Tasmani ⁠ / ⁠ o. Insula ŝtato de Aŭstralio, ĉirkaŭ 240 kilometrojn sude de la orienta parto de la aŭstralia ĉeftero. Internacia landerokodaĵo: AU‑TAS.
+
+tatar ⁠ / ⁠ o. Ano de iu el pluraj gentoj, loĝantaj precipe en Tatarujo, Krimeo kaj okcidenta Siberio, parolantaj tjurkan lingvon (internacia lingvokodaĵo: tat). Tatar ⁠ / ⁠ uj ⁠ / ⁠ o. Respubliko en la Rusuja Federacio, ĉe Volgo, oriente de Ĉuvaŝujo. Internacia landerokodaĵo: RU‑TA. Nacia landerokodaĵo: 16. tatar ⁠ / ⁠ a. Rilata al tataroj, la tatara lingvo aŭ Tatarujo.
+
+Teheran ⁠ / ⁠ o 1 La ĉefurbo de Irano. 2 Provinco de Irano, en kiu situas Teherano 1 . Internacia landerokodaĵo: IR‑23.
+
+Teksas ⁠ / ⁠ o. Usona ŝtato, en la meza parto de suda Usono. Internacia landerokodaĵo: US‑ ⁠ TX.
+
+Telaviv ⁠ / ⁠ o 1 Urbo en Israelo, ĉe Mediteraneo. 2 Distrikto de Israelo, kies ĉefurbo estas Telavivo 1 . Internacia landerokodaĵo: IL‑TA.
+
+Tibet ⁠ / ⁠ o. Lando en meza Azio, de la jaro 1950 sub regado de Ĉinujo. tibet ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Tibeto. tibet ⁠ / ⁠ a. Rilata al tibetanoj, Tibeto aŭ al pluraj lingvoj tie parolataj (internaciaj lingvokodaĵoj: adx, bod, khg).
+
+Tigris ⁠ / ⁠ o. Rivero en orienta Mezopotamio, kiu fluas de Turkujo kaj laŭlonge de ties limo kun Sirio ĝis Irako, kie ĝi kunfluas kun Eŭfrato.
+
+Timor ⁠ / ⁠ o. Insulo norde de Aŭstralio. Okcident ⁠ / ⁠ a Timor ⁠ / ⁠ o. Okcidenta parto de Timoro, kiu apartenas al Indonezio. Orient ⁠ / ⁠ a Timor ⁠ / ⁠ o. Lando en la orienta parto de Timoro. Internacia landokodaĵo: TL.
+
+tjurk ⁠ / ⁠ o. Ano de unu el la multaj triboj, origine loĝantaj en norda Ĉinujo, kiuj poste disvastiĝis ankaŭ en Mongolujon, Siberion, kaspiajn ĉirkaŭaĵojn kaj ĝis la Balkana Duoninsulo, interalie azerbajĝananoj, baŝkiroj, kazaĥoj, kirgizoj, tataroj, turkoj, turkmenoj, ujguroj kaj uzbekoj. tjurk ⁠ / ⁠ a. Rilata al tjurkoj kaj tjurkaj lingvoj.
+
+Tobag ⁠ / ⁠ o. Insulo de Trinidado kaj Tobago, ĉirkaŭ 35 kilometrojn nordoriente de Trinidado.
+
+Tog ⁠ / ⁠ o. Lago en la suda parto de Togolando, apud la Gvinea Golfo. Tog ⁠ / ⁠ o ⁠ / ⁠ land ⁠ / ⁠ o. Lando en Okcident‑Afriko, inter Ganao kaj Benino. Internacia landokodaĵo: TG.
+
+Toki ⁠ / ⁠ o 1 La ĉefurbo de Japanujo. 2 Gubernio de Japanujo, kie situas Tokio 1 . Internacia landerokodaĵo: JP‑ ⁠ 13.
+
+Tong ⁠ / ⁠ o. Insulara lando en la okcidenta parto de Polinezio, sudokcidente de Samoo. Internacia landokodaĵo: TO. tong ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Tongo. tong ⁠ / ⁠ a. Rilata al tonganoj, Tongo aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: ton).
+
+Torin ⁠ / ⁠ o. Urbo en la okcidenta parto de norda Italujo.
+
+Toront ⁠ / ⁠ o. Urbo en Kanado, ĉe la Grandaj Lagoj.
+
+trak ⁠ / ⁠ o. Ano de gento, kiu dum antikveco loĝis en Trakujo 1 . Trak ⁠ / ⁠ uj ⁠ / ⁠ o 1 Antikva reĝlando ĉe la okcidenta bordo de la Nigra Maro kaj la norda bordo de la Egea Maro, kiu iĝis provinco de la Roma Imperio en la jaro 46. 2 Nuntempa regiono en sudorienta Eŭropo, dividita inter Bulgarujo, Grekujo kaj Turkujo.
+
+Trinidad ⁠ / ⁠ o. La plej suda insulo en Malgrandaj Antiloj kaj ĉefa insulo de Trinidado kaj Tobago. Trinidad ⁠ / ⁠ o kaj Tobag ⁠ / ⁠ o. Insulara lando en la suda parto de Malgrandaj Antiloj, ĉe la nordorienta bordo de Venezuelo. Internacia landokodaĵo: TT.
+
+turkmen ⁠ / ⁠ o 1 Ano de la ĉefgento de Turkmenujo, parolanta tjurkan lingvon (internacia lingvokodaĵo: tuk). 2 Ano de Turkmenujo. Turkmen ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en meza Azio, norde de Irano kaj Afganujo. Internacia landokodaĵo: TM. turkmen ⁠ / ⁠ a. Rilata al turkmenoj, la turkmena lingvo aŭ Turkmenujo.
+
+Tuval ⁠ / ⁠ o. Insulara lando en la okcidenta parto de Polinezio, inter Kiribato kaj Samoo. Internacia landokodaĵo: TV. tuval ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Tuvalo. tuval ⁠ / ⁠ a. Rilata al tuvalanoj, Tuvalo aŭ la aŭstronezia lingvo tie parolata (internacia lingvokodaĵo: tvl).
+
+Ugand ⁠ / ⁠ o. Lando en orienta Afriko, inter Sud‑Sudano kaj Tanzanio. Internacia landokodaĵo: UG.
+
+ujgur ⁠ / ⁠ o. Ano de gento loĝanta en meza Azio, precipe en Ĉinujo norde de Tibeto, parolanta tjurkan lingvon (internacia lingvokodaĵo: uig). ujgur ⁠ / ⁠ a. Rilata al ujguroj aŭ la ujgura lingvo.
+
+ukrain ⁠ / ⁠ o 1 Ano de la ĉefgento de Ukrainujo, parolanta orientslavan lingvon (internacia lingvokodaĵo: ukr). 2 Ano de Ukrainujo. Ukrain ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en orienta Eŭropo, norde de la Nigra Maro. Internacia landokodaĵo: UA. ukrain ⁠ / ⁠ a. Rilata al ukrainoj, la ukraina lingvo aŭ Ukrainujo.
+
+Ulanbator ⁠ / ⁠ o. La ĉefurbo de Mongolujo.
+
+Upsal ⁠ / ⁠ o. Universitata urbo en Svedujo, norde de Stokholmo.
+
+Ural ⁠ / ⁠ o 1 Montaro inter Eŭropo kaj Azio, de la Arkta Oceano ĝis Uralo 2 . 2 Rivero inter Rusujo kaj Kazaĥujo, fluanta de Uralo 1 en Kaspion. ural ⁠ / ⁠ a ⁠ / ⁠ j lingv ⁠ / ⁠ oj. Familio, al kiu apartenas ekzemple la lingvoj hungara, finna kaj estona.
+
+uzbek ⁠ / ⁠ o 1 Ano de la ĉefgento de Uzbekujo, parolanta tjurkan lingvon (internacia lingvokodaĵo: uzb). 2 Ano de Uzbekujo. Uzbek ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en meza Azio, inter Turkmenujo kaj Kazaĥujo. Internacia landokodaĵo: UZ. uzbek ⁠ / ⁠ a. Rilata al uzbekoj, la uzbeka lingvo aŭ Uzbekujo.
+
+Valenci ⁠ / ⁠ o 1 Urbo ĉe la mediteranea bordo de Hispanujo. 2 Urbo en la norda parto de Venezuelo. 3 Regiono de Hispanujo, kies ĉefurbo estas Valencio 1 . Internacia landerokodaĵo: ES‑V.
+
+valon ⁠ / ⁠ o 1 Ano de la ĉefgento de Valonujo, parolanta precipe la francan, dum malplimulto parolas apartan gaŭlolatinidan lingvon (internacia lingvokodaĵo: wln). 2 Ano de Valonujo. Valon ⁠ / ⁠ uj ⁠ / ⁠ o. Regiono de Belgujo; ties suda, franclingva parto. Internacia landerokodaĵo: BE‑WAL. valon ⁠ / ⁠ a. Rilata al valonoj, la valona lingvo aŭ Valonujo.
+
+vandal ⁠ / ⁠ o 1 Ano de ĝermana tribaro, kiu en la 5‑a jarcento rabis en Gaŭlujo, Hispanujo, norda Afriko kaj la Roma Imperio. 2 (figurasence) Persono, kiu intence aŭ senkomprene detruas aŭ difektas valoraĵojn. vandal ⁠ / ⁠ ism ⁠ / ⁠ o. Ago de vandalo 2 .
+
+Vankuver ⁠ / ⁠ o. Havenurbo ĉe la okcidenta marbordo de Kanado.
+
+Vanuatu ⁠ / ⁠ o. Insulara lando en la orienta parto de Melanezio, inter Salomonoj kaj Fiĝio. Internacia landokodaĵo: VU.
+
+Varn ⁠ / ⁠ o 1 Marborda urbo en Bulgarujo. 2 Provinco de Bulgarujo, en ties orienta parto, kies ĉefurbo estas Varno 1 . Internacia landerokodaĵo: BG‑03.
+
+Vatikan ⁠ / ⁠ o 1 Monteto ekster la antikva limo de Romo. 2 Lando sur Vatikano 1 , kies suvereno estas la papo. Internacia landokodaĵo: VA. 3 La ĉefurbo de Vatikano 2 .
+
+Veneci ⁠ / ⁠ o. Urbo en norda Italujo, ĉe Adriatiko, nord‑oriente de Bolonjo. veneci ⁠ / ⁠ an ⁠ / ⁠ o. Ano de Venecio. veneci ⁠ / ⁠ a . Rilata al venecianoj, Venecio aŭ al la vario de la itala lingvo parolata en la nordorienta parto de Italujo (internacia lingvokodaĵo: vec).
+
+Vien ⁠ / ⁠ o 1 La ĉefurbo de Aŭstrujo. 2 Aŭstra federacia lando, en kiu situas Vieno 1 . Internacia landerokodaĵo: AT‑ ⁠ 9.
+
+viking ⁠ / ⁠ o 1 Ano de skandinava grupo de maristoj, kiuj ekde la 8‑a ĝis la 11‑a jarcento vaste vojaĝis tra plejparte eŭropaj regionoj, kie ili rabis, komercis kaj ekloĝis. 2 Ano de unu el la historiaj popoloj, el kiuj originas vikingoj 1 . viking ⁠ / ⁠ a. Rilata al vikingoj: vikinga ŝipo .
+
+Vincent ⁠ / ⁠ o. Vira nomo, i.a. de pluraj sanktuloj. Sankt ⁠ / ⁠ a Vincent ⁠ / ⁠ o. Insulo en Malgrandaj Antiloj, okcidente de Barbado. Sankt ⁠ / ⁠ a Vincent ⁠ / ⁠ o kaj Grenadin ⁠ / ⁠ o ⁠ / ⁠ j. Insulara lando en Malgrandaj Antiloj, kies ĉefa insulo estas Sankta Vincento. Internacia landokodaĵo: VC.
+
+vjetnam ⁠ / ⁠ o 1 Ano de la ĉefgento de Vjetnamujo, parolanta sudazian lingvon (internacia lingvokodaĵo: vie). 2 Ano de Vjetnamujo. Vjetnam ⁠ / ⁠ uj ⁠ / ⁠ o. Lando en suda kaj orienta Hindoĉinujo. Internacia landokodaĵo: VN. vjetnam ⁠ / ⁠ a. Rilata al vjetnamoj, la vjetnama lingvo aŭ Vjetnamujo.
+
+Vogez ⁠ / ⁠ o ⁠ / ⁠ j 1 Montaro en orienta Francujo, paralela al la Nigra Arbaro trans Rejno. 2 Departemento en orienta Francujo, el kiu granda parto estas okupata de Vogezoj 1 . Internacia landerokodaĵo: FR‑ ⁠ 88.
+
+Volg ⁠ / ⁠ o. Rivero en okcidenta Rusujo, la plej longa en Eŭropo, kiu fluas tra meza Rusujo ĝis suda Rusujo, kie ĝi enfluas Kaspion.
+
+Zagreb ⁠ / ⁠ o 1 La ĉefurbo de Kroatujo. 2 Provinco de Kroatujo, en ties norda parto, kiu entenas Zagrebon 1 . Internacia landerokodaĵo: HR‑01.
+
+Zambi ⁠ / ⁠ o. Lando en suda Afriko, oriente de Angolo. Internacia landokodaĵo: ZM.
+
+Zanzibar ⁠ / ⁠ o 1 Insularo de Tanzanio, en la Hinda Oceano, ĉirkaŭ 35 kilometrojn oriente de la ĉeftero. 2 La plej granda urbo sur Zanzibaro 1 , ĉe la okcidenta bordo de ties plej granda insulo.
+
+Zeland ⁠ / ⁠ o. Provinco en sudokcidenta Nederlando, inter Sud‑ ⁠ Holando kaj Belgujo. Internacia landerokodaĵo: NL‑ ⁠ ZE. Nov‑ ⁠ Zeland ⁠ / ⁠ o. Lando en Oceanio, sudoriente de Aŭstralio. Internacia landokodaĵo: NZ.
+
+Zeŭs ⁠ / ⁠ o. Laŭ la antikva greka mitologio, la reĝo de dioj kaj homoj, kiu vivas sur Olimpo. Zimbabv ⁠ / ⁠ o. Lando en sudorienta Afriko, inter Bocvano kaj Mozambiko. Internacia landokodaĵo: ZW.
+
+Zurik ⁠ / ⁠ o 1 Urbo en la norda parto de Svislando. 2 Kantono de Svislando, kies ĉefurbo estas Zuriko 1 . Internacia landerokodaĵo: CH‑ ⁠ ZH.
+
+
+---
+
+# Finnoj kaj ukrainoj nun oficiale ekzistas
+
+**Published:** 2023-10-10
+
+**URL:** https://www.liberafolio.org/2023/10/10/finnoj-kaj-ukrainoj-nun-oficiale-ekzistas/
+
+**Categories:** kulturo
+
+La Akademio de Esperanto ĵus oficialigis 420 novajn radikojn. Kiel kutime, la nun oficiale aprobitaj vortoj estas vaste uzataj jam de multaj jaroj. Grandparte temas pri nomoj de landoj, popoloj kaj urboj. Oficialaj estas nun Finnlando, Barato kaj Moskvo. La ĉefurbo de Ukrainio aliflanke plu havas neniun oficialan nomon en Esperanto.
+
+La Oficialaj Aldonoj estas maniero de la Akademio de Esperanto normigi la vortprovizon de Esperanto. Tre malofte oni maloficialigas vortojn, sed evidente ne ĉiuj malnovaj oficialaj vortoj plu estas uzataj. Ekzemple velocipedo, oficialigita en la 1-a aldono en 1909, nun kutime estas nomata biciklo.
+
+La Universala Vortaro estas parto de la Fundamento de Esperanto, aprobita dum la unua Universala Kongreso de Esperanto en Bulonjo en 1905. Tiu vortaro enhavas, krom la 900 vortoj de la Unua Libro, pliajn 1 740 vortojn, kolektitajn de Zamenhof el verkoj aperintaj inter 1887 kaj 1894. La vortoj estas difinitaj ne en Esperanto, sed per tradukoj al kvin aliaj lingvoj.
+
+En la 1-a Oficiala Aldono, aprobita de la Akademio en 1909, krom “velocipedo” aperis ekzemple “ absurda , banko , ebria kaj imposto . En la 9-a Oficiala Aldono de 2007 aperis aidoso , radaro kaj saksofono .
+
+La 24-an de septembro la Akademio aprobis la 10-an Oficialan Aldonon , kiu ĉefe enhavas nomojn de landoj, urboj kaj popoloj aŭ etnoj – ”gentoj”, laŭ Zamenhofa lingvouzo. Nun estas oficialaj ekzemple la vorto finno , pri kiu la Akademio longe hezitis pro la duobla n, kaj Barato , kiun Zamenhof nomis Hindujo .
+
+Oficialigita estis ankaŭ la vorto ukraino , kiu laŭ la Akademio havas du signifojn: ”ano de la ĉefgento de Ukrainujo, parolanta orientslavan lingvon” kaj ”ano de Ukrainujo”. La vorto ruso aperis jam en la Fundamento, kaj tial mankas oficiala Akademia difino pri tio, ĉu same ĉiuj civitanoj de Rusio estas ”rusoj”.
+
+En siaj klarigoj pri la nova Oficiala Aldono la Akademio aliflanke atentigas, ke ”en kelkaj landoj oni nete distingas apartenon al la ĉefgento kaj landanecon. Ekzemple, nomi ajnan rusujanon ’ruso’ povas soni al tieaj landanoj kiel speco de ŝovinismo aŭ minimume nekompreno de bazaj sociaj distingoj”.
+
+La Akademio aparte mencias tiurilatan ekzemplan frazon el la Fundamenta Ekzercaro :
+
+Germanoj kaj francoj, kiuj loĝas en Rusujo, estas Rusujanoj, kvankam ili ne estas rusoj.
+
+La ĉefa tasko de la Akademio estas ”konservi kaj protekti la fundamentajn principojn” de Esperanto, kaj kutime ĝi oficialigas nur vortojn, kiuj estas stabile uzataj jam dum relative multaj jaroj. Nur nun estis oficialigita Moskvo, dum la ĉefurbo de Ukrainio plu malhavas oficialan nomon en Esperanto.
+
+Jam en Fundamenta Krestomatio aperas la formo Kievo , kiu poste dum jardekoj estis vaste uzata. Tamen post la disfalo de Sovetio la lokaj esperantistoj en Ukrainio ekuzis la formon Kijivo , pli similan al la ukraina nomo de la urbo.
+
+La direktoro de la sekcio pri la ĝenerala vortaro de la Akademio, Jesper Lykke Jacobsen, rakontas al Libera Folio ke la nomo de la ĉefurbo de Ukrainio estis tre zorge diskutita dum la laboro pri la nova Oficiala Aldono:
+
+– La formo Kievo (kun derivaĵoj) havas pli ol 200 trafojn en Tekstaro.com kaj proksimume 1 200 trafojn en mia privata kolekto de pli ol 12 000 esperantlingvaj revuoj. La unua uzo kredinde estas en la Fundamenta Krestomatio (1905) kaj de tie ĝi tuj disvastiĝis al la tiama gazetaro, kun ekzemple uzo en la novembra numero de la revuo Esperanto de la jaro 1907.
+
+– Kontraste al tio, la formo Kijivo havas proksimume 30 kaj 300 trafojn en tiuj du korpusoj, el kiuj tamen multaj ne estas plene asimilitaj (t.e. aperas la formo Kijiv sen finaĵo). La unua apero de la asimilita formo Kijivo (kun finaĵo) kredinde estas en la decembra numero de Monato de la jaro 1996.
+
+Laŭ li la statistiko donus bazon oficialigi la formon Kievo , dum la leksikografiaj argumentoj por Kijivo estas malpli solidaj.
+
+– La kialo, ke la Akademio tamen elektis ne nun oficialigi Kievon , estas evidente la terura milito okazanta en Ukrainio. Estus risko vidi oficialigon kiel iuspecan politikan elpaŝon, kaj la Akademio ne deziras fari politikon. Mi pensas, ke la demando pri Kievo tre rapide revenos sur nia tagordo post la fino de la nuna krizo. Samtempe ni evidente atente sekvos la proporcion inter la uzo de la du nomformoj.
+
+Se la politika situacio ŝanĝiĝis (kio ja okazis dum la lastaj jaroj), ĉu tio ne signifu, ke lastatempa uzo pli pezu ol historia? Kaj ĉu ne gravu la prefero de lokaj esperantistoj? Ja enestas Barato , ekzemple.
+
+– Pri tio ne eblas doni respondon nome de la sekcio, ĉar verŝajne ekzistas opinioj diversaj. En 2022 kaj 2023 okazis uzo de la formo Kievo en Esperanto (UEA), Internacia Pedagogia Revuo, Dio Benu kaj La Ondo de Esperanto . Samepoke la formo Kijivo estis uzata en La Brita Esperantisto, Internacia Pedagogia Revuo, Kajeroj el la Sudo kaj La Lampiro. Indus kompreneble analizi ankaŭ retajn uzojn kaj aliajn revuojn, kiujn mi ne havas en mia kolekto.
+
+– Laŭ pura leksikografia vidpunkto ni simple devas agnoski tiujn faktojn kaj sekvi la evoluon dum la venontaj jaroj. Sed eĉ se ekde nun estus uzata nur la formo Kijivo , la alia formo Kievo tamen estus valida historia formo kun stabila uzo dum pli ol cent jaroj.
+
+Mankas en la nova Oficiala Aldono ankaŭ la ukrainaj urboj Ĥarkivo kaj Lvivo , kiuj en PIV havas la rusecajn nomformojn Ĥarkovo kaj Lvovo .
+
+Kial la prezento de gentoj estas intermiksita kun la prezento de lingvoj?
+
+– La sekcio diskutadis dum monatoj por trovi la plej bonan prezentomanieron de gento kaj gentobaza lando. Kroatoj ofte vivas en Kroatujo (lando, kiun mi mem kutime nomas Kroatio, sed la difinotekstoj uzas nur oficialigitajn lingvoelementojn), dum Kroatujo prenis sian nomon de sia kroata ĉefgento … kiel reale difini ambaŭ sen fari cirklodifinon?
+
+– La solvo, kiun ni trovis, estas unue difini la genton per ĝia plej karakteriza trajto, nome la lingvo, kiun ĝi plej ofte aŭ tradicie parolas. Por la kroatoj temas pri sudslava lingvo kun la internacia kodaĵo hrv laŭ la normo ISO 639-3. Cetere nia laboro pri lingvoj tute ne estas finita, ĉar multaj lingvoj havas nomon, kiu ne rilatas al gento nomdona por lando. Oni nur pensu pri la jida, la svahila, la urdua kaj volapuko, ĉiuj nomformoj ankoraŭ neoficialaj.
+
+Ĉu vere Esperantujo havas propran geografion?
+
+– Nepre. Urboj kiel Bjalistoko, Montevideo kaj Raŭmo estas ĉefurboj laŭ ilia signifo en Esperantujo, kvankam oni malofte parolas pri ili en nacilingvaj gazetoj kaj televidelsendoj. La Esperanta literaturo havas skolojn skotan, iberan kaj budapeŝtan. La ”Vojaĝimpresoj” de Valdemar Langlet el la jaro 1895 metis multajn urbojn sur la mapon de la Deka Oficiala Aldono. Aliflanke ni ne sukcesis enplekti la ĉefurbon de Sudano, malgraŭ ĝiaj pli ol ses milionoj da loĝantoj, ĉar estas ankoraŭ tro da konkurenco inter la nomformoj Kartumo kaj Ĥartumo.
+
+Ĉu la duoblaj konsonantoj de la nun oficialigitaj vortoj Lillo kaj finno ne estas kontraŭfundamentaj, kiel iuj asertas?
+
+– Ne, la Fundamento jam enhavas la vortojn Ŝiller’ kaj Anna . Temas pri propra nomoj, kiel Lillo kaj finno . Oni kompreneble devas skrupule prononci la duoblajn konsonantojn, kiel en la kunmetaĵoj mallonga kaj sennuba.
+
+Iom surpriza fakto en la Oficiala Aldono estas, ke kelkaj urbonomoj estas difinitaj ankaŭ kiel nomoj de la administraj regionoj, en kiuj ili troviĝas. Ekzemple Oslo, Odeso kaj Teherano estas ne nur nomoj de urboj, sed ankaŭ de regionoj, dum Stokholmo kaj Moskvo restas nur nomoj de urboj.
+
+Ĉar ne tute klaras la principo, laŭ kiu iuj urbonomoj ricevis duan signifon en al Oficiala Aldono, Libera Folio petis Jesper Lykke Jacobsen klarigi, kiel la Akademio rezonis. Jen kion li respondis:
+
+– En la 10-a Oficiala Aldono ni multe interesiĝis pri la nomoj de geografiaj kaj administraj subdividoj de landoj, kiuj laŭ la cirkonstancoj kaj tradicioj povas nomiĝi ŝtatoj, provincoj, federaciaj landoj, dependaj teritorioj, kantonoj, regionoj, respublikoj, gubernioj ktp. Tiaj subdividoj ofte estas plurnivelaj. Ekzemple la lando Francio enhavas la regionon Francilio, kiu siavice enhavas la departementon Parizo, dividitan en 20 arondismentojn. Similaj situacioj troviĝas en multaj aliaj landoj.
+
+– Ni ĝenerale limigis nian laboron al la ”unuarangaj subdividoj” laŭ la internacia normo ISO 3166-2. Preskaŭ ĉiuj grandaj urboj, aparte la ĉefurboj, estas ankaŭ administraj unuoj, sed ili ne ĉiam estas unuarangaj subdividoj de la lando. Eĉ kiam tio estas la kazo, iafoje la regiono kun la nomo X estas, krom malgravaj detaloj, identa kun la urbo X mem. Ni do decidis precipe emfazi la dusignifecon de nomoj tiaj, ke la regiono X estas io tute alia ol la urbo X.
+
+Ŝajne la principo do rilatas al la naturo de diversaj administraj distriktoj en diversaj landoj, sed ne nepre al tio, kiujn vortojn lokanoj uzas por la koncernaj regionoj.
+
+– Ne estas aparta problemo, ke la sama vorto povas signifi kaj urbon kaj regionon. Laŭ la kunteksto oni iafoje povas kompreni, ĉu temas pri la regiono aŭ la urbo Odeso, kaj se ne estas sufiĉe klare, oni povas aldoni la vorton ”regiono” aŭ ”urbo” por eviti miskomprenon, diras Jesper Lykke Jacobsen.
+
+Laŭ li la decidoj pri la fina formo de la Oficiala Aldono ĝenerale estis ĝisfunde diskutitaj – estis interŝanĝitaj pli ol 2 700 retmesaĝoj pri la temo en la sekcio kaj plia milo kun la tuta Akademio.
+
+
+---
+
+# Pinta verko pri misteroj de planlingvoj
+
+**Published:** 2023-10-17
+
+**URL:** https://www.liberafolio.org/2023/10/17/pinta-verko-pri-misteroj-de-planlingvoj/
+
+**Categories:** kulturo
+
+Antaŭ du jaroj la plej prestiĝa premio por germanlingvaj verkistoj estis aljuĝita al Clemens J. Setz, konata interalie pro tradukoj de William Auld al la germana. Nun en Esperanto aperis lia grava verko pri planlingvoj, ĉefe pri Esperanto. Li en ĝi verkas ne nur pri historiaj faktoj kaj biografioj, sed ankaŭ pri siaj konversacioj kun konataj esperantistoj. Pri la libro rakontas la tradukinto Detlef Karthaus.
+
+Clemens Setz: La abeloj kaj la nevidebla . Mondial 2023 . ISBN 9781595694577. 370 paĝoj
+
+Tiu ĉi libro legeblas aŭ de komenco ĝis fino, aŭ oni povas komenci per iu ajn ĉapitro, kiu ŝajnas plej interesa. Ĉi tiu verko memorigis min pri la libro In the Land of Invented Languages de la lingvisto Arika Okrent.
+
+Ŝi lernis Esperanton kaj la klingonan kaj ĉeestis plurajn kongresojn por interkonatiĝi kun ties adeptoj. En Abeloj , Setz intervjuis konatajn esperantistojn kiel Jorge Camacho, Klára Ertl kaj Spomenka Štimec, inter aliaj.
+
+La diverseco de temoj estas impona. La ĉapitro pri Charles Bliss, la inventinto de Bliss Symbolics, povus esti verko en si mem. La Blisa Skribo estas pazigrafio – laŭ PIV ”sistemo de universala skribo, kies signoj esprimas ne vortojn, sed rekte ideojn”.
+
+La detaloj de la vivo de Bliss frapas onin kiel horora aventur-romano. Estante judo en Aŭstrio, li troviĝis en koncentrejo. Lia loĝejestrino Claire (kiu poste iĝis lia edzino) sukcese marĉandis kun la aŭtoritatoj por lia liberigo sub la kondiĉo ke li forlasu la landon. Li faris sian vojon tra Eŭropo ĝis li atingis Ĉinion. Tie, lernante kelkajn ĉinajn skribsignojn, li komencis evoluigi la ideon de sia Blisa skribo.
+
+La libro priskribas liajn malfacilaĵojn kaj malsukcesojn ĝis finfine li alvenis en Kanadon. Tie lia invento estis uzata en lernejo por handikapuloj kiuj ne kapablis komuniki voĉe.
+
+Tio ne estas la fino de la rakonto; kontraŭe ĝi estas la komenco de kvereloj kun la instruistoj, ĉar Bliss volis havi kompletan kontrolon pri la evoluo de la lingvo.
+
+Unu temo de la libro estas la distingo inter du specoj de kreitaj lingvoj, kie en unu tipo la inventinto provas konservi plenan kontrolon (Volapuko) kaj la alia, kie la inventinto permesas al la uzantoj determini la estontan evoluon (Esperanto).
+
+En la ĉapitro La arto kabei temas ne nur pri Esperantistoj, sed menciiĝas ankaŭ kelkaj sukcesaj naciaj verkistoj, kiuj subite ĉesis verki. Mi surpriziĝis pri tio kaj pensas ke eble Kabe ne estis la strangulo, kiun la esperantistoj igas lin aperi.
+
+Elisabeth Mann Borgese, la plej juna filino de Thomas Mann instruis al sia hundo uzi tajpilon, kaj la hundo verkis tiel nomatan poeziaĵon, kiu aperis en kanada literatura gazeto. Mi havis miajn dubojn pri tiuj paĝoj kiam mi tradukis ilin, sed lastatempe mi modifis miajn opiniojn.
+
+Antaŭnelonge mi vidis filmeton en YouTube, kie hundoj ”parolis” uzante grandajn programeblajn butonojn. Ĉiu butono respondas al unu aŭ du vortoj. Se oni serĉas ”dog buttons” en YouTube, oni trovas kelkajn filmetojn kaj ankaŭ vendistajn ofertojn de tiuj butonoj. Ŝajnas ke la ideo de tajpanta hundo bezonis nur teknologian progreson.
+
+La tradukado de ĉiu libro havas siajn proprajn defiojn. Ankaŭ la proceduro uzata povas ŝanĝiĝi. En la pasinteco por trovi tradukindan libron mi pensis pri libro jam konata al mi. Mi relegis ĝin por serĉi malfacilaĵojn. Poste mi serĉis tradukon en alia lingvo.
+
+Por germana romano mi legas ankaŭ la anglan tradukon kaj aldone aŭ la francan aŭ la hispanan. Per la kvalito de ĉi tiuj tradukoj mi decidas ĉu mi kapablas entrepreni tiun taskon.
+
+La situacio kun Abeloj estis tute alia. Abeloj ankoraŭ ne estis tradukita en aliajn lingvojn. La eldonejo petis min traduki la libron kaj mi konsentis ne konante kaj ne leginte ĝin. Mi decidis ke tio estas farebla, ĉar mi jam tradukis eseon de Setz pri William Auld, kiu aperis en Beletra Almanako N-ro 33 en 2018.
+
+Kelkfoje fariĝis evidente, ke la aŭtoro verkis por nacia legantaro. Li citis germanan poeziaĵon sen indiki la titolon kaj la aŭtoron. Mi tuj supozis ke tiu devas esti parto de la ĝenerala klereco, kiun germanlingvaj junuloj devas parkerigi en la lernejo. Tial mi trovis la mankantan informon en la reto. Tio estus koŝmaro kiam mi studis la tradukarton antaŭ 50 jaroj sen komputiloj kaj serĉrobotoj.
+
+Aliloke la aŭtoro mencias Esperantan rakonton tradukitan el la ĉina sen mencii la ĉinan titolon. Tio certe interesus ĉinan leganton. Kun tre baza kono de la ĉina kaj iom da retaj akrobataĵoj mi trovis mencion de la rakonto en malnova numero de El Popola Ĉinio .
+
+Kiam la aŭtoro citis la romanon Hodler en Mostar de Spomenka Štimec, li uzis sian propran germanan tradukon. Mi bezonis la originalon por ne retraduki verkon de la famkonata verkistino. Mi do faris peton en Facebook kaj multaj amikoj helpis disvastigi mian peton kaj fine Sten Johansson trovis ekzempleron de la romano en sia libraro.
+
+Kiam la aŭtoro citas anglalingvajn verkistojn, la citaĵoj plej ofte restas en la angla sen germana traduko. Tio estis la kutimo en eseoj dum miaj universitataj jaroj, sed por traduko en la internacian lingvon kaj por ĝenerala legantaro mi ne havis tiun avantaĝon uzi nur la anglan sen krei ribelon inter la esperantistaro.
+
+Mi scivolas kion pensas la germanlingva leganto kiu ne scipovas la anglan kaj vidas tutan alineon en tiu lingvo. Feliĉe la legantoj de la Esperanta traduko ne havos tiun problemon.
+
+Tro ofte aperis anglalingva fivorto kiu perpleksigis la tradukanton. Se germanlingvano uzas anglan fivorton, ĉu li volas ŝoki aŭ nur montri sin laŭmoda; ĉu li scias en kiu socia tavolo tiu vorto estas uzata en anglalingva lando?
+
+La tradukisto devas esti singarda kontraŭ vortoj pruntitaj el aliaj lingvoj. Ĉu ili havas la saman signifon kiel en la originala lingvo? Ĉu ili estas uzataj en la samaj cirkonstancoj? Dum lernado de fremda lingvo oni facile kaptas vorton sen scii al kiu lingva tavolo ĝi apartenas.
+
+La angla vorto kiu plej ĝenis min estas samsignifa kun sekskuniĝo. Ĝi estas konata de ĉiuj sed, almenaŭ en mia generacio, uzata nur de la malelito, de la kanajlaro, de krimuloj kaj de nematuraj infanoj en la lerneja korto. Se iu alia uzas ĝin, tiu tuj aldonas ”Pardon my French” ĉar la nedireblan oni rajtas, laŭ tradicio, diri france.
+
+La tabuo kontraŭ tiu vorto estas vaste disvastigita. Se iu gravulo perdinte sian sinregon uzas tiun vorton la amaskomunikiloj raportas: ”Li uzis vorton de kvar literoj”. Se en televida intervjuo la gasto uzas tiun vorton, oni aŭdas elektronikan pepon por superbrui la vorton.
+
+Nu, kion fari? Mi unue pensis ke mi uzus esprimon kiun Zamenhof aprobus, eble “damne” aŭ “diable”. Sed mi ne estas tia, kia Thomas Bowdler, la angla editoro de familia eldono de Ŝekspiro, kiu forigis ĉiujn maldelikatajn esprimojn, tiel ke la teatraĵo povas esti legata en familia rondo.
+
+Mi ne memoras kio obsedis min traserĉi germanan vortaron por vidi ĉu tiu ofenda vorto oficiale ekzistas en la germana. Ho ve! Ho fek! Ho fuck! Jen la vorto en la respektata Duden sed sub la kapvorto ”F-Wort”. Do mi kapitulacis kaj decidis trakti ĝin kiel internacian esprimon.
+
+Detlef Karthaus
+
+Pli pri la temo:
+
+Clemens J. Setz: ”Aparteni al kulturo sen esti posedata”
+
+Tradukinto de Auld ricevis pintan premion
+
+Majstro de la malnova mondolingvo (Prelego de Clemens J. Setz pri William Auld)
+
+
+---
+
+# Fragmento el la taglibro de Henri Ellenberger
+
+**Published:** 2023-10-24
+
+**URL:** https://www.liberafolio.org/2023/10/24/fragmento-el-la-taglibro-de-henri-ellenberger/
+
+**Categories:** historio
+
+Henri Ellenberger. Persona taglibro. Kajero 1 (oktobro 1940 – januaro 1943), paĝoj 83-87.
+
+Noto: la teksto sube estas redaktita, sed ne plene. Mi korektis evidentajn erarojn kaj redaktis lokojn, kiuj ne estus kompreneblaj sen redaktado, sed mi lasis malglataĵojn diversajn, por ne tro ŝanĝi la stilon kaj la enhavon; memoru, ke temas pri taglibro, kiun Henri Ellenberger verkis haste, senredakte kaj en malfacilaj cirkonstancoj. Mi ankaŭ aldonis kelkajn komentojn en kvadrataj krampoj. – Ĵenja Amis
+
+Ĝeneve, Vendredo, 2 majo (matene) [1941]
+
+Memorigo:
+
+Lunde 28 [de aprilo 1941]: alveno de infanoj k de Emilie en St. Florent, k envagonariĝo nokte en Montluçon
+
+Marde 29 [de aprilo 1941]: tago en Lyon; vizito al Muzeo
+
+Ĵaŭde 1 [de aprilo 1941]: fruege, eliro el Lyon; alveno al Ĝenevo
+
+(vespere). Lunde, 28 [de aprilo 1941].
+
+Matene, mi preparis nian vojaĝon, metante librojn, paperojn k kelkajn aliajn pakaĵojn en kesto, kiun mia amiko, s-ro Rosselet, havigis por mi (posttagmeze, lia bofilo, s-ro Sterck, kies profesio estas lignaĵisto, ĝin fermis k najlis.). Mi manĝis ĉe s-ro Rosselet. Posttagmeze, mi atendis, unue, la geinfanojn; ĉirkaŭ 2:30, paŝetante en la strato, mi rekonis la aŭtomobilon de Mirindulo, k Miŝel k Elen [Miŝel k Elen estas la nomoj de la infanoj] ridentantaj k signalantaj. Ni kunpromenis dum pli ol unu horo (aŭ unu k duonhoro) k fine, dua aŭtomobilo aperis, enhavanta Emilie-n [estas la edzino] k du virojn; Emilie al mi rakontis, ke ŝi, ĉe la limo, akurate ekzamenita estis je ŝia korpo k ŝiaj vestoj, el la piedoj ĝis la kapo. Ŝi suferis malbonan momenton k ŝiaj kunvojaĝantoj eĉ pli malbonan!
+
+Ni iris ĉe s-ro Rosselet k manĝis ĉe li. Lia bofilo transportis mian pezan keston ĝis la stacidomo.
+
+Nia vagonaro forlasis St. Florent ĉirkaŭ 7a horo, kun ni feliĉaj k dankemaj.
+
+Nokte, ni alvenis en Montluçon, kie ni devis atendi dum kelkaj horoj. Ni eniris en la atendejo, k sidiĝis; eble, duon aŭ tri-kvaronhoroj poste, iu fraŭlo pasis k sciigis, ke ekzistas “Centre d’accueil” [“Akceptejo”], proksime al la stacidomo. Ni tien iris kun tri aŭ kvar aliaj familioj; estis amuze vidi tiajn bonfarulojn, plenajn de bonvolo, sed malbone kutimemaj k iom malspertaj. Ĉirkaŭ la 4-a matene ni reenvagonariĝis.
+
+Marde, 29 [de aprilo 1941]
+
+Ni alvenis al Lyon. Ni matenmanĝis en kafejo (tre kara estis). Poste, ni serĉis k trovis la domon, kie loĝas Chweitzer (sed ne ĉeestis tiumomente). Mi serĉis hotelon, kie mi loĝus, k malfacile trovis; tiam Chweitzer reveninta estis. Ĝojege ni lin retrovis, ni longtempe kunparolis. Ni kunmanĝis en bonega malgranda restoracio. Posttagmeze ni iris ĉe la svisa konsulejo, kie malbonan sciigon ni ricevis: iu oficisto al mi certigis, ke mia pasporto ne akceptata estos de la Francoj ĉe la limo, ĉar nova dekreto malpermesis al ĉiuj viroj, de 17 ĝis 40 jaroj, foriri el Francujo, k ke li konis junulojn, kiuj, ĉe la limo, estis resenditaj internen.
+
+Mi, el tio, ege maltrankviliĝis, k tuj iris ĉe la “Service social d’aide aux émigrants” [helpcentro por elmigrantoj], Cours Morand, kie mi povis ricevi ĝustajn sciigojn. Tiam mi iris ĉe la administra oficejo, kie mi iris al la oficejo de pasportoj. Iu juna oficisto (kiu, ŝajne, tre kapabla estis) al mi diris, ke mia pasporto ne estus rifuzota, ĉar ĝi estas subskribita la 21-an de aprilo, dum la leĝo datiĝas de la 17-a de aprilo. Li miris, ke mi ricevis la permeson, malgraŭ tiu leĝo (vere, estas precipe ĉar la oficistino en Poitiers tre neinformita estis!); k li iom trankviligis min. Ni kunparolis kun Chweitzer, k ni decidis ne daŭrigi nian restadon en Lyon, timante ke la Francoj aliajn dekretojn ordonus, eĉ pli severajn. Ni vespermanĝis kun tiu bonega amiko en nia hotelo (Hotel Olympia, rue des Remparts d’Ainay).
+
+Merkrede, 30 [de aprilo].
+
+Ni pasis la tagon en Lyon, preskaŭ tute kun Chweizer. Matene ni longtempe kunparolis kun ni iris ĝis “Palais de Justice” [Palaco de Justeco]. Mi serĉis la adreson de mia malgranda kuzino Isabelle Christol, kiun malfeliĉe mi perdis; mi ĝis serĉis ĉe la polico; la policanoj diris, ke mi ĝin petu ĉe la policestro; mi vidis la la vic-ĉefon de la “Sûreté Nationale” [Nacia Sekureco], kiu amable estis kun mi, sed ne povis, laŭ lia diro, ĝin eltrovi. (Dum mia ĉeesto en lia oficejo, mi rimarkis sur la planko pakon el numeroj de malpermesitaj komunismaj ĵurnaloj, ekz., “L’avantguarde”). Ni tiam iris en Fourvière; suprenveturis per la “funikula vagonaro”; ni vizitis la bazilikon, kiu kurioza estas, de stilo neobaroka, troplena je ornamaĵoj, precipe simbolaj (ekz., simboloj de anĝeloj aŭ evangeliistoj); ni tamen tre admiris la mozaikojn. Ni ankaŭ admiris la grandan vidaĵon videblan el la larĝa teraso, ekster la baziliko. Tiam ni resubenvenis per la funikula vagonaro, k iris manĝi en la sama restoracio, kiel antaŭtage. Posttagmeze, ni unue vizitis la muzeon de krimologio k scienca polico (Muzeo del D-ro Locard), en “Palais de Justice”. Tiu muzeo nin pasiege interesis, trolonge estus skribi tutajn detalojn interesajn de tiu vizito. Reirante, iomege pluvis. Ni denove serioze kunparolis pri miaj k liaj aferoj, k vespermanĝis en nia hotelo. Ni malfrue kuŝiĝis.
+
+Ĵaŭde, 1-a [de majo 1941].
+
+Nia lasta tago en Francujo. Ni fruege vekiĝis k leviĝis, tiam enviciĝis je kvina k duono. Vojaĝo longa, malfacila, teda, kun koroj maltrankvilaj. Ni ŝanĝis kelkfoje: unue en Ambérien, tiam (el vagono ĝis alia) en Enloz, poste en Aix-les-Bains, plurfoje en Annemasse. En Annemasse, lasta k malfacile eltenebla maltrankvilaĵo: ekzameno de niaj pasportoj; sed, feliĉe, senhezite akceptitaj estis. Kompare, la ekzameno de nia mono k de niaj pakaĵoj estis nenio! Fine, la vagonaro forlasis Annemasse, k antaŭ ke ni povus rimarki la limon, ni nin trovis en Genève. El tiu momento, ni vivis veran fabelon de feinoj; sed ĉar malfrue estas, mi forĵetas la plumingon.
+
+Legu pli: Henri Ellenberger kronikis sian vivon Esperante
+
+
+---
+
+# Henri Ellenberger kronikis sian vivon Esperante
+
+**Published:** 2023-10-24
+
+**URL:** https://www.liberafolio.org/2023/10/24/henri-ellenberger-kronikis-sian-vivon-en-esperanto/
+
+**Categories:** historio
+
+La mondfama historiisto de medicino kaj krimologo Henri Ellenberger dum jaroj verkis taglibrojn grandparte en Esperanto. Entute la taglibroj ampleksas 41 volumojn, 12 000 paĝojn. Li naskiĝis en Afriko kiel filo de misiistoj. Dum la dua mondmilito fuĝis el okupita Francio al Svisio, kaj poste migris al Ameriko. La Montreala esperantisto Ĵenja Amis legis la unuan volumon, kiu temas pri liaj eskapo kaj vivo dum la dua mondmilito.
+
+Estas septembro 2023 kaj ni troviĝas en Montrealo, en la salono de Irène Ellenberger, ĉirkaŭitaj de pentraĵoj en kvanto inda por eta arta galerio (Irène estas specialisto pri arto). Nin akompanas kelkaj montrealaj esperantistoj, Irène, kaj vizitanto el Eŭropo, d-ro Emmanuel Delille: historiisto de medicino, sed ofta en Kanado, ĉar li estas gast-preleganto en la Universitato de Saskaĉevano.
+
+La celo de nia kuniĝo estas la esploroj pri la patro de Irène – Henri Ellenberger, svis-kanada psikiatro, sciencisto, etnografo, krimologo, verkisto, por nomi nur kelkajn el la “ĉapeloj” de la multfaceta figuro de Henri Ellenberger (1905–1993). Emmanuel estas la sola neesperantisto inter ni, do ni parolas france (afero iom nekutima por ni, esperantistoj).
+
+Krom la biografo de Henri Ellenberger (d-rino Andrée Yanacopoulo), kaj lia filino Irène, Emmanuel Delille estas tiu, kiu plej konas tiun ĉi fascinan homon. Ni revenos al la salono de Irène je la fino, sed nun mi rakontu al vi ĉion laŭvice, ĉar mi povas legi la demandon, kiu brulas en viaj kapoj: kiel do ĉio ĉi rilatas al Esperanto?
+
+Ni konatiĝis kun Irène Ellenberger en novembro 2022, kiam ŝi venis al unu el niaj monataj Montrealaj Esperanto-kunvenoj. Ŝi estis komencanto tiam, kaj ŝi nun jam tute flue legas kaj bone komprenas Esperanton. Irène alportis al la kunveno taglibron de sia patro, d-ro Henri Ellenberger, de la jaroj 1940 ĝis 1943. Estas malgranda nigra kajero, kun densaj, senmarĝenaj skribaĵoj, preskaŭ tute nete, verkita preskaŭ tute en Esperanto!
+
+Ni estis fascinitaj – kia valorega historia dokumento, el Eŭropo de la tempo de la Dua Mondmilito! Kompreneble, ni tuj guglis “Henri Ellenberger” kaj eksciis, ke temas pri grandaj pensulo de la 20-a jarcento, pri kiu temas Vikipedia artikolo en dek unu lingvoj (intertempe aldoniĝis Esperanto ). Interalie, li verkis unu el fundamentaj libroj pri la historio de psikiatrio. Kelkaj el liaj libroj aperis eĉ postmorte – la lasta tute freŝe, en 2021, dank’ al la laboro de nia jam konata d-ro Delille.
+
+Kiam Irène diris, ke estas 40 pliaj libroj, mi pensis, ke eble mi misaŭdis, sed ne! Ekzistas entute kvardek unu libroj, ĉiu el ili kun ĉ. 270–300 paĝoj (do, ĉ. 12 mil paĝoj entute). La taglibroj kovras la tempon de 1940 ĝis la 1970-aj jaroj. Do, temas ne nur pri valorega historia dokumento el la tempo de la Dua Mondmilito, sed pri vere enorma korpuso. Por ni, esperantistoj, ĝi havas apartan valoron: ja temas pri gravega dokumento de tutmonda historia signifo, verkita en Esperanto, de internacie rekonita specialisto.
+
+Kaj kiel okazis, ke la taglibroj vidas la lumon nur nun, tridek jarojn post la morto de la verkinto? Unue, ĉar, laŭ la instrukcio de Henri Ellenberger, la taglibroj estis sub embargo, kiu daŭris dek jarojn ekde lia morto aŭ la morto de lia edzino, kiu ajn okazos pli malfrue. Do, la intimaj ĵurnaloj ne estis deponitaj kaj katalogitaj kun la ceteraj dokumentoj, kiuj iris al arkivoj.
+
+Liaj arkivindaj postlasaĵoj, fakte, troviĝas en du lokoj: la personaj dokumentoj (ekzemple, persona korespondado) estas ĉe la arkivo de la Evangelia Misiista Societo en Parizo, kune kun la ceteraj dokumentoj de lia familio (ĉar li venas el konata svis-franca misiista familio de intelektuloj – mi parolos pri lia familio poste), dum liaj fakaj arkivoj (artikoloj, fakaj taglibroj, faka korespondado, ktp.) troviĝas en la Centro de Dokumentado Henri Ellenberger ĉe la Hospitalo Ste-Anne en Parizo (lia alma mater ) – france, Centre de documentation Henri Ellenberger, Bibliothèque médicale Henri Ey, CHS Sainte-Anne.
+
+Do, tiuj ĉi intimaj taglibroj en Esperanto “dormis” en la persona sekurstokejo de unu el liaj antaŭaj kolegoj (d-ro Élisabeth Roudinesco – historiisto, psikanalizisto kaj kunkreinto de la Centro de Esplorado kaj Dokumentado Henri Ellenberger).
+
+Kaj poste… bone, poste la taglibroj estis forgesitaj, ĝuste pro tio, ke ili ne estis parto de la oficiala arkivo. Estis, fakte, Irène mem, kiu rememoris pri ili. Kiam antaŭ 3–4 jaroj ŝi vizitis la arkivan centron, ŝi konstatis, ke la taglibroj ne estas tie kun la ceteraj arkivaĵoj. Ŝi do prenis kelkajn el tiuj kajeroj el la sekurstokejo kaj reportis ilin al Montrealo.
+
+Kune kun Irène Ellenberger fine de 2022 ni skanis la unuan kajeron de la taglibroj (oktobro 1940 – januaro 1943). Mi legis la skanaĵon kaj resumis la taglibron (en la angla lingvo) por la familio en decembro 2022, ĉar Irène estas la sola, kiu lernis Esperanton por povi legi la kajerojn de sia patro.
+
+Min ege ĉagrenas la forpaso de la aĝa frato de Irène, Michel Ellenberger, en 2023 (cetere, ofte menciita en la taglibroj), sed mi tamen ĝojas, ke li povis legi mian resumon antaŭe. Intertempe Irène kaj ŝia nepino skanis plurajn aliajn taglibrojn. Irène jam legis kelkajn aliajn, kaj eĉ aldonis al la pdf-oj diversajn notojn: ekzemple, por deĉifri la personajn nomojn, mallongigojn, aŭ por doni kuntekston al la skribaĵoj: ja ŝi estas la sola persono, kiu povas tion fari.
+
+Ni, montrealanoj, krome formis etan komitaton por helpi direkti la laborojn pri la taglibroj. Kelkaj el ni havas ligojn al universitatoj en Kanado kaj Eŭropo,
+
+Kiu estas Henri Ellenberger, kaj kial li gravas por la nuntempaj esperantistoj? Se vi guglos “Henri Ellenberger”, vi trovos ĉ. 30 mil trafojn. Unu el la fundamentaj verkoj de la historio de psikiatrio estas lia plej konata verko, la 932-paĝa, enciklopedieca The Discovery of the Unconscious: The History and Evolution of Dynamic Psychiatry (1970), citita en ĉirkaŭ 8 mil akademiaj verkoj nur en Google Scholar.
+
+Henri Ellenberger verkis ne nur librojn kaj sennombrajn fakajn artikolojn, sed ankaŭ infanlibron (ilustritan de Irène mem), libron pri etnografio de la regiono Poitou en Francio kaj eĉ teatraĵon (vi povas legi plene en la biografio de Ellenberger fare de Yanacopoulo). Li instruis en universitatoj en Eŭropo, Usono kaj Kanado, kaj prelegis internacie.
+
+Li estas unu el la granduloj en la fako de kompara psikiatrio, kiu persone konis kelkajn “gigantojn” de la fako. Ekzemple, li multe korespondis kaj persone renkontis Karl Jung, dum li loĝis kun la familio en Svislando. Pri tio Irène havas interesan infanaĝan memoron.
+
+Iam postmilite Jung vizitis ilin kaj alportis “enorman skatolon da ĉokolado”. Irène diras: “Ĝi verŝajne estis tute normalgranda, sed en mia memoro estis la plej granda skatolo da ĉokolado, kiun mi vidis ĝis tiam, kaj la ĉokolado estis la plej bongusta afero iam ajn!”
+
+Iuj specialistoj konsideras Henri Ellenberger “patro de historiografio de psikiatrio” (laŭ la anglalingva Vikipedio). Li estas kunkreis la fakojn etnopsikiatrio kaj transkultura psikiatrio: disciplino sur la kruciĝo de psikiatrio, etnografio kaj sociaj sciencoj.
+
+Krome, li multege kontribuis al medicina enciklopedio (EMC: Encyclopédie Médico-Chirurgicale) kaj estis ankaŭ praktikanta kuracisto – psikiatro kaj specialisto pri nervaj malsanoj – kaj (pli mafrue) krimologo, kun interesoj en mil aliaj kampoj (sociaj sciencoj, studado de popolaj kredoj, popolaj kuracmanieroj, kredoj je sorĉado kaj popola magio, kaj ankaŭ teologio).
+
+En la 1970-aj jaroj lin bedaŭrinde trafis la Parkinson-malsano, tiel ke li devis ĉesi labori pri kelkaj aliaj libroj kaj ankaŭ pri la intima ĵurnalo.
+
+Sed liaj ideoj estis tiom revoluciaj kaj restas tiom aktualaj, ke eĉ tre lastatempe aperis kelkaj liaj libroj posteume, redaktitaj de Emmanuel Delille ( Etno-pshychiatrie – franclingve, ĉe ENS Éditions, 2017, kaj ĝia traduko en la anglan, Ethnopsychiatry , ĉe McGill-Queen’s University Press, 2020; Une histoire comparée de la psychiatrie , 2021, Éditions Rue d’Ulm).
+
+Henri Ellenberger brile karieris universitate kaj profesie, sed la vivo de la homo Henri Ellenberger ne facilis. Problemoj de sano, zorgoj financaj, longaj periodoj de apartiĝo de sia familio, la infero de la Dua Mondmilito kaj la bonŝanco eskapi kun la familio al Svislando. Poste, malfacilo enmigri en Usonon kaj, kompreneble, la neceso konstrui la vivon en la Nova Mondo: unue en Usono, poste en Kanado…
+
+La plej bona fonto pri la vivo de Henri Ellenberger estas la 330+-paĝa franclingva libro Une Vie (“Vivo”) de Andrée Yanacopoulo (Liber, 2009), sed ankaŭ Vikipediaj artikoloj angle kaj france donas sufiĉe bonan bazon. Ĉi tie mi nur rapide resumos lian vivon.
+
+Henri Ellenberger naskiĝis en Rodezio (nuntempe Zimbabvo) en 1905, kaj mortis en 1993 en Kanado, do, antaŭ 30 jaroj. Li venas de tre konata familio de svisfrancaj protestantaj misiistoj senditaj al la sudo de Afriko. En la retejo de la Brita Muzeo vi povas legi kelkajn informojn pri la avo de Henri, pastro David-Frédéric Ellenberger, kiu pasigis pli ol 45 jarojn kolektante buŝajn tradiciojn de la popolo soto kaj kies laboro daŭre estas la bazo por la etna historio de tiu popolo en la nuntempa Lesoto.
+
+La patro de Henri, same misiisto, verkis libron pri la lastaj boŝmanoj en Afriko ( La fin tragique des bushmen: les derniers hommes vivants de l’âge de la pierre , 1953) kaj tradukis el la lingvo soto la epopean romanon Chaka de Thomas Mofolo por la eldonejo Gallimard (tiun verkon oni konsideras unu el dekduo de la plej gravaj literaturaj verkoj de la 20-a jarcento el Afriko).
+
+Unu frato de Henri estis konata geologo, kaj eĉ mineralo portas lian nomon (Ellenbergerite); du aliaj fratoj estis paleontologo kaj pastro. Ankaŭ alia avo de Henri, Frédéric Christol, estis konata etnografo kaj ankaŭ pentristo – fakte, pluraj el la pentraĵoj en la salono de Irène en Montrealo estis de ŝia avo, pastro Christol.
+
+Sed sufiĉas pri la fama familio, ni revenu al nia Henri. Li pasigis sian infanaĝon en Afriko (kaj eĉ parolis la sotan lingvon infanaĝe). En 1914, 9-jara, li estis sendita al Francio por studi gimnazie kaj universitate, tuj antaŭ ol la mondon surombris la Unua Mondmilito.
+
+Li havis interesojn pri pluraj aferoj, sed fine li elektis medicinon kaj doktoriĝis en 1934, laborante ĉe la Hospitalo Sainte-Anne (kie nun troviĝas liaj fakaj arkivoj). Kelkajn jarojn antaŭ sia doktoriĝo, li geedziĝis kun Émilie (Esther) von Bachst, rusa elmigrinto probable de juda origino, konvertiĝinta al ortodoksa kristanismo. Émilie kaj Henri havis kvar infanojn.
+
+Post la studoj, li akiris medicinan praktikon kiel specialisto de nervaj malsanoj, en Okcidenta Francio – tio ekzakte estas la loko, kie li loĝis dum li verkis la unuan taglibron.
+
+Kio estas en la taglibroj? Mi plene legis nur la unuan kajeron – kaj mi trovis ĝin absolute interesega, informplena kaj kortuŝa. Mi legis la biografion de Henri Ellenberger kaj kelkajn aliajn materialojn pri li, kaj mi trovas, ke ĝuste tiuj taglibroj alportas valoregan aldonaĵon al la jam ekzistantaj materialoj – ili malkovras lin kiel homon: homon komplikan, homon pasian kaj emocian, kun multaj duboj kaj internaj konfliktoj.
+
+Mi trovis, ke ofte la persono, kiun mi malkovris legante la unuan intiman taglibron, ne vere respondis al la imago, kiun mi havis pri li post niaj interparoloj kun Irène, kaj ankaŭ leginte lian biografion, kie aperas intervjuoj de homoj, kiuj konis lin persone…
+
+Ellenberger ofte verkis kun superlativoj – kvazaŭ en sia intima vivo li ne konis moderecon nek rezerviĝemon – dum ekstere, eĉ al sia propra familio, ŝajne, li aspektis kiel homo tre rezervita, modera, ne emocia… Mi pensas, ke la malkovro de tiuj taglibroj vere helpos vidi Henri Ellenberger ne nur kiel scienciston, historiiston, etnografon, verkiston, enciklopediiston kaj akademiulon… sed ankaŭ kiel homon, tutsimple, senartifike kaj sen maskoj.
+
+Li komencis verki la unuan taglibron en plej malfacilaj cirkonstancoj – estas oktobro 1940, kaj li estas kun la familio en Poitiers, sub la german-nazia okupado. Kiam Francio malvenkis la unuan parton de la milito, la registaro de Vichy suspendis demokration, la respublikon kaj multajn rajtojn. Interalie, ĝi malpermesis praktiki medicinon al eksterlandanoj (kaj al tiu kategorio falis personoj kun ne-denaska franca ŝtataneco, plus la homoj, kies gepatroj ne estis francoj…)
+
+La ĉefa celo estis la judoj, sed li same estis viktimo de tiu leĝo. La Vichy-registaro dekrete nuligis la ŝtatanecojn ricevitajn post 1927: kaj tia estis la kazo ankaŭ de Henri: la familio Ellenberger ricevis francan ŝtatanecon nur en 1939.
+
+Ĉio tio signifis, ke li ne povus praktiki la medicinon kaj lia familio restus sen vivrimedoj. Fakte, ĝuste tial li komencis la unuan taglibron: listigante ĉion, kion li povus fari, se li ne plu povus praktiki (en la listo estas, interalie, verkado, filozofio, lingvoj, ktp.). Eble, por Henri la verkado de tiu persona taglibro estis maniero ordigi la pensojn kaj eldiri tion, kion li ne povus eldiri alimaniere, en maniero diskreta kaj sekreta.
+
+Henri laboras kiel kuracisto en Poitiers, sed lia enspezo ne estas sufiĉa por vivteni la familion. Mankas pagantaj klientoj, dum la ŝuldoj kreskegas – kaj krome, en ajna momento li povas perdi eĉ sian magran kuracistan enspezon pro la frenezaj ksenofobiaj leĝoj…
+
+Li tamen faras multe da laboro, interalie, kun la hispanaj rifuĝintoj de la Hispana Interna Milito (li parolas ankaŭ la hispanan lingvon): apud Poitiers troviĝas rifuĝejo por tiuj hispanoj. Li parolas kun bedaŭro pri la fermo de tiu loko, la amasaj arestoj de la rifuĝintoj kaj iliaj “kaŝ-ludoj” kun la polico. Kelkaj liaj intimaj amikoj estas, fakte, rifuĝintoj de tiu milito.
+
+Liaj plej granda deziro kaj vivneceso estas elmigri el Francio nazie okupita. Li provas elmigri al Meksiko kaj Usono, kaj en la taglibro li tre detale priskribas ĉiujn strebojn kaj la burokratiajn murojn, kiujn li trafas fojon post fojo. Li donas detalojn de sia ĉiutaga malfacilega vivo en Francio sub nazioj, ĝis la plej etaj detaloj: pri la kostoj de aferoj, la (mis)funkciadoj de la trajnoj kaj rakontoj el la fronto.
+
+Min tre kortuŝis aparte unu tia rakonto. Dum iu nokto li veturis per trajno kun eksa militkaptito, kiu rakontis pri la teruraĵoj fare de la germanoj, spertitaj ne nur en la batalkampo, sed ankaŭ en la rilatoj de la germanaj soldatoj kun la militkaptitoj.
+
+Ekzemple, kiam german-nazia soldato pafis francan oficiron, ĉar tiu rifuzis doni al li siajn tranĉilon kaj forkon. Kaj pri la terura traktado de la francaj militkaptitoj (oni donis duonlitron da frostigitaj terpomoj kaj iom da pano por 5 viroj, ĉiuj perdis 20-25 kilogramojn).
+
+Min iom amuzis la anekdoto, kiam li parolas pri “germana soldato”, kiu aĉetis en franca butiko britan tabakon (ŝajne, li estis ne tre bone kaŝita brita spiono). Kaj pri la usonaj kaj britaj aviadiloj, kiuj skribis en la aero la vortojn “OK” aŭ “courage” (kuraĝo). Li foje parolas pri aferoj eble bagatelaj laŭ la granda skalo, sed kiuj estas emociantaj por li mem, en la momento.
+
+Ekzemple, pri hispanaj infanetoj, kiuj faras mokkanton kaj sekvas lin kantante: “El medico del refugio, -fugio, -fugio” – tio ofendas kaj demoralizas lin. Li parolas pri la malsameco de vivo en kelkaj urboj: Marsejlo, Parizo, Poitiers, pri la oftaj noktaj veturoj por provi aranĝi la elmigradon.
+
+Li oftege vojaĝas kaj havas konatojn ŝajne en ĉiu urbo, kaj ĉiam li alportas donacojn (ofte, simplan manĝaĵon) al homoj, kiujn li vizitas. Jen li parolas pri la ĉiutagaj timoj, ekzemple, pri bombado fare de la britoj, kaj jen li spekulacias pri la iro de la milito…
+
+Li foje parolas pri siaj infanoj kaj la familio kaj ofte rakontas siajn proprajn sonĝojn, kaj poste mem analizas ilin (tre ofte la sonĝoj kaj la analizoj estas en la franca lingvo – jen alia abunda kampo por la specialistoj en la fako). Li analizas ankaŭ sin mem kaj sian vivon. Foje li skribas tute mallonge: datoj, lokoj, ĉefaj faktoj – kaj kiam li estas en pli favoraj cirkonstancoj, li revenas al la eventoj kaj parolas pri ili pli longe, kun detaloj.
+
+La unuan paĝon de la taglibroj li verkis plej fine, listiga ĉiujn vojaĝojn de la jaro. Fine de la kajeroj li ofte algluas diversajn biletojn (ekzemple por trajno kaj metroo, por spektakloj, kinejo, cirko aŭ muzeo, paspermesilon por bibliotekoj, en unu kajero li eĉ krajonas reliefan librokovrilon).
+
+Min tre impresis, ke eĉ en la plej eksterordinare malfacilaj cirkonstancoj li neniam maltrafas la okazojn viziti la muzeojn, bibliotekojn, kinejojn, operojn, ĉu sola ĉu kun la infanoj.
+
+La plej impresa kaj plej atentokapta parto de la taglibro por mi estis la rakonto de lia eskapo al Svislando, post kiam la provoj elmigri al Meksiko kaj Usono fiaskis. Por la legantoj de Libera Folio, mi transskribis etan ĉerpaĵon ĝuste el tiu parto. Svislando estis natura elekto ĉar li mem estis svisdevena – laŭ la civitaneco de sia patro – kaj Svislando havis sindevigon akcepti ĉiun svison, eĉ tiujn, kiuj neniam loĝis tie antaŭe.
+
+La elmigrado estis malfacilega ekde la burokratia infero pri la dokumentoj, forvendo de la rajto praktiki kaj de ĉiuj havaĵoj estis terure malfacila procezo, kaj nekredeble danĝera. Ne nur ĉar lia edzino estis, probable, juddevena (ŝi venis al Francio post la oktobra revolucio, kun falsaj paperoj kaj sub falsa nomo), sed ankaŭ ĉar li celis elmigri kun siaj infanoj kaj sub falsaj pretekstoj.
+
+Do, la infanoj devis bone kunlabori pri la “oficiala” elpensita rakonto, en la espero ke oni ne kontrolos la poŝojn pri la mono, kiun ili kunportis. Alia timo estas ke oni ne permesos al li eliri entute, ĉar oni ĵus akceptis leĝon, kiu malpermesis al ĉiuj viroj ĝis 40 jaroj eliri el la lando.
+
+Fakte, temis ne nur pri unu eliro, sed pri du eliroj: la unua estis el la “okupita zono” de Francio al la “libera zono” (sub la marioneta registaro Vichy), kaj la dua poste, el la “libera zono” al la vera celo de la elmigro: Svislando.
+
+La unuan transiron, el la okupita zono al la libera zono, helpis fari homo, kiun Henri nomis “la Mirindulo”. Tiun transiron li ne priskribas, nek donas lian veran nomon – li nur skribas, ke li ne povas tion fari por ne endanĝerigi la Mirindulon mem kaj la homojn, al kiuj li helpis (tre bedaŭrinde, la nazioj mortigis la Mirindulon baldaŭ post ilia transiro. Tion mi eksciis el la biografia libro de Yanacopoulo).
+
+Tiun unuan transiron li faris ne kune kun la edzino kaj la infanoj, por ke oni ne suspektu, ke temas pri elmigrado. Tre impresis min ke eĉ dum tiu malfacila kaj timiga situacio, haltinte en la Libera Zono, en Liono, por apenaŭ unu tago antaŭ la forveturo al Svislando, li trovis tempon por viziti kun la familio la muzeon de krimologio! Verŝajne, la muzeo impresis lin tiom multe, ke jarojn poste li fariĝis ankaŭ krimologo, en la Universitato de Montrealo, Kanado.
+
+La tono de la taglibro ŝanĝiĝas ĉe la eskapo kun la familio al Svislando: li estas en sekureco kaj povas vivi kaj labori. En Svislando li plie studas, faras ekzamenojn, lernas la germanan lingvon (kaj havas malfacilecon kompreni ĉiujn dialektojn de la svisgermana parolante kun siaj pacientoj), kaj verkas, verkas, verkas. Li verkas science, korespondas kun la grandaj pensuloj de sia tempo, verkas librojn. Tie, en Svislando, li skribas kun tenero pri la naskiĝo de sia plej juna filineto – aminda Irène, kiu nun estas la ĉefa motoro de tiu ĉi projekto.
+
+Ĉu li estis Esperantisto aŭ Esperanto-parolanto? En la unua taglibro Henri Ellenberger ne menciis, kiel kaj kiam li lernis Esperanton. En la konversacioj kun Irène mi eksciis, ke li parolis pri Esperanto kaj pri Zamenhof – tre pozitive – al siaj infanoj, sed oni ne scias, kiam kaj kiel li lernis nian lingvon.
+
+Irène menciis, ke li ofte uzis la gastigan reton de Esperantistoj dum siaj vojaĝoj, kaj eĉ estis en la 1960-aj jaroj UEA-delegito de UMEA – Universala Medicina Esperanto-Asocio, laŭ la arkivoj de UEA. Sed li, certe, ne estis movadema – la sola mencio pri li en UEA estis lia delegiteco. Ellenberger parolis plurajn lingvojn, kaj lerni Esperanton, tutcerte, estis facile por li.
+
+Tamen, li verkis tiel en Esperanto, kiel persono, kiu ne multe uzas aŭ aŭdas la lingvon en la ĉiutaga vivo (lia Esperanto estas ĝenerale bona kaj tute komprenebla). Li, tutcerte, legis en Esperanto, kaj havis etan bibliotekon de Esperantaj libroj, kiujn post lia morto ricevis Esperanto-Societo Kebekia en 1993. Irène pensas, ke li eble verkis en Esperanto kiel en sekreta lingvo, ĉar nek lia edzino nek la infanoj parolis aŭ povis legi Esperanton (nek, plej verŝajne, la aŭtoritatoj, se oni subite konfiskus la librojn).
+
+Mi ne trovis aliajn lokojn, kie li verkis en Esperanto (ekzemple artikolojn) do, plej verŝajne, tiuj ĉi taglibroj estas la solaj. Mi supozas, ke estas pli ĝuste nomi Ellenberger “Esperanto-parolanto” ol “esperantisto”. Tamen, mi pensas, ke ni ĉuj, ĉu esperantistoj aŭ Esperanto-parolantoj, povas esti vere fieraj, ke Henri Ellenberger estis “unu el ni” kaj verkis en nia lingvo!
+
+Nun ni mense revenu al la salono de Irène kaj, finfine, mi respondu la lastan brulantan demandon – do, kion celas, finfine, la projekto Ellenberger? Tion provas difini nia eta laborgrupeto en la domo de Irène.
+
+Unue kaj plej grave, ni celas igi la korpuson Ellenberger – do, la enhavon de ĉiuj intimaj taglibroj – disponebla al esperantistoj, sciencistoj, esploristoj, la familio mem kaj ĉiuj, kiuj interesiĝas legi ilin.
+
+La tri postvivintaj gefiloj de Henri Ellenberger: André, Irène kaj Michel (Michel mortis ĉi-jare) konsentis pri senredakta kaj plena disponigo de la taglibroj al la publiko, eĉ se foje li ja parolas pri la infanoj, kaj eĉ se, teorie, povas esti iuj tiklaj momentoj – kvankam Ellenberger mem iom cenzuris sin mem, forigante tie kaj jene kelkajn paĝojn.
+
+Do, ni volas trovi institucion (bibliotekon, universitaton, arkivon), kiu enarkivigos la kajerojn mem kaj disponigos ilian enhavon (la pdf-ojn), por ke oni povu facile trovi ilin per kutimaj bibliotekaj/arkivaj/universitataj retoj, troveblaj per serĉiloj.
+
+Due, ni volas tekste rekoni la enhavon de la kajeron kaj fari ĝin serĉebla kaj pli facile tradukebla. Tiu ĉi estas la parto, kiu postulas plej multe da laboro kaj kiu ne estus ebla sen financado. Ni konsideras softvaron, kiu povas rekoni manskribitajn tekstojn, por fari la bazan tekst-rekonadon kaj poste redakti la rezultojn.
+
+Ni ankoraŭ ne certas, kiom sukcesa estas tia teksta rekono, interalie, ĉar en la kajeroj troviĝas ne nur Esperanto, sed ankaŭ kelkaj aliaj lingvoj (la franca, la germana, ktp.), kaj foje li almiksas kelkajn nacilingvajn vortojn al Esperantaj frazoj. Tiaj softvaroj ekzistas kaj estas uzataj por similaj, sed nacilingvaj projektoj, kun ia sukceso.
+
+Do, konsiderante la amplekson, ni pensas ke havos sencon provi maŝin-rekonon de la teksto, kaj ni esperas trovi partnerojn kaj financadon por tiu taskego.
+
+Trie, ni esperas ke la rezulto de 1 kaj 2 estos aperigo de redaktita verko – ĉerpaĵoj el la taglibroj elektitaj, redaktitaj kaj tradukitaj nacilingven, por la ĝenerala kaj faka publiko (ideo, al kiu tre inklinas Irène). La enhavo de la taglibroj estus interesa al esploristoj en plej diversaj kampoj: historio, la “psi”-sciencoj (psikiatrio, psikologio, ktp.), etnografio, medicino ĝenerala, sed ankaŭ ege interesa por la ĝenerala publiko.
+
+Ĉu ĝi povus rezultigi iujn artprojektojn – eble teatraĵon? Oni atendu por vidi! La sukceso de la historia teatraĵo “1910” eble inspiros min verki plian!
+
+Dum ni provos trovi la partnerojn kaj la financadon en tiu ĉi granda aventuro pri la disponigo kaj teksta rekono de la tuto, Irène laboregas pri la aldono de la notoj kaj la ciferecigo de la kajeroj, kiuj jam estas en Montrealo. “Vi komprenas, la laboro pri la notoj estas iom urĝa”, ŝi diras.
+
+Ŝi planas alporti al Montrealo ĉiujn restantajn kajerojn el Francio kaj ciferecigi kaj aldoni tiom da notoj, kiom eblas. Se iuj el la legantoj emas aliĝi al nia laborgrupeto aŭ havas ideojn pri eventuala kunlaboro, estu liberaj kontakti la redakcion, kiu transdonos al mi vian mesaĝon. Ni bonvenigas kaj universitatanojn, kaj ne-universitatanojn al kunlaboro!
+
+Ĵenja Amis
+
+Legu pli: Fragmento el la taglibro de Henri Ellenberger
+
+Kun specialaj dankoj al Irène Ellenberger kaj la tuta laborgrupo pri Projekto Ellenberger: Pascal Dubourg Glatigny (historiisto kaj esploristo de CNRS en la Centro Marc Bloch, Berlino, kaj de Centre Alexandre Koyré, Parizo); Geoffrey Greatrex (historiisto, profesoro de Universitato de Otavo); Gabriel Labrie (lingvisto, kurs-gvidanto en Universitato de Montrealo); Nicolas Viau (prezidanto de Esperanto-Societo Kebekia), kaj Emmanuel Delille, historiisto kaj esploristo, interalie, en la Centro Marc Bloch (Berlino). La fotoj devenas de Irène Ellenberger, el familiaj arkivoj.
+
+
+---
+
+# Esperantistoj subtenas ukrainajn samlingvanojn
+
+**Published:** 2023-11-01
+
+**URL:** https://www.liberafolio.org/2023/11/01/esperantistoj-subtenas-ukrainajn-samlingvanojn/
+
+**Categories:** movado
+
+Esperantistoj kolektis milojn da eŭroj subtene al loĝantoj de Ukrainio, kiuj suferas pro la milito. Tamen la mono kolektita ĉe UEA tre malrapide atingas la bezonantojn. Pli rapide transpagis monon dana grupo, kiu gajnis monon ĉe la muzika festivalo en Roskilde.
+
+Dek tagojn post la komenco de la grandskala rusia invado de Ukrainio, la 3-an de marto 2022, UEA kaj TEJO anoncis pri la funkciigo de speciala helposervo. Inter la anoncitaj celoj estis ”aktive kontakti esperantistojn en Ukrainio kaj atenti iliajn situaciojn”, kunordigi diversajn iniciatojn, kaj instigi homojn donaci al la konto Espero ĉe UEA.
+
+Konto Espero estas speciala fondaĵo de UEA kun la celo helpi al esperantistaj viktimoj de militoj kaj naturaj katastrofoj. La konto estis starigita komence de la 1990-aj jaroj , dum la milito en Jugoslavio, kiu rekte trafis multajn esperantistojn.
+
+Kiam komenciĝis la grandskala milito en Ukrainio, multaj esperantistoj rapidis donaci monon al konto Espero. La regulaj informoj pri grandaj sumoj donacitaj de individuaj esperantistoj kaj diversaj asocioj dum la pasinta jaro estis praktike la solaj mencioj pri Ukrainio en la revuo Esperanto , kiu cetere zorge evitis mencii la temon.
+
+Ĝis la fino de 2022 sume 13 488 eŭroj estis donacitaj al konto Espero. Poste la fluo de donacoj preskaŭ ĉesis, kredeble ĉar mankis ajna informo pri tio, kion UEA fakte faras per la mono. Laŭ informo en la oktobra numero de revuo Esperanto, ĉi-jare estis donacitaj nur 564 eŭroj.
+
+Jam komence de la invado en 2022 ukrainaj esperantistoj kunlabore kun la landa asocio UkrEA kompilis liston de personoj, kiuj prioritate ricevu helpon, sed la transpagoj okazis kun grandega prokrasto. Nur fine de oktobro 2023 la ĝenerala direktoro de UEA, Martin Schäffer, povis raporti al la komitato de UEA pri la unuaj rezultoj de la help-agado.
+
+Laŭ nia scio, pro la UEA-retoj, eblis helpi al pluraj personoj. Individuaj Esperantistoj helpis al rifuĝintoj en diversaj eŭropaj landoj, diversmaniere (ekz. oferto [tiele] de dumtempa loĝado, serĉo de laboro, konsiloj, administra helpo). UEA oferis [tiele] senkostan membrecon kaj pluraj Esperantistoj ricevis helpon por partopreni la UK en Torino (ĉio sen rimedoj de Fondaĵo Espero).
+
+Tamen ne senkosta membreco aŭ partopreno en UK estis la plej urĝaj bezonoj de trafitaj esperantistoj en Ukrainio. La juna ukraina esperantisto Andreo Jankovskij, kiu kunlabore kun UkrEA okupiĝis pri la distribuo de la subteno el la konto Espero, rakontas ke la longdaŭraj proceduroj ĉe UEA estis problemo precipe en la komenco de la milito, kiam helpo estis urĝe bezonata.
+
+– Interalie UEA longe serĉis iun sistemon por sendi la monon sen grandaj kostoj, dum homoj de nia flanko diris, ke ili konsentas perdi 10 procentojn aŭ eĉ pli, ĉar ili urĝe bezonis la monon ĉar ili estis veturantaj aŭ ne havis loĝejon.
+
+La unuaj transpagoj okazis nur en aŭtuno 2022. Daŭris jaron antaŭ ol pli-malpli ĉiuj en la listo fine ricevis la monhelpon.
+
+La listo de esperantistoj en bezono de helpo estis kompilita kunlabore de UkrEA kaj neformala grupo de pli junaj aktivuloj, Andreo Jankovskij rakontas.
+
+– UkrEA proponis malgrandan liston, por ke la sumo iĝu pli granda, sed ni junuloj opiniis, ke eĉ malgranda helpo de eksterlando estos grava signo ke oni ne estas forgesita, kaj ni proponis ke oni faru laŭeble grandan liston. Finfine nia ideo venkis, kaj UEA diris, ke ni kunigu la du listojn.
+
+En la listo kun preskaŭ 60 nomoj estas ĉefe pensiuloj el la rekte trafitaj regionoj. Iuj ne plu povas esti atingitaj, ĉar ili restis sub rusia okupacio.
+
+– Estas paro da maljunuloj, kiuj loĝas en aneksita teritorio. Ili pensis, ke la limo rapide finiĝos, ni estas maljunaj, por ni estas malfacile moviĝi, kaj ni povas resti ĉi tie… Ili estas en la listo, sed jam pli ol duonjaron ni ne havas kontakton kun ili.
+
+Laŭ Andreo Jankovskij oni elektis unuavice subteni homojn, kiuj perdis la laboron aŭ la loĝejon pro la milito aŭ estis devigitaj fuĝi ene de la lando. Krome oni donis subvencion al homoj, kies loĝejoj estis difektitaj pro la milito.
+
+– Unu esperantisto havas kvin rompitajn fenestrojn, la subteno sufiĉas nur por kelkaj. Alia virino norde de Kijivo havas difektitan pordon kaj fenestron, kiujn ŝi ĝis nun riparadas. Ĉefe temas pri tiaj kazoj.
+
+El la rimedoj donacitaj al konto Espero granda parto ĝis nun restas ĉe UEA. Laŭ la informo de Martin Schäffer, UEA decidis doni al la plej multaj bezonantoj la saman sumon, 160 eŭrojn. Tiu sumo estis pagita al 45 esperantistoj, do entute temas pri 7 200 eŭroj.
+
+La restanta mono laŭ Martin Schäffer estos uzita por helpi personojn, kiuj ne jam ricevis subtenon, por specifaj bezonoj, aŭ por iuj personoj, kiuj denove bezonas monon, unuavice por medikamentoj.
+
+Monon por esperantistoj en Ukrainio kolektis ankaŭ la esperantista teamo ĉe la muzika festivalo de Roskilde, kiu kunlaboras kun DEJO (Dana Esperantista Junulara Organizo). La grupo de multaj jaroj organizas esperantistan volontuladon dum la festivalo. Iuj el la volontuloj ĉiam estas danoj, kiuj ne scias Esperanton, sed partoprenas kurson dum la festivalo.
+
+Kunordigas la subtenon Jacob Nordfalk, kiu havas regulan kontakton kun esperantistoj en Ukrainio, kaj trovas skandala, ke la mono kolektita de UEA tiel malrapide atingas sian celon.
+
+– Mi povas imagi ke la laboro pri Konto Espero de UEA devas esti zorge farata … Tamen, se la subteno estas tiom malrapide disdonata ke ĝi venas tro malfrue, tiam necesas pridiskuti la problemon kaj vidi, ĉu eblas disdoni pli rapide.
+
+Per volontula laboro la grupo Roskilde en 2022 sukcesis kolekti 1 250 eŭrojn, kiuj pere de ukrainaj esperantistoj estis distribuitaj laŭ individuaj bezonoj, ekzemple por riparo de difektita loĝejo aŭ por kuraciloj.
+
+– En 2023 ni kolektis 3 000 eŭrojn por esperantistaj viktimoj de Putin. La plejparto iras al ukrainaj esperantistoj, sed 300 eŭroj iras al pacemaj rusaj esperantistoj, kiuj havas problemegojn pro la Kremla registaro. La mono plejparte venas de pago por nia laboro ĉe Roskilde-Festivalo, sed ne malgranda parto, eble triono, estas privataj donacoj, rakontas Jacob Nordfalk.
+
+Simile la dana grupo planas fari pri mono kolektota dum la festivalo en 2024.
+
+– Mi povas garantii ke eventualaj sumoj donitaj por ”subteno por Ukrainio” tuj iros tien, sen tro da administrada malfruiĝo. Funkcias tiel, ke ni estas en rekta kontakto kun la ukrainoj kiuj distribuas la monon. Ni konfidas al ili la laboron kaj ili sendas regule listojn kun nomoj de la ricevintoj, kiujn ni tenas konfidencaj, kompreneble.
+
+Laŭ Andreo Jankovskij, la dana mono estas uzata por tre konkretaj celoj.
+
+– La danoj volis, ke ĝi estu ĝuste por riparado kaj similaj aferoj. Interalie estas tri esperantistoj kiuj travivis tre seriozajn problemojn, eĉ okupadon, kaj riskis morti. Unu havis telefonon, kaj kiam venis okupanto, ial tiu telefono estis kaŝita sub lito, kaj oni ne vidis ĝin. Se ili ĝin vidus kaj rimarkus la fotojn en ĝi, ili certe tuj mortigus…
+
+Alia esperantisto prenis grandan riskon por helpi maljunan najbarinon.
+
+– Iu juna soldato pafis dekfoje en ŝian direkton, sed ial ne trafis. Ŝi kaŝiĝis dum unu horo, tiu knabo perdis la intereson aŭ eble ne havis kartoĉojn, kaj iris for. Poste ŝi denove komencis iom post iom iri por savi la avinon kiu loĝas apud ŝia domo, por manĝigi ŝin. Ŝi travivis, sed ankaŭ ŝiaj fenestroj estas rompitaj. Ŝi ricevis subtenon de la danoj, sed ne povis ĉion ripari pere de la unua pago.
+
+
+---
+
+# Reta kurso de Esperanto nun ankaŭ irlande
+
+**Published:** 2023-11-07
+
+**URL:** https://www.liberafolio.org/2023/11/07/reta-kurso-de-esperanto-nun-ankau-irlande/
+
+**Categories:** interreto, movado
+
+Jam en 30 lingvoj ekzistas reta kurso de Esperanto, kreita surbaze de la Zagreba metodo de Zlatko Tišljar. La reta kurso estas publikigita kun libera permesilo, do ĉiuj rajtas evoluigi ĝin. Sed kial en la irlanda?
+
+La germana programisto Georg Jähnig kreis kaj nun estras la retan kurson Esperanto12.net , kiu haveblas jam en tridek lingvoj. Laŭ li la ĉefa avantaĝo de la kurso estas, ke ĝi estas publikigita kun liberaj permesiloj de Krea komunaĵo , simile al Vikipedio.
+
+– Tiel ĝi ĉiam restos libere uzebla, kaj ĉiu rajtas publikigi kopion de la kurso sur sia retejo aŭ traduki ĝin al nova lingvo. Ne eblas ke okazu situacio kiel ĉe Duolingo, ke la kurso ne plu estas evoluigata aŭ daŭrigata. Laŭ mia scio ĝi estas la sola Esperanto-kurso sub tiatipa permesilo.
+
+La materialoj de la kurso estas libere elŝuteblaj en facile uzebla formo, li atentigas.
+
+– Tiel ĉiu, kiu volas, povas krei aliajn formojn, kiel ekzemple PDF-ojn kaj paperajn librojn.
+
+La retejo ekzistas de 2016 , havas 200 uzantojn ĉiutage, kaj en multaj lingvoj estas la unua aŭ dua rezulto en serĉo ĉe Google per la vortoj “lerni Esperanton”. Nun la kurso haveblas ankaŭ en la irlanda, en traduko de Seán Ó Riain, prezidanto de Eŭropa Esperanto-Unio.
+
+Libera Folio: Kial gravas havi la kurson en la irlanda, konsiderante ke ĉiuj irlandanoj sendube scipovas ankaŭ la anglan?
+
+Seán Ó Riain: – Estas vere, ke ĉiuj irlandanoj povus facile sekvi ĉi tiun kurson per la angla. Tamen havebligi ĝin en la irlanda havas simbolan valoron, eĉ por tiuj irlandanoj kiuj ne multe parolas la irlandan. Krome, havi irlandan version de la Zagreba Metodo ebligos pliigitan diskonigon por la kurso en la irlandlingvaj amaskomunikiloj.
+
+– Laŭ la Irlanda Oficiala Lingvo-Leĝo, 2021, ĉiuj registaraj ministrejoj kaj ŝtataj korpoj nun estas laŭleĝe devigataj havi almenaŭ 20% de ĉiu komunikado kun la publiko en la irlanda. La tempo do estas matura por produkti la Zagreban Metodon en la irlanda, kaj mi ĝojas, ke la irlanda estas la 30-a lingvo en kiu ĉi tiu kurso estas farita.
+
+Kio estas speciala pri tiu kurso?
+
+Seán Ó Riain: – La zagreba metodo estis inventita de Zlatko Tišljar kaj liaj kroataj gekolegoj, bazita sur analizo de 100 000 vortoj da spontanea konversacio en Esperanto. Ĝi tiel elektis la plej ofte uzatajn vortojn, aŭ morfemojn, por esti pli preciza.
+
+– La celo de ĉi tiu kurso estas, ke lernantoj aktive uzu Esperanton multe pli rapide ol en tradiciaj kursoj. La konstanta uzo de pli limigita kvanto da vortoj emas doni preskaŭ la fluecon de denaska parolanto de Esperanto, tiel ke lernantoj povas paroli same rapide kaj nature kiel en sia gepatra lingvo. Pro la unika strukturo de Esperanto, regi ĝiajn 500 plej oftajn morfemojn donas la saman esprimpovon kiel 2 000 vortoj en aliaj lingvoj.
+
+– Plia faktoro estas, ke la programo Multlingva Akcelilo, financita de la programo Erasmus+ de la Eŭropa Komisiono en Bulgario, Kroatio kaj Slovenio en 2018-19, estis instruata de 5 junaj instruistoj de bazlernejoj, kiuj komence ne parolis Esperanton, kaj kiuj bezonis nur unusemajnan trejnadon por povi instrui ĉi tiun kurson. La Multlingva Akcelilo, celanta ĝenerale plibonigi kaj akceli lingvolernadon, baziĝas sur la Zagreba Metodo.
+
+Kiel ĝi pli bonas ol ekzemple la kurso de lernu.net?
+
+– La kurso de lernu.net tre bonas por progresantoj, sed la zagreba kurso eble estas pli taŭga por komencantoj, ĉar ĝi limigas la kvanton de lernenda vortprovizo, kaj koncentriĝas pri lernado de ĉi tiu vortprovizo tiel bone ke ĝi fariĝas dua naturo por la lernanto.
+
+
+---
+
+# Forpasis Erich-Dieter Krause
+
+**Published:** 2023-11-10
+
+**URL:** https://www.liberafolio.org/2023/11/10/forpasis-erich-dieter-krause/
+
+**Categories:** kulturo
+
+Forpasis Erich-Dieter Krause (1935–2023), orientgermana fakulo pri la indonezia lingvo, en Esperantujo ĉefe konata kiel akademiano kaj aŭtoro de pluraj gravaj vortaroj inter Esperanto kaj la germana lingvo.
+
+Je la 18-a de oktobro 2023 mortis la konata germana leksikografiisto profesoro Erich-Dieter Krause post mallonga malsano. Li estis specialisto pri la indonezia lingvo (Bahasa Indonesia) kaj laboris ĝis 2000 en la Orientazia Instituto de la Universitato Leipzig (Germanio).
+
+Li doktoriĝis en 1974 pri la temo ”Fremdaj influoj al la leksiko de la indonezia kun speciala fokuso pri angloamerikaj influoj” kaj habilitiĝis en 1992. Krause publikigis lernolibrojn kaj vortarojn pri la indonezia lingvo.
+
+Li tamen estas pli konata kiel leksikografiisto pri Esperanto, speciale en germanlingvaj landoj. Lia unua vortaro Esperanto-Germana aperis en 1967 (190 paĝoj) kaj en 1971 aperis lia Taschenwörterbuch Deutsch–Esperanto (Poŝvortaro Germana–Esperanto, 279 paĝoj). Ekde tiu tempo li kontinue plivastigis sian leksikan kolektaĵon por publikigi pli grandajn dulingvajn Esperanto-vortarojn en entute kvar eldonejoj.
+
+Ĉe Mondial (Novjorko) aperis lia duvoluma vortaro Vollständiges Wörterbuch Esperanto-Deutsch (Plena Vortaro Esperanto-Germana, 1 512 paĝoj) en 2018, kaj en tiu ĉi jaro, nur malmultajn monatojn antaŭ lia morto, tie estis publikigita lia trivoluma verko Vollständiges Wörterbuch Deutsch-Esperanto (Plena Vortaro Germana-Esperanto, 2 511 paĝoj).
+
+Tiuj du vortaroj enhavas ne nur unuopajn kapvortojn kaj kunmetaĵojn, sed ankaŭ multegajn ekzemplofrazojn, terminojn (precipe el medicino, zoologio kaj botaniko) kun klarigoj kaj parolturnoj. Ili estas samtempe ĝenerallingvaj vortaroj, fakvortaroj kaj frazeologiaj kaj enciklopediaj vortaroj.
+
+Erich-Dieter Krause estis multjara membro de la Akademio de Esperanto kaj de la redakta komitato de la fakrevuo ”Esperantologio / Esperanto Studies”. Li aktivis en la germana Gesellschaft für Interlinguistik (GIL) (Societo pri Interlingvistiko), prelegante kaj publikigante pri leksikografiaj temoj.
+
+La esperantistaro ŝuldas al Erich-Dieter Krause grandan dankon. Verŝajne ne estas germanlingva Esperanto-parolanto, kiu ne iam konsultis liajn vortarojn. Ili estas kaj estos valoraj por praktika uzo en la komunumo.
+
+Aldone, ĉar vortaroj alireblas ankaŭ en niaj publikaj bibliotekoj kaj librovendejoj (malkiel la kutima Esperanto-literaturo), la verkoj de Krause pro siaj ampleksoj kaj kvalitoj ankaŭ helpas plialtigi la reputacion de Esperanto ekstere.
+
+Sabine Fiedler
+
+
+---
+
+# Deklaro de ELI pri la milito en Gaza
+
+**Published:** 2023-11-14
+
+**URL:** https://www.liberafolio.org/2023/11/14/deklaro-de-eli-pri-la-milito-en-gaza/
+
+**Categories:** movado
+
+Esperanto-Ligo en Israelo (ELI) diskonigis deklaron pri la milito en Gaza. Libera Folio publikigas la tekston.
+
+En la spirito de la Zamenhofa revo pri monda paco, Esperanto-Ligo en Israelo kondamnas ĉiujn militojn kaj subtenas diplomatiajn solvojn de konfliktoj, inkluzive de la centjara konflikto inter judoj kaj araboj en la Mezoriento.
+
+Tamen, ne eblas senhorore akcepti la teruraĵojn, kiuj okazis la 7-an de Oktobro: amasa masakro de ĉ. 1 200 israelaj civiluloj , plejparte infanoj (eĉ beboj!), virinoj kaj maljunuloj, plenumita far la fundament-islamisma ekstremisma teror-organizo Ĥamas , kun ne imageblaj kruelaĵoj (inkluzive senkapigon, perfortadon, torturadon kaj vivbruligon de la viktimoj). Neniam post la Holokaŭsto estis tiom da judoj murditaj dum unu tago, nur ĉar ili estis judoj kaj israelanoj (inter la viktimoj pluraj tamen estis ne-judoj kaj eĉ eksterlandanoj).
+
+Estis kidnapitaj pli ol 240 personoj, kiuj daŭre restas en la manoj de Ĥamas en la Gaza-Strio, sen ajna informo aŭ vizito de la Ruĝa Kruco. Ili ĉiuj devas esti liberigitaj tuj kaj senkondiĉe. Por ke tiaj militkrimoj ne ripetiĝu, nepras ekstermi la regnon de Ĥamas . Bedaŭrinde ankaŭ la palestinaj loĝantoj de la Gaza-Strio multe suferis, suferas kaj suferos pro la milito, kiun iniciatis iliaj Ĥamas-regantoj – tamen ne eviteblas la disrompo de tiu ĉi teror-organizo por ebligi daŭripovan solvon de la konflikto kaj estontan rekonstruon de Gaza kaj de la ĉirkaŭa regiono en Israelo, profite por ambaŭ popoloj.
+
+Piednoto: Unue aperis ĉi tie versio de la deklaro, diskonigita de Amri Wandel en la retlisto UEA-membroj . La teksto nun estas ĝisdatigita laŭ versio aperinta en la retejo de ELI.
+
+
+---
+
+# Israelaj esperantistoj rakontis pri la milito
+
+**Published:** 2023-11-14
+
+**URL:** https://www.liberafolio.org/2023/11/14/israelaj-esperantistoj-rakontis-pri-la-milito/
+
+**Categories:** movado
+
+Neniuj israelaj esperantistoj ĝis nun rekte suferis pro la milito inter Ĥamas kaj Israelo. En Gazao ŝajne mankas esperantistoj. Esperanto-Ligo en Israelo faris deklaron, laŭ kiu la nuna milito estas neevitebla ”por ebligi daŭripovan solvon kaj estontan rekonstruon de Gaza kaj de la ĉirkaŭa regiono en Israelo”.
+
+Lunde la 13-an de novembro deko da israelanoj kaj kelkaj alilandanoj partoprenis la regulan retan kunsidon de israelaj esperantistoj por informiĝi pri la milita situacio kaj pri la ĵus diskonigita deklaro de Esperanto-Ligo en Israelo (ELI) pri la milito en Gaza .
+
+En la deklaro ELI unuflanke ”kondamnas ĉiujn militojn kaj subtenas diplomatiajn solvojn de konfliktoj”, sed aliflanke trovas la nunan militon en Gaza necesa por ”ekstermi la regnon de Ĥamas” kaj por ”ebligi daŭripovan solvon kaj estontan rekonstruon de Gaza kaj de la ĉirkaŭa regiono en Israelo”.
+
+Partoprenis la kunsidon la prezidanto de ELI, Jehoŝua Tilleman, kiu rakontis, ke la lastaj registaroj de Israelo provis ”konservi la militon sur malgranda fajro” interalie permesante transpagon de subvencioj de Kataro kaj aliaj arabaj landoj al la Ĥamas-registaro en Gaza.
+
+– Ĉio ĉi bedaŭrinde montriĝis neutila. Evidentiĝas nun pli kaj pli ke dum pluraj jaroj Ĥamas preparis ĉi tiun grandan teror-atakon kontraŭ Israelo, kaj ĝiaj celoj estis eĉ pli grandaj ol tio, kion ili sukcesis ataki.
+
+En la planoj de Ĥamas laŭ li estis interalie invadi la okcidentan bordon de la rivero Jordano kaj ekregi ankaŭ tie anstataŭ la Palestina aŭtonomia aŭtoritato gvidata de Mahmud Abbas.
+
+– Bedaŭrinde ĉi tiu monstro de Ĥamas atingis tiajn mezurojn, ke ĝi fine faris ion multe pli grandan ol simple sendi raketojn al diversaj lokoj en Israelo, kaj pro tio necesas ĉi-foje ekstermi ĝin kun laŭeble malgranda damaĝo al la civilula loĝantaro.
+
+Audino Rashi el Brazilo demandis pri la fidindeco de la ciferoj rilate la kvanton de pereintoj. Jehoŝua Tilleman respondis, ke la nombro de iom pli ol 1 200 civilulaj pereintoj en Israelo estas fidinda, ĉar ĉiuj tiuj homoj estis identigitaj. La raportoj pri la kvanto de pereintaj civiluloj en Gaza laŭ li aliflanke ne estas fidindaj.
+
+– Ili povas raporti pri iu ajn nombro. Nia celo estas laŭeble malmultigi la nombron de civilulaj viktimoj, sed ili estas neeviteblaj dum tiaspeca milito.
+
+Al demando de Libera Folio pri la situacio de esperantistoj en la regiono estrarano de UEA Amri Wandel respondis, ke ne estas raportoj pri israelaj esperantistoj, kiuj rekte suferus de la milito. En Gaza ŝajne tute ne estas esperantistoj, laŭ li.
+
+– Verŝajne estas neniu esperantisto kaj eĉ neniu, kiu lernis tie Esperanton. Mi aŭdis pri iu, kiu lernis Esperanton en Betlehemo, kaj li estas en kontakto kun samideano, ĉe kiu li siatempe eĉ laboris. Ni tiam invitis lin al renkontiĝo en Telavivo, sed tio ne sukcesis. Laŭ nia scio eĉ ne estas iu, kiu aktive okupiĝas pri Esperanto en la okcidenta bordo de Jordano.
+
+Teorie povus esti esperantistoj inter la eksterlandaj dungitoj de internaciaj organizaĵoj en Gaza, sed ankaŭ pri tiaj laŭ Jehoŝua Tilleman ne estas informoj.
+
+Amri Wandel atentigis, ke eĉ se esperantistoj aŭ iliaj proksimaj parencoj ne estis rekte trafitaj de la milito, inter la viktimoj ja estis iliaj konatoj.
+
+– Apenaŭ estas iu en Israelo, kiu ne havas konaton, ekzemple mi mem havas du tre bonajn amikojn, paron, kiu loĝas en unu el la plej malbone trafitaj kibucoj, kaj kies filo kaj nepo estis murditaj, dum bofilino kaj du aliaj nepoj kidnapitaj. Do estas vere personaj, tre pezaj spertoj.
+
+Amri Wandel rakontis ankaŭ pri la deklaro de UEA, TEJO kaj ILEI pri la konflikto, diskonigita jam la 25-an de oktobro.
+
+– Por kelkaj israelanoj ĝi siatempe aspektis tro ĝenerala kaj ne tuŝanta la katastrofon kiu trafis Israelon, sed por UEA ne estis eble fari ion pli specifan. La specifeco estas en la vortoj ke temas pri Mezoriento, kaj en la mencio de trafata senkulpa loĝantaro. Intertempe tio bedaŭrinde plivastiĝis pro la loĝantaro de la Gaza strio, sed tio estis neevitebla konsekvenco de la milito, aparte ĉar Ĥamas sisteme uzas la loĝantaron kiel homan ŝildon, foje eĉ sub hospitaloj kaj en lernejoj.
+
+
+---
+
+# UEA rekorde malfruas pri sia buĝeto
+
+**Published:** 2023-11-21
+
+**URL:** https://www.liberafolio.org/2023/11/21/uea-rekorde-malfruas-pri-sia-bugeto/
+
+**Categories:** movado
+
+Sabate la 18-an de novembro devis okazi kunsido de la supera decidorgano de UEA, la komitato, por aprobi la buĝeton de la asocio por la venonta jaro. En pli ordaj tempoj la buĝeto estis akceptata dum la Universala Kongreso. Nun mankas eĉ propono pri buĝeto, kaj la grava kunsido estis senklarige nuligita kun kelktaga antaŭaverto.
+
+La buĝeto estas la plej grava dokumento kiu direktas la agadon de UEA, ĉar sen financado malmulta konkreta agado eblas. Tial en antaŭaj epokoj la buĝetaj dokumentoj de la asocio ĉiam estis zorge kunmetataj de la oficistoj kaj la estraro de UEA dum la unua duono de la jaro. Tiel la komitatanoj povis esti bone preparitaj por diskuto kaj decido pri la buĝeto dum la Universala Kongreso.
+
+Lastatempe multaj aferoj en UEA ne plu okazas glate, ankaŭ ne pri la buĝeto. Tamen propono pri la buĝeto ja plu kutimas esti prezentita en la ĉefa komitata kunsido de la jaro, eĉ se okazas, ke la konsternitaj komitatanoj ne pretas tuj ĝin akcepti.
+
+Ekzemple en 2020 propono de buĝeto por la sekva jaro estis prezentita al la komitato jam en aŭgusto, sed la komitato trovis ĝin nekontentiga kaj postulis ŝanĝojn. Fine de decembro 2020 la komitato lastmomente tamen akceptis la malnovan, senŝanĝan buĝetproponon, kiun la komitato jam dufoje resendis por kompletigo.
+
+En 2021 la buĝeto por la sekva jaro estis akceptita jam la 18-an de septembro, do preskaŭ normale.
+
+Pasintjare tamen unuafoje okazis, ke la komitato dum la Universala Kongreso ricevis nenian proponon pri buĝeto por la sekva jaro. Anstataŭe oni sendis la buĝetan proponon al la komitato nur la 1-an de decembro 2022. Tempo por detala trastudo mankis – la pritrakto de la buĝeto okazis en reta kunsido jam du tagojn poste.
+
+En tiu kunsido la komitato surprize kaj kontraŭ la volo de la estraro decidis rezervi pliajn 18 000 eŭrojn por finprepari la longe pendantan projekton pri nova retejo kaj administra sistemo. Intertempe pasis jaro, sed nova retejo ne aperis.
+
+En la buĝeto por 2023 UEA cetere duonigis la kostojn de la domo en Nieuwe Binnenweg 176, ĉar oni atendis, ke dum la jaro la domo fine estos vendita, kaj sekve ne kaŭzos pliajn elspezojn. Tiu vendo tamen same ne okazis, kvankam la decido estis farita jam en februaro 2022, do preskaŭ du jaroj jam pasis.
+
+Pasintjare oni klarigis la malfruon de la buĝeta propono per tio, ke okazos multaj ŝanĝoj en UEA ĝis la jarfino, kaj tial tro fruus akcepti buĝeton dum la UK. Ŝajne la ŝanĝoj en UEA daŭras, ĉar ankaŭ ĉi-jare la estraro ne prezentis eĉ projekton de buĝeto dum la UK, sed ŝovis la tutan aferon al kunsido, kiu devis okazi sabate la 18-an de novembro.
+
+Tamen neniuj buĝetaj dokumentoj aperis, nek aperis alvoko al la kunsido, pri kies dato la komitato mem decidis en Torino. Fine, kvar tagojn antaŭ la decidita dato, komitatano Michael Boris Mandirola demandis, ĉu la kunsido ne okazos.
+
+Respondis ĝenerala sekretario Aleks Kadar, kiu ”konfirmis”, ke la decidita kunveno ne okazos. Li tamen ne klarigis la kialon, nek diris kiam la komitatanoj ricevos la buĝetajn dokumentojn por trastudo, sojle al la kunveno kiu tamen ja devos okazi ankoraŭ ĉi-jare.
+
+La antaŭa ĝenerala direktoro de UEA, Osmo Buller, mem ne plu membras en la komitato. Li tamen trovis la malordon en la aferoj de UEA inda je publika kritiko en la retlisto UEA-membroj, kun la temlinio Disfalo de ordo :
+
+”Estas eĉ dolorige sekvi la disfalon de orda funkciado de la gvidaj organoj de UEA”, li skribis.
+
+Krom la senaverte kaj senklarige nuligita kunsido li trovis mirinda la fakton, ke daŭre mankas protokolo de la kunsido en Torino, kaj sekve ne eblas certe scii, kio fakte estis decidita en tiu kunsido. La protokolo laŭ la regularo de UEA devis esti publikigita plej laste unu monaton post la kunsido, do komence de septembro.
+
+Tio ne okazis, sed la 15-an de oktobro, responde al demando de komitatano, Aleks Kadar anoncis, ke li ”strebos” publikigi la protokolon antaŭ la 21-a de oktobro. La strebado tamen estis malsukcesa, ĉar la protokolo aperis nek ĝis tiu tago, nek dum la sekvaj kvar semajnoj.
+
+Buller en sia kritika elpaŝo asertis, ke pro la ”neglektoj, ignoroj kaj prokrastoj de Kadar” jam suferas la reputacio de UEA:
+
+”Eblus fari longan liston pri neglektoj, ignoroj kaj prokrastoj de Kadar, sed sufiĉu nur tiuj plej lastaj ekzemploj. Kiel direktoro mi kunlaboris kun ok ĝeneralaj sekretarioj kaj neniam spertis simile senrespondecan funkciadon de tiu ŝlosila estrarano. Kulpas ankaŭ la tuta estraro, kiu kolektive respondecas ankaŭ pri la nefunkciado de sia sekretario. Ĉu Kadar povas dormi kaj eviti taskojn kaj fajfi pri komitataj decidoj, ĉar li ne bezonas timi admonojn de sia kolegaro?”
+
+Reage al la akra kritiko komitatano Renato Corsetti levis la temon en la diskutejo de la komitato mem . Li admonis ke la komitato ”reprenu siajn statutajn funkciojn kaj zorgu pri la laŭstatuta funkciado de la asocio”, kaj petis la prezidanton kaj ĝeneralan sekretarion ”klarigi la situacion”.
+
+Aleks Kadar responde klarigis, ke la prokrasto de la novembra kunsido ”ŝuldiĝas interalie al granda kvanto de estraraj kaj direktoraj taskoj”. Pri tiuj taskoj li evidente ne konsciis, kiam li pli frue promesis aperon de protokolo ene de kelkaj tagoj.
+
+La kritikojn de Osmo Buller li trovis maljustaj:
+
+”Mi ne dormas, krom nokte. Miaj kolegoj de la Estraro povas tion atesti. Plej multajn taskojn mi plenumas.”
+
+Jam en la sama tago Aleks Kadar pruvis sian nedormadon, sendante formalan alvokon al eksterordinara kunveno de la komitato, okazonta dimanĉe la 17-an de decembro. Tamen daŭre mankas konkreta propono pri buĝeto, kio atestas pri rekorda malfruo de la buĝeta laboro.
+
+Aliflanke ja aperis en la retejo de UEA longe atendita nova protokolo de komitata kunsido. Ne temas pri protokolo de la kunsido okazinta en Torino dum la ĉi-jara UK, sed pri io pli surpriza, nome la protokolo de la reta kunsido okazinta la 3-an de decembro 2022.
+
+Dum tiu kunveno estis lastmomente aprobita la buĝeto de UEA por la jaro 2023. Pri tiu ampleksa diskuto Libera Folio raportis kun ioma malfruo nur la 6-an de decembro 2022. Nun do eblas legi ankaŭ la protokolon de la kunsido, kiu laŭ la regularo devis aperi komence de januaro.
+
+Ĉar dum la tuta jaro neniu rimarkis la mankon de tiu protokolo, povas esti, ke dormas ne nur la ĝenerala sekretario, sed la tuta komitato.
+
+
+---
+
+# La revuo sen redakto
+
+**Published:** 2023-11-28
+
+**URL:** https://www.liberafolio.org/2023/11/28/la-revuo-sen-redakto/
+
+**Categories:** vidpunkto
+
+La revuo de UEA suferas de manko de redaktado kaj strukturo. Krome mankas recenzoj, nekrologoj kaj diskutoj, dum la titoloj estas plumpaj. Tion skribas en vidpunkta artikolo Osmo Buller, multjara ĝenerala direktoro de UEA.
+
+La gvidlinioj pri la revuo Esperanto mencias kiel ĝian unuan celon ”prezenti ĝustan, ĝisdatan, kaj inspiran bildon pri la agado kaj strategio de UEA”. Tiu dokumento estis akceptita en 1994 kaj ne konas la eblojn kaj postulojn de Interreto, sed ĝiaj principoj restas daŭre validaj. Bedaŭrinde mi jam de multaj jaroj konstatas, ke la oficiala organo de UEA ne plenumas ilin.
+
+Sube mi traktas diversajn aspektojn de la nuna revuo, sed la analizo ne estas elĉerpa. Similajn rimarkojn mi faris pri la unuaj numeroj de la nuna redakcio en ateliero dum la Itala Esperanto-Kongreso en septembro 2017, sed ili plu validas.
+
+La nuna redakcio deĵoras ekde aprilo 2017, sed pli ol ses jaroj ne sufiĉis por forigi la bazan mankon en la revuo, tiun de redaktado . Al tiu manko mi referencos sube plurloke, sed por la komenco bona lastatempa ekzemplo estas la intervjuo de nova estraranino en la novembra numero. Ĝi okupas kvar paĝojn, sed ĝi malmulte rilatas al UEA, kiel oni atendus de intervjuo de estrarano.
+
+Evidente la redakcio aperigis ĉion, kion ĝi ricevis de la intervjuito, anstataŭ ekstrakti el ĝi tion, kio rilatas al UEA. Ne necesis tamen tute neglekti ĉion ceteran sed resumi ĝin tiom, kiom utilus por portreti ŝian personon. Por konigi ŝin al la legantoj estis superflue rakonti pri ĉiu turno de ŝia vivo.
+
+Rezultis neekvilibra teksto, en kiu la ideoj kaj planoj de la estraranino perdiĝis. Eble tuj post la elekto al la estraro ili ankoraŭ ne povis konturiĝi al ŝi, tiel ke pli utilus intervjui ŝin iom poste.
+
+Tre ĝena estas manko de strukturo . Malfermi novan numeron estas kvazaŭ malfermi senorde plenŝtopitan ŝrankon, kies enhavo emas elfali surplanken. La lokon de unuopa ero en la nuna revuo ne difinas ĝia speco, sed ĝi povas situi preskaŭ kie ajn. Pli longaj artikoloj plej ofte troviĝas, ja prave, en la komenco, sed cetere rubrikoj sekvas neniun ordon.
+
+Eroj de sama rubriko eĉ povas troviĝi dise en la revuo, kvankam ili devus aperi kune en sama parto de la numero. Oficiala Informilo kaj Laste aperis nature troviĝus en la fina parto, sed oni ofte trovas ilin pli frue, eĉ proksime al la komenco. Ne ekzistas unu fiksa skemo de bona revua strukturo, sed eblas diversaj variaĵoj. Necesas nur, ke la redakcio fiksu strukturon kaj konsekvence sekvu ĝin, ĉar ordo estas fundamenta en periodaĵo, por ke la leganto orientiĝu.
+
+Lastatempe en la diskutlisto UEA-membroj oni kritikis, ke ne aperis nekrologoj de tri forpasintaj gravuloj, nome la eksa estrarano Tacuo Huĝimoto kaj la honoraj membroj Andrzej Pettyn kaj Edwin de Kock. Aperas ĉefe nekrologoj, kiuj hazarde venas al la redakcio. Krome ili aperas pli-malpli tiaj, t.e. ne redaktitaj. Ekde 2002, kiam la redakoro ne plu laboris en la CO, nekrologoj plu restis longe redaktataj en la CO, ĉar tie troviĝis la necesaj fontoj.
+
+Ke oni esence likvidis la CO, klarigas sed ne pravigas la nunan staton. Ne nur pintaj movadanoj sed multaj aliaj merituloj estas ignorataj. Tiel ilia movada laboro en la fino renkontas mankon de elementa respekto flanke de UEA. La redakcio klare ne sekvas forpasojn de elstaraj movadanoj, kvankam pere de retforumoj kaj Facebook estus facile ekscii pri multaj el ili. Samtempe oni ekscius pri multo alia raportinda en Esperantujo.
+
+En 2022 aperis 20 nekrologoj kaj ĉi-jare nur kvin. La movadan staturon de la nekrologitoj ne eblas kompari inter si laŭ la amplekso de la tekstoj. Ĉar ili ne estas redaktitaj, iuj nekrologoj estas tro detalaj kaj enhavas superfluan priploradon, dum gravaj informoj mankas en aliaj. En 2015, la lasta jaro, kiam la CO prizorgis la rubrikon, aperis 62 nekrologoj.
+
+En 2001, la lasta jaro de oficeja redaktoro (István Ertl), ili estis 109. Ankaŭ en tiuj antaŭaj jaroj temus pri malmultaj, se ankaŭ tiam la rubriko dependus nur de legantoj. Aktiva observado necesas, eĉ se la verkado de nekrologoj estas grave subfosita pro la fakta likvido de la CO kaj ĝia arkivo. Metie kapablaj redaktoroj tamen scius elturniĝi per aliaj fontoj, ekz. Vikipedio.
+
+Recenzoj spertis eĉ pli malbonan sorton: en 2022 aperis 6 recenzoj kaj ĉi-jare ili preskaŭ malaperis, ĉar estis nur 3. En 2001 István Ertl lanĉis 39 recenzojn pri 53 verkoj, ĉar kelkfoje samaŭtoraj aŭ -specaj verkoj estis traktitaj kune. Stano Marček, kiu laboris ekster la CO, publikigis 22 recenzojn en sia lasta jaro 2013.
+
+Ŝajne ankaŭ pri recenzoj validas, ke aperas tiuj, kiuj spontanee venas, kaj ke varbado ne okazas. Same kiel ĉe nekrologoj, laŭ la amplekso de recenzoj ne eblas konjekti ion pri la valoro kaj graveco de la koncernaj verkoj.
+
+Konsterna estas la statistiko de reklamoj de libroj eldonitaj de UEA: dum la tuta 2023 nur en la decembra numero fine aperis du reklamoj, dum iam en ĉiu numero troviĝis pluraj. La revuo estas potenciale tre efika loko por diskonigi librojn k.a. eldonaĵojn per recenzoj kaj reklamoj. Pasintece oni klopodis utiligi tiun potencialon kiel eble plej multe sed ne plu en la lastaj jaroj.
+
+Rezultis ŝrumpo de vendoj de la libroservo, kio negative influas la financojn de UEA. La malkresko de vendoj havas ankaŭ aliajn kialojn, ekz. malpli grandaj UK-oj, ĉesigo de Malfermaj Tagoj de la CO, paralizo de la eldona fako kaj ankaŭ malgrandiĝo de legema-aĉetema publiko. Vigla recenza rubriko estas nemalhavebla por varti kaj vivteni la interesiĝon de la publiko, dum fakta estingiĝo de la rubriko estingas ankaŭ la interesiĝon.
+
+La gvidlinioj pri redaktopolitiko difinas, ke ”eldonaĵoj de UEA kaj CED, kaj aliaj relative profitigaj varoj, ricevas prioritatan traktadon per rapida recenzigo, allogaj anoncoj kaj ripeta menciado”, dum ”malpli gravaj verkoj pri Esperanto kaj ĝia komunumo, fakaj kaj literaturaj verkoj povas ricevi mallongan recenzon aŭ priskribon ĝis 100 vortoj”.
+
+Tiujn gvidliniojn la redaktoroj ne sekvas. Ekz. la novembra recenzo pri rakontaro de Julian Modest estas pli ol 300-vorta, kvankam ne temas pri eldonaĵo de UEA sed pri ”malpli grava literatura verko” de alia eldonejo.
+
+Ne necesas tamen kategorie limigi recenzojn al 100 vortoj. Pri ”malpli gravaj” verkoj tio sufiĉas, sed aparte grava verko povas ricevi pli da spaco, kvankam por pli funda trakto de beletraĵoj ekzistas ekz. Beletra Almanako kaj retaj forumoj. La rubriko de Esperanto servas al la Esperanta librokulturo kaj -merkato plej bone per abunda provizo de koncizaj recenzoj.
+
+Titoloj karakterizas revuojn kaj gazetojn. Viglaj, trafaj titoloj sugestas vivan enhavon, sed en la revuo regas pezaj, senfantaziaj titoloj, kiuj ne invitas al legado. Tipa estas tiu de la menciita intervjuo kun la nova estraranino: Kelkaj demandoj al D-ino Gong Xiaofeng (Arko) . Lerta redaktoro utiligus por titolo iun eron el la intervjuo, sed nun aperas dubo, ĉu la redakcio entute legis la respondojn.
+
+La titolo La 56-a ILEI-kongreso kaj la 79-a Internacia Junulara Kongreso estas ne nur morta sed superflue ripeta, ĉar en la rubriktitola skatolo supre jam staras IJK/ILEI-kongreso . La oktobra artikolo de Gian Carlo Fighiera nomiĝas La tri ĉefurboj de Esperanto , kiu estus taŭga titolo, se ja temus pri tri urboj, sed temas nur pri Herzberg. La unua frazo mencias ankaŭ Varsovion kaj Roterdamon, sed tio ne sufiĉas por pravigi la titolon. Se la redakcio legis la tekston, ĝi devus titoli ĝin kun referenco nur al Herzberg.
+
+Pinte teda titolo aperis en septembro: Komentoj de s-ro Gian Carlo Fighiera preparitaj por prezento en la Fermo de la 108-a Universala Kongreso de Esperanto, Torino, la 5-an de aŭgusto 2023 . Estis mallerte fari la titolon longa kvazaŭ alineo, kies enhavo krome aperas tuj poste en la teksto. Por kapti la leganton eblus krei titolon el iu ero en la vortoj de Fighiera aŭ mem bildigi la tekston du-tri-vorte anstataŭ imiti stilon de nordkorea partia organo.
+
+Burokratiaj titoloj aperas ĉiunumere, ekzemple la ĵusan decembran svenige malfermas La arkivo de Universala Esperanto-Asocio en la Esperantomuzeo kaj Kolekto por Planlingvoj de la Aŭstria Nacia Biblioteko . Post tia titolego artikolo fariĝas preskaŭ ne bezonata.
+
+Tre malsukcesa titolo en novembro estas Rezultoj de la UEA-enketilo: 2-a raporto de Duncan Charters, Prezidanto de UEA. Necesis indiki Charters kiel aŭtoron sub la titolo kaj ne memorigi pri lia prezidanteco, ĉar tion la leganto scias.
+
+Laŭ la redaktopolitika dokumento la revuo devas ”provizi senpartian kaj altnivelan forumon por movadaj diskutoj, unuavice pri la agado de UEA, duavice pri aliaj movadaj temoj”.
+
+Tamen, diskuto mankas. Fojfoje aperas tekstoj, kiuj povus naski komentojn, sed tiuj ne venas. Ĉar reagoj ne aperas, oni konkludas, ke ili eĉ ne estas atendataj. Interaktiveco do mankas. Iam la revuo havis viglan rubrikon Reagoj , kun mallongaj kontribuoj ne nur pri aperintaj artikoloj sed pri diversaj aliaj aferoj. Tiu rubriko malaperis.
+
+Eĉ la kontribuo kun la kapo Letero de leganto en februaro ne estis reago sed artikolo de Etsuo Miyoshi pri sia disŝutado de mono por reklamkampanjo en eŭropaj tagĵurnaloj. Ĝi en si mem estus fekunda temo por reagoj, kiujn iniciatema redaktoro povus inviti. Maniero por revivigi la rubrikon estus ĝuste mendo de reagoj, ekz. al la lastetempaj artikoloj de Duncan Charters pri la strategio de UEA. Apero de reagoj allogus pliajn kaj la redakcio ne plu bezonus mendi ilin sed nur – ho ve! – redakti.
+
+Reagoj cetere mankas ankaŭ en la retejo de la revuo, kiu ĉefe afiŝas nur enhavtabelojn de unuopaj numeroj. Ankaŭ en la Facebook-paĝo de la revuo estus facile komenti, sed ŝajne la redakcio jam forgesis ĝian ekziston, ĉar nenio aperis tie post novembro 2022. Eble temas pri tio, ke ne plu eblas aliri Facebook en Rusio. Tiukaze oni solvu la prizorgon de la paĝo alimaniere.
+
+La revuo ĉesis esti funkcia parto en la agado de UEA. Kion ajn faras UEA, tio devas eĥiĝi en la revuo. Ĝi devas esti montrofenestro, kiu ĝisdatigas la leganton pri la vivo de la asocio. Elementa devo de oficiala organo estas raporti pri la laboro kaj decidoj de la gvidaj organoj de UEA, sed oni vane serĉas raportojn pri iliaj kunvenoj.
+
+Eĉ skandale estas, ke la revuo ne ĝustatempe raportis pri la planoj kaj decidoj vendi la domon de UEA, likvidi la bibliotekon, fordoni la arkivon kaj privatigi la kongresan fakon kaj la libroservon.
+
+Tiuj, kies informiĝo pri UEA dependis de la revuo, eksciis pri tiuj drastaj ŝanĝoj, kiam ne plu eblis laŭtigi sian voĉon pri ili. Feliĉe ankaŭ ĉi-kaze Libera Folio faris tion, kion devus fari la oficiala organo. Facilan taskon ĝi ne havas, ĉar Libera Folio ofte plendas en UEA-temaj artikoloj, ke informpetoj al la respondeculoj de UEA renkontas silenton aŭ longe prokrastitajn kaj apenaŭ enhavajn respondojn.
+
+Krom Reagoj , mi sopiras la iam tre popularan rubriktriopon Loke-Fake-Persone , kiu konsistis el mallongaj noticoj pri movada vivo tra la mondo. La oficeja redaktoro kompilis ĝin el informoj en dekoj da gazetoj kaj bultenoj, kiujn la CO ricevis. Mi ne scias, kio nun okazas pri ili, sed ĵurnalisme kapabla redaktoro scius fari riĉan rubrikon el la materialo, kiu ŝprucas el la reto.
+
+Ankaŭ la enpaĝigo ne helpas por kapti la atenton de la leganto. Krom la manko de strukturo, la tekstoj ne distingiĝas inter si ankaŭ per grafikaj rimedoj. Praktike ĉie estas uzata sama litertipo kaj -grando. Oni ignoras la normalan praktikon de revuoj komenci artikolon per konciza enkonduko, krom ĉe mallongaj tekstoj, kaj apartigi ĝin disde la artikolo per kursivo aŭ grasigo, kolora fono aŭ alimaniere.
+
+Ofte la aŭtoro jam verkis la unuan alineon kiel enkondukon, kiu bezonas nur elstarigon, alikaze la redakcio verku ĝin. Longaj tekstoj estu provizitaj per subtitoloj, se la aŭtoro ne faris tion. Ankaŭ tiel oni farus la revuon impresi vigle kaj freŝe, kio invitus al legado kaj farus ĝin pli agrabla kaj facilflua.
+
+Alia problemo estas fotoj . Nun aperas ofte senvivaj grupfotoj kaj portretoj kaj oni malpli vidas fotojn, en kiuj io okazas aŭ estas farata. Sama artikolo, eĉ neampleksa, povas esti akompanata de pluraj fotoj, ofte tre malgrandaj. Ŝajnas, ke oni uzas ĉiujn fotojn, kiuj venis kun la teksto, kaj ili fariĝas etaj pro manko de spaco.
+
+Denove do mankas redaktado, t.e. elekti fotojn, aŭ nur unu, kiuj plej trafe ilustras la tekston. Ofta ĝena peko estas loki bildklarigon sur la foto kaj klopodi legebligi la literojn per blankaj randoj kontraŭ la malhelo de la foto. Rezulto estas aŭ nelegebla au ĉiukaze malbela.
+
+La uzo de koloroj estas kaosa kaj ne subtenas la tekston sed ofte male. Foje paĝoj impresas kvazaŭ presitaj sur bunta donacpapero kaj la anarkio de koloroj spertas psikedelan kulminon en titoloj, en kiuj koloroj dancas kvazaŭ diskotekaj lumoj.
+
+Ne malofte, tamen, oni renkontas laŭdojn al la revuo pro tio, ke ĝi estas tiel kolora, sed tiuj laŭdoj ne valoras, ĉar al iliaj eldirantoj evidente la enhavo ne gravas, dum ĝuste ĝi estas la plej grava flanko. Bone redaktita kaj elegante grafikumita revuo povus esti modela eĉ nigra-blanka.
+
+La revuo de UEA devus doni ”inspiran bildon” pri la asocio, sed ĝi ne inspiras. Ne sufiĉas ripari nur ĝiajn teknikajn kaj metiajn handikapojn, sed necesas ĉiurilate profesiigi la revuon. Necesas redakti kaj ne nur kunmeti materialojn, kiuj nun grandparte estas hazarde ricevitaj anstataŭ menditaj laŭ plano.
+
+Bone redaktata revuo elspiras, ke al la redakcio ĝi ne estas nur fonto de enspezo sed io pli grava, eĉ pasio. Pro sia rolo kiel la oficiala organo de UEA la revuo estas la plej grava periodaĵo en Esperantujo. La prestiĝo de UEA inter esperantistoj multe dependas de ĝi ankaŭ en la nuna reta epoko. Tial necesas plibonigi ĝin por iom post iom atingi, ke denove membroj kaj abonantoj senpacience atendos novan numeron.
+
+Osmo Buller
+
+
+---
+
+# Daŭre mankas solvo por la libroservo de UEA
+
+**Published:** 2023-12-05
+
+**URL:** https://www.liberafolio.org/2023/12/05/daure-mankas-solvo-por-la-libroservo-de-uea/
+
+**Categories:** UEA
+
+Granda majoritato el la membroj de UEA opinias la libroservon tre grava servo. Tamen daŭre malklaras, kio okazos pri la libroservo de UEA, kiam la domo de la Centra Oficejo estos vendita. Aliflanke la vendo de la domo prokrastiĝas. Pri tio rakontis estraranoj dum la Virtuala Kongreso.
+
+Dum la ĵusa Virtuala Kongreso estraranoj de UEA kaj la ĝenerala direktoro Martin Schäffer respondis al demandoj de kongresanoj. Oni eksciis interalie ke daŭre mankas solvo por la daŭrigo de la libroservo de UEA, kvankam ĝuste ĝi estas servo, kiun membroj de UEA en ĵusa enketo opiniis nepre konservinda.
+
+La plej grava libroservo de Esperantujo, kun la plej granda stoko de eldonaĵoj, daŭre funkcias en la konstruaĵo de la Centra Oficejo en Nieuwe Binnenweg en Roterdamo – domo kiun UEA decidis vendi. Plu prizorgas ĝin la multjara respondeculo Ionel Oneț, kiu devis emeritiĝi fine de 2022.
+
+Jam antaŭ pli ol du jaroj la komitato de UEA decidis , ke la tasko prizorgi la libroservon de la asocio estos transdonita al la organizaĵo E@I en Slovakio. Tamen de unu jaro respondeculoj de E@I ne respondas demandojn de Libera Folio pri la temo, kaj ŝajnas ke UEA sensukcese serĉas aliajn solvojn.
+
+– Oni ankoraŭ esploras pri la libroservo. En nia enketilo 77 procentoj kredas, ke tre gravas ke UEA daŭrigas la libroservon, do ni kompreneble tre dankas al Ionel Oneț, ke li daŭrigas labori dum ĉi tiu transira periodo. Ni serĉas la plej bonan solvon por tio, kaj certe ni havos solvon, sed tio estas unu el la aferoj kiujn ni devas nun prilabori, diris prezidanto Duncan Charters dum la programero UEA respondas.
+
+Laŭ la fontoj de Libera Folio UEA lastatempe komencis esplori pri la eblo transloki la libroservon ne al Slovakio, sed al Pollando. Tamen tute ne klaras, kiu organizaĵo aŭ kiuj personoj en Pollando pretus kaj kapablus kompetente prizorgi la grandan taskon.
+
+Pendas aliflanke ankaŭ la vendo de la domo en Nieuwe Binnenweg, pri kiu la komitato de UEA decidis en februaro 2022 .
+
+– Ni havis interesatojn pri la aĉeto, sed post la diskutoj en la komitato ni frontis kelkajn elementojn. Ekzemple, la firmao kiu subtenas nin en tiu vendopropono proponis, ke ni ambiciu pri pli alta prezo. Ni ne vidis bezonon de urĝo, sed post tio venis diversaj aferoj en la mondo, interalie milito de Rusio kontraŭ Ukrainio. Tio bedaŭrinde influis la merkaton kaj la etoson en Eŭropo, kaj tio iomete malhelpis la evoluon de la vendopropono, klarigis vicprezidanto Fernando Maia.
+
+En la nuna momento laŭ li indas atendi pri la vendo.
+
+– Nuntempe ĝi ne estas urĝa afero, laŭ mia takso. La firmao mem proponas, ke ni atendu, ĉar povas esti ke la domo plivaloriĝos, diris Fernando Maia.
+
+Pri la malapero de la Jarlibro kaj pri aliaj ”fuŝaĵoj de la duon-bakita financa reformo” demandis la prezidanto de Esperanto-Ligo en Israelo, Jehoŝua Tilleman. Ĝenerala direktoro Martin Schäffer responde klarigis, ke la redaktado de la Jarlibro postulis enorman kvanton da laboro kaj malmultaj homoj plu ĝin bezonas.
+
+– La financaj reduktoj estis bezonataj. La homoj povas diri kion oni volas, ne estas alia vojo por fari tion. Ni devas koncentriĝi al la plej gravaj temoj, li diris.
+
+Estrarano Amri Wandel siaflanke klarigis, ke la estraro ”jam de pli ol jaro serioze konsideras” la ideon de trijara presita almanako, kiu povus parte anstataŭi la Jarlibron. La ideo pri tiu almanako tamen aperis jam en 2018, kiam la tiama estraro konvinkis la komitaton nuligi la presitan Jarlibron .
+
+Wandel atentigis, ke la plej granda laboro rilatas ne al la enpaĝigo kaj presado de Jarlibro aŭ Almanako, sed al la ĝisdatigo de la datumaro.
+
+– Efektive ni devas konfesi, ke la nuna reta informbazo ne estas tiom ĝisdata kiel la lasta papera Jarlibro. Estas bezonata multa laboro. Oni devas trovi personon kiu investos multajn monatojn kaj profesie faros tion por produkti la datumbazon. Kiam tiu datumbazo jam estos ĝisdatigita kaj en la reto, tiam el tio fari paperan Jarlibron estos relative malgranda laboro. Do temas pri trovi la ĝustan personon por kolekti la informojn.
+
+Martin Schäffer ne konsentis kun Wandel pri la neaktualeco de la reta datumaro.
+
+– Ni aktualigas la aferojn kiuj venas al ni, sed ni ne persekutas la homojn. Pluraj aferoj, kiel landaj asocioj, komplete malaperas, ili simple ne respondas. Se ni ricevas informojn, ni plejeble rapide tion ŝanĝas.
+
+La longe atendata reteja renovigo cetere tute ne estis menciita dum la programero UEA respondas.
+
+Iom mirinde, dum la diskuto pri la financoj de UEA prezidanto Duncan Charters asertis, ke UEA jam de du jaroj havas eksterajn revizorojn, kiuj kontrolas la kontojn:
+
+– Pri la financa reformo ni faris unu decidon, ke ekde 2020 ni havas eksterajn revizorojn, firmaon en Amsterdamo kiu aldonas al la laboro de la komisiono kiun ni havas en la komitato. Do ni havas financajn reviziantojn, kaj ni nun havas eksterajn revizorojn konstantajn, do tion ni daŭre prilaboras kaj tio multe helpas kaj ankaŭ devas helpi certigi al la membroj ke ni bone traktas la financojn de la asocio.
+
+Efektive en julio 2021 la komitataj reviziantoj atentigis la estraron pri la manko de eksteraj revizoroj. Tiam Charters esperis povi prezenti la rezulton en la sekva komitata kunsido la 14-an de aŭgusto 2021.
+
+Solvo tamen ne estis prezentita, kaj en julio 2023 la komitataj reviziantoj denove atentigis , ke mankas raporto de profesiaj revizoroj. Se efektive ekzistas la konstantaj eksteraj revizoroj, pri kiuj parolis la prezidanto de UEA, eblas demandi, kie kaŝiĝas la raportoj kiuj devus montri al la membroj ke la financoj estas bone traktataj.
+
+
+---
+
+# UEA antaŭvidas plian ŝrumpon de kotizoj
+
+**Published:** 2023-12-12
+
+**URL:** https://www.liberafolio.org/2023/12/12/uea-antauvidas-plian-srumpon-de-kotizoj/
+
+**Categories:** UEA
+
+La membraro de UEA kresketas, sed la enspezoj de kotizoj ŝrumpas. La malkresko plej evidentas en la kategorio membroj-abonantoj. Laŭ la buĝeta propono por 2024 la domo en Roterdamo ne estos vendita venontjare kaj nenio ŝanĝiĝos pri la libroservo. La salajraj kostoj altiĝos kaj UEA havos deficiton.
+
+La membraro de UEA daŭre kreskas. Tion raportis la vicprezidanto de UEA, Fernando Maia, en la programero ”UEA respondas” dum la ĵusa Virtuala Kongreso:
+
+– Ni ŝanĝis la membrosistemon al ”membro baza” kaj ”membro-abonanto”. Tio verŝajne pozitive spegulis la aferon en nia membraro. Ekde 2020 la membraro ĉiujare kreskas. Ĉiujare estas konstanta kresko de ĉirkaŭ tri procentoj. TEJO unuafoje dum longa tempo superis mil membrojn. Tio estas pozitiva atingo de la reformo, kaj UEA ne plu havas deficiton.
+
+Alia sekvo de la kotizaj reformoj de UEA estas, ke la ”konstanta kresko” de la membraro ne speguliĝas en la enspezoj de UEA. Eĉ male, ĉiujare la sumo de kotizoj konstante malkreskas. Tion montras trarigardo de la spezokontoj de UEA dum la lastaj dudek jaroj.
+
+Ankaŭ por la venonta jaro UEA prognozas malkreskon de la kotizaj enspezoj. En 2022 la suma kvanto de la kotizoj de individuaj membroj estis proksimume 131 300 eŭroj, ĉi-jare oni buĝetis 123 900 eŭrojn kaj venontjare oni laŭ la buĝeta propono atendas enspezon de 118 200 eŭroj.
+
+Plej klare la tendenco videblas en la evoluo de la ĉefa enspeziga membrokategorio membroj-abonantoj, la membroj kiuj pagas por la revuo Esperanto. Antaŭ dudek jaroj la suma enspezo de tiu membrokategorio estis proksimume 120 000 eŭroj, sed por la venonta jaro oni buĝetas enspezon de nur 40 000 eŭroj.
+
+La suma inflacio en Nederlando dum la aktuala periodo estas 53 procentoj, do la buĝetita enspezo por 2024 valoras nur 26 000 eŭrojn de la jaro 2004.
+
+La malkresko de la kotizaj enspezoj estas unu el la ĉefaj tendencoj, videblaj en la propono de buĝeto , kiun la estraro de UEA ĉi-jare publikigis rekorde malfrue, nur la 6-an de decembro. Ĝenerala direktoro Martin Schäffer en mesaĝo al la komitato klarigis la malfruon jene:
+
+”La unua versio de la buĝeto pretis jam en junio 2023, sed ni tute konscie ne prezentis ĝin en tiu momento. Se estas multe da tempo inter la decido kaj la komenciĝo de la spezojaro, la buĝeto kompreneble ne reprezentas la lastajn evoluojn.”
+
+Laŭ li en antaŭaj jaroj pli facilis kunmeti buĝetproponon ”ĉar apenaŭ estis multe da diferenco de unu jaro al alia”. Nun aliflanke laŭ li malklaras interalie la evoluo de la inflacio, de eŭropaj subvencioj, dungoj kaj la situacio pri la Centra Oficejo kaj pri la projekto Akso, kiu devus doni al UEA novan retejon kaj administran sistemon.
+
+Martin Schäffer skribis, ke li bonvenigas demandojn, sed ŝajne ĉio estas kristale klara al la komitatanoj, ĉar ĝis nun eĉ ne unu demando pri la ĉefa financa dokumento de la asocio aperis en la komitata diskutejo. Libera Folio aliflanke havas multajn demandojn, sed al tiuj Martin Schäffer preferis ne respondi:
+
+–Mi dubas, ĉu mi bone investus mian tempon, se mi respondus? Nur, ke poste aperu tendenca artikolo, kiu iel ajn ne prezentus la aferon en bona lumo? Kiu profito estus?
+
+La demandoj de Libera Folio temis interalie pri la elspezoj por salajroj kaj eksteraj laborfortoj, ĉar ne klaras, por kiuj eksteraj laborfortoj oni buĝetas 25 000 eŭrojn, nek kial oni ĉi-jare buĝetis tutajn 55 000 eŭrojn por eksteraj laborfortoj, dekoble pli ol oni elspezis en 2022.
+
+Ĉiukaze supozeble ne temas pri la administrado de la nova administra sistemo Akso, se ĝi estos funkciigita. Tiu kosto kredeble troviĝas en la buĝetero ”reteja prizorgado”, kiu kreskas de 3 600 eŭroj al 12 600.
+
+Same ni ne scias, kiuj estas la ”aliaj oficejoj”, por kiuj oni ĉi-jare buĝetis 38 000 eŭrojn kaj venontjare 31 000. Tio estas multege pli ol oni elspezis por ”aliaj oficejoj” en antaŭaj jaroj – en 2022 tiu buĝetero estis proksimume 5 240 eŭroj. Ankaŭ al tiu demando Martin Schäffer rifuzis respondi, dum prezidanto Duncan Charters kaj vicprezidanto Amri Wandel tute ne respondis al la retmesaĝo de Libera Folio .
+
+Plia demando, kies respondon eblas nur konjekti laŭ la nudaj ciferoj de la buĝeta propono, rilatas al la sorto de la libroservo de UEA. Ĉar la buĝeto antaŭvidas similajn enspezojn kaj elspezojn kiel en 2022, la gvidantoj de UEA supozeble atendas ke nenio ŝanĝiĝos kaj la libroservon ankaŭ dum la tuto de 2024 plu prizorgos Ionel Oneț, kies emeritiĝo estis antaŭvidita por la fino de 2022.
+
+Same nenia ŝanĝo antaŭvideblas en la Eldona Fako, kie oni samkiel dum multaj antaŭaj jaroj plu buĝetas nul eŭrojn por novaj libroj.
+
+Ĉe la punkto ”revizorado” oni laŭ la rezulto de la jaroj en 2021 kaj 2022 elspezis precize nul eŭrojn. Tio klare montras, ke en tiuj jaroj UEA ne havis eksterajn profesiajn revizorojn, male ol asertis prezidanto Duncan Charters dum la Virtuala Kongreso. En la jaroj 2023 kaj 2024 por revizorado estas buĝetita la ronda sumo de mil eŭroj.
+
+[Vidu sube aserton de Martin Schäffer, laŭ kiu UEA ja havis profesiajn revizorojn, sed ne pagis por ili.]
+
+Libera Folio demandis al la tri menciitaj respondeculoj de UEA, ĉu la asocio efektive trovis profesian revizoron, kiu pretas labori por tiu sumo, aŭ ĉu oni nur esperas je tio. Respondon ni ne ricevis.
+
+Cetere ne ŝajnas plene validi la aserto, ke ”UEA ne plu havas deficiton”. En 2021 kaj 2022 la asocio laŭ la spezokonto efektive havis malgrandan pluson, sed por la jaro 2023 oni ja buĝetis deficiton de proksimume 51 000 eŭroj, kaj por la jaro 2024 deficiton de 45 000 eŭroj.
+
+La buĝeta propono estos pritraktita en eksterordinara reta komitata kunveno, kiu okazos en la 17-a de decembro. Laŭ la tagordo , ial nur post la decido pri la buĝeto okazos diskuto pri la aŭgusta raporto de la komisiono pri financo. Tamen grava punkto en la raporto estis la sorto de la Akso-projekto – decido, kiu influas la elspezoj de UEA dum la venonta jaro.
+
+Cetere ĝis nun ne aperis la protokolo de la pasinta komitata kunsido, okazinta la 4-an de aŭgusto. La manko de protokolo estas rekta malobservo de la regularo de UEA, laŭ kiu la protokolo devas esti havebla plej laste unu monaton post la kunveno.
+
+15-an de oktobro, responde al demando de komitatano, Aleks Kadar anoncis, ke li ”strebos” publikigi la protokolon antaŭ la 21-a de oktobro. Tio tamen ne okazis. Anstataŭe en la tagordo de la baldaŭa kunveno nun aperas la enigma punkto ”Protokolo de la komitatkunsidoj en Torino – informo”.
+
+2023-12-17: Laŭ peto de Martin Schäffer, Ĝenerala Direktoro de UEA, ni aperigas la ĉi-suban replikon:
+
+Korekto kaj kontraŭa prezento
+
+La artikolo “UEA antaŭvidas plian ŝrumpon de kotizo” parte prezentas malveraĵojn kaj tordas aferojn. En la koncerna evento de la Virtuala Kongreso mi tute ne asertis, ke la membraro de UEA daŭre kreskas. Mi informis, ke UEA perdadas membrojn en la kategorio MA kaj mi prezentis la koncernajn riskojn por la estonteco. Mi ankaŭ ne faris la asertojn, kiuj LF sekve atribuis al mi. La aserto, ke mi plene rifuzis respondi, ne prezentas la kompletan veron. Tagon antaŭ la aperigo de la artikolo, mi informis, ke mi unue ŝatus fini dokumenton kun notoj por la komitatanoj, kiu respondas plurajn demandojn de LF kaj ke mi nur poste povus helpi pri la demandoj de LF. Fake mi ŝatus atentigi, ke buĝeto estas prognozo, sed ideale ĝi prezentas maksimumon ĉe elspezoj kaj minimumon ĉe enspezoj. Mi preparis la buĝetojn 2019 – 2022. Neniam la rezulto estis pli malbona ol laŭ la prognozo. Dum la historio de UEA oni ofte prognozis ekvilibran spezokonton, sed poste la rezulto estis negativa. En la jaroj 2020 – 2022 la rezulto de UEA ne nur estis pozitiva, sed eĉ okazis kreo de konsiderindaj rezervoj por pluvaj tagoj de la asocio. Ankaŭ por 2023 mi prognozas, ke ni atingos ekvilibran spezokonton. LF en la artikolo sekve asertas, ke ĝi scias la veron pri la revizorado, ĉar en la spezokontoj de UEA de la jaroj 2021 kaj 2022 ne aperas elspezoj. Tamen la informo de LF estas malvera. UEA kontraktis kun revizora entrepreno, tamen ne estis elspezo flanke de UEA, ĉar okazis transpreno de la kostoj fare de alia organizaĵo.
+
+Martin Schäffer, Ĝenerala Direktoro de UEA
+
+Noto de la redakcio: Efektive eldiraĵo de vicprezidanto Fernando Maia dum la programero “UEA respondas” estis erare atribuita al Martin Schäffer. Ni pardonpetas pro la eraro, kiu nun estas korektita en la unua alineo de la artikolo.
+
+
+---
+
+# La tria laŭro al imperiestrinaj memoraĵoj
+
+**Published:** 2023-12-15
+
+**URL:** https://www.liberafolio.org/2023/12/15/la-tria-lauro-al-imperiestrinaj-memorajoj/
+
+**Categories:** kulturo
+
+La plej prestiĝan literaturan premion de Esperantujo, la Laŭron de la Akademio, ĉi-jare ricevis Anna Löwenstein por sia verko ”La memoraĵoj de Julia Agripina”. La ricevinto de la pasintjara Laŭro, Sten Johansson, trovas la premiiton tre inda.
+
+La 15-an de decembro 2023, en la tago de la Esperanto-libro, aŭ Zamenhof-tago, la Akademio de Esperanto asignis sian ”Laŭron de la Akademio” al la historia romano La memoraĵoj de Julia Agripina de Anna Löwenstein, eldonita de Flandra Esperanto-Ligo en 2021. Ĝi estas ŝia tria historia romano pri romanoj, tio estas pri loĝantoj de Romo antaŭ du mil jaroj, kaj ĝi estas la tria verko gajninta tiun premion.
+
+La verko ampleksas 564 paĝojn, do fizike ĝi estas peza briko, tamen tute ne peze legata. Same kiel ŝiaj antaŭaj libroj ĝi estas verkita anglalingve sed esperantigita de la aŭtoro mem kaj do konsiderata kiel verko originale Esperanta. Ĝia ĉefa protagonisto estas unu el la plej potencaj virinoj en la historio de la Romia imperio, Julia Agripina, konata kiel Agripina la pli juna. Tio do alportas perspektivon desupre, sed interalie dank’ al la virina vidpunkto kaj trafa psikologio tio montriĝas sufiĉe bona kaj fekunda aspekto.
+
+Agripina estis pranepino, pranevino, fratino, nevino kaj edzino, kaj fine patrino de kvin sinsekvaj imperiestroj. Do temas pri eksterordinare potenca virino. Tamen oni sentas tre forte en la rakonto ke ŝi suferas egan obstaklon pro sia sekso. Tial ŝia ambicio plej ofte estas regi pere de siaj viraj proksimuloj.
+
+Laŭ mi la verko estas tre sukcesa. Eble eta problemo estas ke ju pli la potenco-kariero de Agripina supreniĝas, des pli ni vidas ĉion el supra socia pozicio, kaj laŭ mi tio ofte estas malpli interesa (kaj foje malpli rivela) ol la desuba vidpunkto. Ekscito ja restas, ĉar la intrigoj kaj komplotoj pli kaj pli dominas en ŝia vivo, sed iom mankas la ĝenoj kaj ĝojoj de pli ordinara vivo.
+
+Dum partoj de ŝia vivo trafas ŝin sufiĉe dramaj batoj de la sorto, aŭ pli ĝuste de konspirantaj parencoj kaj konkurantoj pri la potenco. Pluraj epizodoj estas tre ekscitaj, interalie la fino. Sed la plej grandan parton de la romano okupas ĉiutaga vivo plena de intrigoj fare de personoj ĉe la absoluta pinto de la socio. La potencavido saturas la vivon de preskaŭ ĉiuj, inkluzive de Agripina mem.
+
+Esceptokaze oni tamen spertas ankaŭ malpli majestajn mediojn. Precipe fiksiĝis en mia memoro vizito de Agripina en ordinaran metiistan kvartalon de urbo sur la insulo Pontio, kie ŝi vivas en ekzilo. Tie la aŭtoro majstre kreis senton de ĉeesto surloke:
+
+Finfine ŝi sentis, ke la portistoj denove levas la liton sur siajn ŝultrojn. Ili veturigis ŝin tra mizera kvartalo de butiketoj kaj metiejoj, kie resonadis la frapfrapa tintado de marteloj kontraŭ metalo. La portistoj devis halti du-tri fojojn por demandi pri la ĝusta vojo, antaŭ ol ili atingis homplenan straton inter du vicoj da vendejoj. Ĉi tie troviĝis la kanaboteksistoj, la ŝnuristoj, la matracofaristoj, kaj aliaj similaj metioj. Tra la malfermitaj pordoj Agripina vidis virojn laborantaj ĉe teksiloj, dum ekstere sakoj da kanabo aŭ lino blokis la mallarĝajn trotuarojn. Klientoj promenis laŭ la vojo, grupoj de viroj sidis sur malaltaj taburetoj ekster la vendejaj pordoj por trinki vinon kaj klaĉi, virinoj kaŭris laŭ la trotuara rando por pretigi legomojn, kaj infanoj kaŭris por malpli higiena celo. (p. 263-264)
+
+Ofte Agripina bedaŭras ke ŝi ne povas ludi pli rektan kaj oficialan rolon en la ŝtato, ĉar ŝi estas virino. Tio do aldonas feminisman tavolon al la verko, sed malfacilas prijuĝi, ĉu tio estas trafa aŭ eble iomete anakronisma. En historiaj romanoj ĉiam pli facilas fideli pri konkretaĵoj ol pri ideoj kaj pensoj de la rolantoj. Kaj la romano vere plenplenas de interesaj detaloj kaj faktoj pri la epoko, kaj praktike ĉiuj impresas al mi kredindaj kaj trafaj, de variaj harmodoj ĝis la aspekto kaj gusto de manĝoj. Fakte mi estas sufiĉe kritikema leganto, kaj en aliaj verkoj ofte ĝenas min detaloj, kiuj ŝajnas dubindaj, sed tio preskaŭ neniam okazas ĉi tie.
+
+La stilo de la tuta verko estas tre flua kaj plaĉa. La lingvaĵo en formo de vortelektoj kaj frazaranĝoj estas plaĉa kaj normala Esperanto modere moderna.
+
+Mia fina kaj resuma prijuĝo pri la verko do estas tre pozitiva. Sen granda hezito mi konsideras ĝin la plej sukcesa el la tri romanoj de Anna Löwenstein, almenaŭ la plej lerte kreita. Eble la unua, La ŝtona urbo , havis apartan freŝecon kaj originalecon dank’ al la vidpunkto de brita sklavino, sed La memoraĵoj de Julia Agripina pruvas ke intertempe la aŭtoro ege lertiĝis pri konstruado kaj plenumado de romano.
+
+Sten Johansson
+
+
+---
+
+# UEA aprobis deficitan buĝeton sen protokolo
+
+**Published:** 2023-12-19
+
+**URL:** https://www.liberafolio.org/2023/12/19/uea-aprobis-deficitan-bugeton-sen-protokolo/
+
+**Categories:** UEA, movado
+
+La komitato de UEA en reta kunsido dum dimanĉo la 17-a de decembro aprobis buĝeton, kiu antaŭvidas deficiton de 45 000 eŭroj. Ĝenerala direktoro Martin Schäffer tamen antaŭvidas, ke ne estos deficito. Protokolo de la antaŭa kunsido daŭre mankas, do ne klaras kio estis decidita tie.
+
+Komence de la dimanĉa reta kunsido de la komitato de UEA eĉ ne klaris, ĉu eblos fari validajn decidojn, ĉar mankis kvorumo. Por ke la komitato estu decidopova, devas ĉeesti minimume duono el la komitatanoj, do 27 personoj, sed mankis unu.
+
+La komitata kunsido estis kunvokita laŭ la regularo, unu monaton anticipe, sed multaj komitatanoj ne trovis tempon por partopreni la diskuton kaj decidon pri la plej grava financa dokumento de la asocio. Malĉeestis komence de la kunsido ne nur la komitatanoj A de multaj gravaj landoj, sed ankaŭ du el la kvar komitatanoj B, kiuj reprezentas la individuajn membrojn – kaj kvar el la sep komitatanoj C, kiuj estas elektitaj al la komitato pro siaj aparte bezonataj spertoj.
+
+En la daŭro de la kunsido oni tamen atingis la magian limon, kaj valida decido pri la buĝeto de la venonta jaro estis atingita.
+
+Dum la buĝeta diskuto ĝenerala direktoro Martin Schäffer klarigis, ke kvankam la buĝeto antaŭvidas deficiton de proksimume 45 000 eŭroj, efektive li mem ne antaŭvidas deficiton entute.
+
+– Mi jam komentis en la komitata listo, ke tradicia, bone farita buĝeto prezentas maksimumojn ĉe elspezoj kaj minimumojn ĉe enspezoj. Kvankam ni venas nun al deficito, mi ne pensas ke ni vere havos poste deficiton.
+
+Komitatano Renato Corsetti demandis, kial la buĝeto do antaŭvidas deficiton, se la ĝenerala direktoro tion ne faras. Martin Schäffer klarigis, ke oni esperas elspezi malpli ol buĝetite ekzemple pri laborfortoj, kaj se oni sukcesos vendi la domon ĉe Nieuwe Binnenweg 176, estos malpli da kostoj pri ĝi.
+
+– Mi prezentis buĝetojn en la jaroj 2019, 2020, 2021, 2022. Ĉiam la fina rezulto estis pli bona ol atendite. Kaj en la lastaj tri jaroj, supozeble inkluzive de la jaro 2023, ni ja ne havos deficiton. Sed kiel dirite, mi ne povas tute ekskludi tion, ĉar se iuj evoluoj estos ekstreme malbonaj, kompreneble povus tamen aperi deficito. Sed mi absolute ne atendas tion.
+
+Komitatano Guy Matte siavice volis kompreni, kien povis malaperi la antaŭvidita deficito de 51 000 eŭroj dum la nuna jaro.
+
+– Ĉefe temis pri tio ke kostoj estis malpli altaj ol laŭ la prognozo, kaj estas tiel ke la enspezoj estis pli altaj ol la prognozo, respondis Martin Schäffer.
+
+Tiu ĝenerala klarigo ne kontentigis Guy Matte:
+
+– Mi tute komprenas. Estu iom pli preciza. 50 000 eŭroj ne estas ke ni trovis du eŭrojn tie ĉi kaj tri eŭrojn tie. Devas esti kelkaj gravaj lokoj en tia buĝeto kie oni trovis rimedojn, aŭ oni ne elspezis grandan sumon. Ne povas esti unu aŭ du eŭroj en ĉiu loko, ĉu ne?
+
+– Kompreneble. Sed nun ni ne diskutas pri tiu buĝeto kaj mi ne preparis ĉiujn ciferojn por la nuna jaro. Mi ne havas tion ĉemane. Mi certas ke ni havos sufiĉe da rimedoj kaj tre malverŝajne ni havos deficiton. Ĉar estis ŝparoj ĉe pluraj lokoj, speciale ankaŭ ĉe aliaj oficejoj, estas supozeble pli altaj enspezoj ĉe UK, estas enspezoj de subvencioj kiujn ni ne planis, sed kiujn ni havos supozeble. Tiuj enspezoj de la subvencio supozeble ankaŭ savos nin en 2024, respondis Martin Schäffer.
+
+Vicprezidanto Fernando Maia aldonis ke per intensa laboro de la estraranoj la asocio sukcesas ekvilibrigi siajn financojn:
+
+– UEA bezonas akiri ĉiutage ĉirkaŭ mil eŭrojn, kaj tio ne facilas. Vere tio postulas de la estraro, de la stabanoj, grandan sindediĉon. Do mi pensas, ke estas saĝe buĝeti kun deficito, ĉar ni ne povas garantii vere ke ni havu tiom da energio por akiri la rimedojn. La rimedoj ne venas spontanee, ni devas multe labori por tio kaj vere labori ekster niaj normalaj horoj kaj tiel plu. Se ni tion ne faros, ni havos deficiton.
+
+Tyron Surmon, reprezentanto de TEJO, demandis pri la planata drasta altiĝo de la salajraj kostoj, kaj samtempa malaltiĝo de la buĝetero por eksteraj laborfortoj:
+
+– Kiom da homoj UEA dungas? Kiun vi planos dungi poste?
+
+Laŭ Martin Schäffer la malpliiĝo de elspezoj ĉe eksteraj laborfortoj temas pri tio, ke en tiu buĝetero nun restas nur la kongresa fako, dum pli frue oni tie antaŭvidis kostojn por la reteja projekto Akso, kaj por la libroservo, kiun devis prizorgi ekstera organizaĵo.
+
+Pliaj dungoj povus iĝi aktualaj per administra subvencio de EU, klarigis Martin Schäffer.
+
+– Ni jam havis komunan kunsidon kun la personoj, kiuj administras la subvenciojn de TEJO, kaj do ni vidos ĉu ni eventuale kune kun TEJO povus fari malferman alvokon en januaro. Ĉio kompreneble dependas de tio,  ke ni ricevos aldonajn rimedojn pere de administra subvencio. Se ni tion ricevos, ni kune kun TEJO devos pripensi, kiuj laborfortoj estas plej urĝe bezonataj.
+
+Laŭ Schäffer povus temi ekzemple pri organizado de kursoj, reta merkatigado, interna komunikado kaj farado de videofilmoj.
+
+– Ĉio ankoraŭ ne estas plene planita, sed kiel dirite, tio ne influus aldone la buĝeton. Se estos aldonaj elspezoj, ni havos ankaŭ aldonajn enspezojn.
+
+Lastatempe en la retejo de UEA jam aperis du novaj dungitoj de UEA: Mallely Martínez Mateos, la edzino de la ĝenerala direktoro, kiu pli frue aperis kiel ”volontulo”, kaj Lu Wunsch-Rolshoven, kiu laŭ la retejo iĝis oficisto pri komunikado. La nomo de Lu Wunsch-Rolshoven, kiu aperis en la retejo en lundo la 18-a de decembro, jam en la sekva tago ial malaperis.
+
+(Poste Lu Wunsch-Rolshoven tamen reaperis en la listo, nun kun la precizigo ke li okupiĝas pri nemovada komunikado.)
+
+Komitatano Rubén Sánchez demandis interalie ĉu la nova kotizosistemo donis la antaŭviditan pozitivan rezulton. Laŭ Martin Schäffer la respondo estas ĝenerale ”jes”.
+
+– La ŝanĝo laŭ mi funkciis, la kotizoj de UEA estas sur pli stabila bazo, ĉar ni havas de la kategorio MB [membro baza] pli da enspezoj. Sed mi jam avertis dum la Virtuala Kongreso, problemo estas ĝuste ke malpli da homoj abonas la paperan revuon, kaj tio reduktas la enspezojn sufiĉe multe.
+
+– Tio estas zorgiga afero, sendube. Kaj ankaŭ alia zorgiga punkto estas, ke kompreneble niaj membroj daŭre fariĝas pli maljunaj, mankas bedaŭrinde sufiĉe multe da junaj homoj. Estus pli bone, se nia bazo estus demografie pli stabila. Mi esperas ke tamen la kostoj restas stabilaj kaj ke nia membraro ne tro forte malkreskas. Sed momente ni estas en tre komforta situacio, ĉar la enspezoj ĝenerale plene kovras la elspezojn.
+
+Aparte probleme laŭ Martin Schäffer estas, ke oni daŭre perdas membrojn en gravaj landoj kiel ekzemple  la skandinaviaj landoj, Nederlando, Francio kaj Japanio.
+
+Malklara punkto en la buĝeto estas la sorto de la reteja renovigo kaj nova administra sistemo, la projekto Akso. UEA daŭre ne decidis, ĉu oni fakte ekuzos la novan sistemon, por kies evoluigo oni dum dek jaroj elspezis grandajn monsumojn.
+
+En la buĝeto por 2023 estas 3 600 eŭroj por la prizorgado de la nuna retejo. En la venontjara buĝeto estas 12 600 eŭroj por la prizorgado de la retejo. La altigo de 9 000 eŭroj laŭ Tyron Surmon estas tute nesufiĉa, se UEA efektive planas ekuzi la Akso-sistemon, ĉar por ĝia prizorgado estas bezonata kompetenta programisto.
+
+– Por dungi programiston tio estas mizere malgranda sumo. TEJO pasintjare pagis 45 000 eŭrojn, kaj TEJO eĉ ne pagas la merkatan prezon. Mi pensas, ke vere, se la plano estas ne nuligi Akson, vi devas aldoni tie kelkdek mil eŭrojn.
+
+La buĝeto tamen fine estis akceptita senŝanĝe, kun entute 25 jesaj voĉoj, unu kontraŭa voĉo kaj du sindetenoj.
+
+Jam post la buĝeta decido daŭris la diskuto pri la sorto de la Akso-projekto. Laŭ Fernando Maia ĝis la fino de decembro la estraro devas ricevi raporton kaj rekomendon de programistoj, kiuj nun esploras la sistemon. Poste, komence de 2024, eblos decidi pri la afero.
+
+Aparta ero en la tagordo de la komitata kunsido estis la sorto de la protokolo de la pasinta kunsido, kiu laŭ la regularo devis esti havebla plej malfrue la 4-an de septembro, unu monaton post la kunsido. La protokolo tamen daŭre mankas. Krome, nur la 17-an de novembro, pli ol dek monatojn tro malfrue, aperis en la retejo de UEA la protokolo de la komitata kunsido okazinta la 3-an de decembro 2022.
+
+La situacio devis esti klarigita sub la tagorda punkto ”03.01 Protokolo de la komitatkunsidoj en Torino – informo”. Tamen ĝenerala sekretario Aleks Kadar, kiu devis liveri la protokolon, havis nenion por raporti kaj decidis anstataŭe ŝerci:
+
+– Jes, protokoloj de la komitatkunsidoj en Torino… La protokolo estas preskaŭ preta. Ĝi estos preta antaŭ la jarfino. Sed mi ne diras kiu jaro… Ĝi estos preta antaŭ la fino de la jarcento!
+
+Kiam vicprezidanto Fernando Maia demandis, kial la laboro pri la protokolo tiel longe pendas, la respondo de Kadar estis, ke la protokolo ja jam preskaŭ pretas.
+
+– Laŭ mi simple necesas kontrollegado fare de alia persono, sed laŭ mi ĝi estas preskaŭ finpreta, tiu Torina protokolo.
+
+Laŭ Aleks Kadar la manko de protokolo ĉiukaze neniel blokas la laborojn de la asocio. Ankaŭ la rekomendoj de la komitataj forumoj de Torino laŭ li ”tre baldaŭ” estos alŝutitaj al la retejo de UEA. Fernando Maia tamen ne tute kontentis pri la situacio.
+
+– En la estraro ni agnoskis, ke ni povus pli bone progresi pri tio, ni provis kompreni kio okazis, en kiu punkto la malfruoj okazis aŭ kiuj estis la malfacilaĵoj de la laboro.
+
+Estonte laŭ Fernando Maia eble necesos inviti apartajn protokolantojn kiuj havu la taskon liveri la protokolon ĝustatempe kaj ricevu honorarion por tio. Tiel oni laŭ li liberigus estraranojn por aliaj taskoj.
+
+
+---
+
+# Jonny M denove petolas post longa silento
+
+**Published:** 2023-12-22
+
+**URL:** https://www.liberafolio.org/2023/12/22/jonny-m-denove-petolas-post-longa-silento/
+
+**Categories:** kulturo
+
+Komence de januaro, post longa silento, aperos nova albumo de Jonny M. Al la preskaŭ sepjara paŭzo kontribuis interalie la koronvirusa epidemio. Libera Folio petis Jonas Marx, kiel li vere nomiĝas, rakonti pri sia muziko kaj la nova albumo.
+
+Unu el la plej popularaj muzikistoj inter junaj esperantistoj, Jonny M, baldaŭ aperigos novan albumon, unuafoje en preskaŭ sep jaroj.
+
+Libera Folio: Bonvolu iom rakonti pri vi mem kaj via muziko.
+
+Jonny M: – Saluton! Mi estas Jonny M, 33-jara Esperanto-muzikisto. Mi verkas regeajn kaj repajn kantojn ekde ĉirkaŭ 2010, kaj mojosaj homoj invitis min koncerti en la tuta mondo, ekzemple Azio, Sudameriko, Eŭropo kaj Afriko. En januaro, post longa paŭzo mi publikigas mian trian, profesian albumon en Esperanto, ”Jonny M – Petolas”.
+
+En via nova albumo, kio similas al viaj aliaj albumoj kaj kio novas?
+
+– Nu, espereble la similaĵo estas mia tipa stilo, mikso de regeo kaj repo. Ĉi-foje, enmiksiĝis iom da sudamerika stilo de muziko. Kaj ankaŭ, artistoj ĉiam pliboniĝas krei sian unikan stilon. Mi esperas, ke la albumo bone miksas pensigajn kantojn kun pezaj tekstoj kaj viglan muzikon por kunkanti dum koncertoj.
+
+Kiel la koronvirusa pandemio influis vian karieron kiel muzikisto?
+
+– Certe ne estis facila tempo. Kelkfoje mi kreemis, sed plej ofte mi kaŝis min endome, kaj baterioj malplenis. Pro tio, kvankam mi daŭre provis antaŭenigi la albumon, ĝi malrapide evoluis. Sed mi ĉiam diris, ke albumo venos, sed ke ĝi bezonu la necesan tempon kaj mi ne rapide publikigu ĝin sen la sento, ke ĝi vere pretas.
+
+Ĉu la albumo aperos fizike aŭ nur bite?
+
+– La albumo aperas ankaŭ fizike, ĉi-foje mi produktis nur tricent KD-ojn, ĉar kompreneble la aĉetado de diskoj malgrandiĝis dum la tempo. Ankaŭ eblas aŭskulti mian muzikon en Spotify kaj aliaj platformoj, tamen mi petas vin, se vi volas subteni mian Esperanto-muzikon, aĉeti ĝin fizike aŭ ciferece, ĉar eĉ se vi aŭdas la albumon kvincent-foje en Spotify, mi ricevus nur kelkajn cendojn, kio kompreneble ne sufiĉus por repagi la kostojn de profesia muzikfarado. Aldone, se vi aĉetas mian albumon fizike, vi ne nur ricevas la tekstojn, sed ankaŭ ŝercajn komentojn pri ili de mi mem…
+
+Laŭ vi, kiel statas la muzika scenejo en Esperantujo? Ĉu ĝi estas vigla aŭ ĉu io mankas?
+
+– Honeste, la kronvirusa tempo malhelpis. Esperantujo vivas plej per la renkontiĝoj, kaj estis ili kiuj precize suferis pro la pandemio. Kaj se la movado haltas, ankaŭ la muzikgrupoj havas problemon. La retaj aranĝoj estis alternativo por la komunumo, kaj belis revidi la amikojn. Sed el la vidpunkto de kantistoj kaj muzikgrupoj, tiuj renkontiĝoj ne kapablis pagi la kutiman monon, ĉar ili mem ne povis postuli tro de la partoprenantoj. Mi esperas, ke ĝi revenos al la antaŭpandemia statuso, se temas pri la koncertoj. Alikaze, ni ne kapablos stabiligi profesiajn muzikistojn en Esperanto.
+
+Ĉu vi planas iujn koncertojn en Esperantujo por montri viajn novajn kantojn?
+
+– Jes, la unua koncerto estos dum la Junulara Esperanto-Semajno, kie mi fakte publikigos mian novan albumon. Ankaŭ, jam konfirmitas koncerto en Marto dum la Gramatika Semajnfino en Hamburgo, kiun organizas Ralph Glomp kaj Jürgen Wulff. Mi estas en dialogo kun aliaj renkontiĝoj, sed ankoraŭ nenio certas por publikigi. Se vi interesiĝas pri miaj koncertoj, en mia retpaĝo oni trovas liston kun la okazontaj koncertoj!
+
+Robert Nielsen
+
+
+---
+
+# Esperantistoj kaj geopolitiko – kie ni staras?
+
+**Published:** 2023-12-28
+
+**URL:** https://www.liberafolio.org/2023/12/28/esperantistoj-kaj-geopolitiko-kie-ni-staras/
+
+**Categories:** vidpunkto
+
+En vidpunkta artikolo Javier Alcalde komparas la militojn en Ukrainio kaj Gazao. La artikolo interalie starigas la demandon, ĉu la esperantistoj aktive defendas Ukrainion sed ne palestinanojn ĉar ili estas plejparte eŭropanoj – kaj ĉar eŭropanoj estas plejparte rasistoj.
+
+Esperantistoj, kiel homoj ĝenerale, zorgas pri geopolitiko kaj havas proprajn opiniojn, interalie pri la militoj en Gazao kaj Ukrainio. Ĉu estas ia rilato inter ili? Ĉu ekzistas ligo inter la opinio, kiun ni havas pri unu el ili kaj tiu, kiun ni havas pri la alia?
+
+La influa portugala politik-sciencisto Bruno Maçães, kiu doktoriĝis ĉe Universitato de Harvard, proponis simplan skemon, kiu ebligas al ni orientiĝi en tiu komplekseco (lia originala artikolo en The Statesman legeblas ĉi tie) : Unue estas homoj, kiuj en la kazo de Gazao sentas sin pli proksimaj al la palestinaj postuloj kaj en la kazo de Ukrainio al la ukrainaj. Due troviĝas tiuj homoj, kiuj subtenas Israelon kaj samtempe defendas Ukrainion. Estas tria grupo, kiu apogas Israelon sed ankaŭ Rusion. Kaj fine estas tiuj, kiuj subtenas Palestinon sed ne Ukrainion.
+
+Kiel Maçães klarigas tiujn opiniojn kaj rilatojn?
+
+Maçães antaŭvidis ke la unua grupo plej multnombros, sed ŝajne la realo malsamas. Tiuj, kiuj defendas la rajton je suvereneco kiel principon, devus defendi ĝin en ĉiuj kuntekstoj, ĉu en Palestino ĉu en Ukrainio. Maçães nomas la homojn de ĉi grupo universalistoj .
+
+Tamen, se ni atentigas al tio, kion ni legas en eŭropaj kaj usonaj ĵurnaloj, multe pli granda grupo estas la dua, kies membrojn Maçães nomas okcidentistoj ; kontraŭe al la unuaj, tiuj ĉi decidas sian opinion surbaze de geopolitikaj aliancoj. Tiel, eble pro orientalisma perspektivo, ili konsideras ke la israelanoj apartenas al la okcidenta civilizacio (por uzi la terminon de Huntington), dum en la dua kazo estas la ukrainoj kiuj batalas kontraŭ Putin, evidenta malamiko de okcidentaj interesoj kaj valoroj.
+
+Trie, Maçães parolas pri darvinistoj . Homoj en tiu ĉi grupo opinias ke geopolitiko ne estas tereno por leĝoj aŭ principoj: regas la leĝo de la plej forta. En la unua konflikto temas pri Israelo kaj en la dua pri Rusio. Fine, estas tiuj, kiuj konsideras, ke la okcidenta civilizacio historie rilatas al fenomenoj kiel koloniismo kaj tial oni devas kontraŭbatali ĝin.
+
+Tiuj kontraŭokcidentistoj kritikas okcidentan rasismon, kiuj emfazas la murdon de ĉiu israela aŭ ukraina infano, sed en aliaj mondopartoj kiel Jemeno, Sirio aŭ Palestino la mortintaj infanoj estas simple kalkulitaj kiel nombro. Alivorte, ili demandas sin ĉu homa vivo valoras la samon en malsamaj kuntekstoj. Laŭ Maçães, multe da progresemuloj kaj maldekstruloj apartenas al tiu grupo, kiu asertas ke la hipokriteco de EU-landoj kiam temas pri gastigado de siriaj/ukrainaj rifuĝintoj pruvas ilin pravaj.
+
+Maçães konsideras sin universalisto. Sed kio pri la esperantistoj? Kie ni estas en lia diagramo? Ĉu ankaŭ ni decidas niajn opiniojn laŭ niaj principoj?
+
+Se rigardi, ekzemple, la dekojn da artikoloj aperintaj prie en Libera Folio , ŝajnas ke la plimulto de la esperantistoj neŝanceleble subtenas la ukrainan rezistadon al la rusa invado. Malpli klaras la kialo malantaŭ ĉi tiu subteno.
+
+Kiam la milito eksplodis, mi memoras konversaciojn pri la kaŭzoj kial la esperantistoj defendas la ukrainojn. Kelkaj diris, ke temas pri principo kaj ke, en ajna simila situacio ili prenus ekvivalentan pozicion favore al la subprematoj; tio estas, ili asertis ke la plimulto de la esperantistoj estas universalistoj.
+
+Male, aliaj diris, ke ĉar la esperantistoj estas plejparte eŭropaj kaj la eŭropanoj estas plejparte rasismaj, la kialo defendi la ukrainojn kuŝis en tio ke ili estis identigitaj kiel okcidentanoj, kaj do la plimulto de la esperantistoj estas fakte okcidentistoj.
+
+Kiuj pravis? La skemo de Maçães ebligas al ni esplori ĉi tiun demandon konsiderante duan konflikton.
+
+Pri Gazao, ĝis nun aperis du tekstoj en Libera Folio . Ambaŭ klarigas la pozicion de la israelaj esperantistoj rilate al la konflikto, ŝajne tre proksiman al tiu de ilia registaro. Dume UEA, kiu pri internaciaj rilatoj kutime akordiĝas kun la opinio de organizaĵoj pri homaj rajtoj (lingvaj rajtoj estas homaj rajtoj, ktp.) kaj kun UN (multaj el kies funkciuloj vidis lastatempe siajn vizojn rifuzitaj de Israelo) ĉi-kaze ŝajnas havi opinion eĉ malpli klaran ol en la kazo de Ukrainio.
+
+Kompreneble, tiu de Maçães estas nur skemo, kaj tial, simpligo de kompleksaj aferoj. Pacifistoj (inter kiuj ni enmetu multajn esperantistojn) argumentus, ke ilia pozicio pri milito ne estas defendi unu flankon, sed ĉefe (klopodi) malhelpi ĝian komencon kaj poste (klopodi) ĉesigi ĝin.
+
+Ĉiukaze, el geopolitika perspektivo ne estas dubo, ke la du konfliktoj rilatas. Vidu la lastatempan voĉdonon en la Ĝenerala Asembleo de Unuiĝintaj Nacioj pri la fino de la embargo kontraŭ Kubo, kiu havis nur 3 nefavorajn voĉojn: Usono, Israelo kaj Ukrainio.
+
+Kaj vi, kara esperantisto, en kiu kvadranto de la diagramo vi estas?
+
+Javier Alcalde
+
+
+---
